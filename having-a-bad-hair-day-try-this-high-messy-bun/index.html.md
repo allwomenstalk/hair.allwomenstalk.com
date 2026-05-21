@@ -3,7 +3,7 @@ title: "Having a Bad Hair Day? Try This High Messy Bun!"
 description: "Make a High Ponytail; Tease and Wrap; And Finally...; More ..."
 url: "https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/"
 category: "hair"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Having a Bad Hair Day? Try This High Messy Bun!
@@ -29,15 +29,15 @@ Cute, right?
 ## Related Posts
 
 - [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
-- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
-- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
-- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
-- [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
-- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
-- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
 - [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
+- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
+- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
+- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
 - [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
+- [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
+- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
+- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
 - [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
 - [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
 

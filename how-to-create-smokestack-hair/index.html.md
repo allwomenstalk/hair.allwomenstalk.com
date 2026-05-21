@@ -3,7 +3,7 @@ title: "How to Create Smokestack Hair ..."
 description: "Apply Royal Purple to a 2-Inch Section of Your Hair; Use Bright Purple Die on the Next 2-Inch Section of Hair; Use a Deep Periwinkle Shade on the NEXT 2-INCH SECTION of HAIR; Use a Vibrant Purple on the Next 2-inch Section of Hair; Apply a Deep Lavender Hue on the NEXT 2-INCH SECTION of HAIR; More ..."
 url: "https://hair.allwomenstalk.com/how-to-create-smokestack-hair/"
 category: "hair"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # How to Create Smokestack Hair ...
@@ -42,16 +42,16 @@ Would you ever do your hair like this or is it too much work?
 
 ## Related Posts
 
-- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
 - [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
-- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
-- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
 - [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
-- [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
-- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
 - [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
-- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
+- [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
 - [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
+- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
+- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
+- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
 - [7 Steps to Celebrity like Hair ...](https://hair.allwomenstalk.com/steps-to-celebrity-like-hair/)
 - [10 Tips on Creating a Fabulous Updo ...](https://allwomenstalk.com/tips-on-creating-over-the-top/)
 

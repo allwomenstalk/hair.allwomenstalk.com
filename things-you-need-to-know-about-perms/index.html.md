@@ -3,7 +3,7 @@ title: "11 Things You Need to Know before You Get a Perm ..."
 description: "Perms Are Back on Trend; Undamaged Hair is the Best Base; It’s a Long-Term Investment; It’s Not as Good to Go as They’d Have You Believe; Lighten up!; More ..."
 url: "https://hair.allwomenstalk.com/things-you-need-to-know-about-perms/"
 category: "hair"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 11 Things You Need to Know before You Get a Perm ...
@@ -78,16 +78,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [how to prevent hair tangles](https://hair.allwomenstalk.com/tips-on-how-to-avoid-tangled-hair/)
-- [best beauticians near me](https://beauty.allwomenstalk.com/tips-for-how-to-choose-a-beauty-salon/)
-- [i do my own hair](https://hair.allwomenstalk.com/situations-in-which-you-should-do-your-own-hair/)
-- [what to do when you have dry hair](https://hair.allwomenstalk.com/fantastic-tips-on-how-to-fix-dry-hair/)
-- [why is my haircut so bad](https://hair.allwomenstalk.com/tips-on-how-to-survive-a-bad-haircut/)
-- [no-poo](https://hair.allwomenstalk.com/helpful-tips-for-going-no-poo/)
-- [we care for your hair](https://hair.allwomenstalk.com/reasons-to-take-better-care-of-your-hair-right-now/)
-- [why does hair get static in winter](https://hair.allwomenstalk.com/tips-to-reduce-hair-static-in-winter/)
 - [long hair very](https://hair.allwomenstalk.com/cons-of-having-long-hair/)
+- [why is my haircut so bad](https://hair.allwomenstalk.com/tips-on-how-to-survive-a-bad-haircut/)
+- [we care for your hair](https://hair.allwomenstalk.com/reasons-to-take-better-care-of-your-hair-right-now/)
+- [i do my own hair](https://hair.allwomenstalk.com/situations-in-which-you-should-do-your-own-hair/)
+- [no-poo](https://hair.allwomenstalk.com/helpful-tips-for-going-no-poo/)
+- [why does hair get static in winter](https://hair.allwomenstalk.com/tips-to-reduce-hair-static-in-winter/)
+- [what to do when you have dry hair](https://hair.allwomenstalk.com/fantastic-tips-on-how-to-fix-dry-hair/)
 - [tips for silky hair](https://hair.allwomenstalk.com/tips-for-silky-hair/)
+- [best beauticians near me](https://beauty.allwomenstalk.com/tips-for-how-to-choose-a-beauty-salon/)
+- [how to prevent hair tangles](https://hair.allwomenstalk.com/tips-on-how-to-avoid-tangled-hair/)
 - [7 Things You Need to Know before a Brazilian Wax ....](https://skincare.allwomenstalk.com/7-things-you-need-to-know-before-a-brazilian-wax/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 
