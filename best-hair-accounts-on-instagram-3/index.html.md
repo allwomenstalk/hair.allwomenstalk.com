@@ -48,16 +48,16 @@ Aren't these stunning? Don't forget to share your favorite hairstyle Insta accou
 
 ## Related Posts
 
-- [getting married at 18](https://wedding.allwomenstalk.com/of-todays-delightful-wedding-inspo-for-girls-who-cant-wait-to-get-married/)
-- [inspo flowers](https://gardening.allwomenstalk.com/of-todays-delightful-flowers-inspo-for-women-who-really-know-arrangements/)
+- [nail inspo pink french](https://nails.allwomenstalk.com/of-todays-tempting-nail-inspo-for-girls-who-are-always-on-trend/)
+- [clear nail inspo](https://nails.allwomenstalk.com/of-todays-kick-ass-nail-inspo-every-beauty-needs-asap/)
 - [nail indpi](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-6/)
+- [captivating flowers](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-7/)
+- [girl hair inspo](https://hair.allwomenstalk.com/of-todays-hottest-hair-inspo-for-girls-who-love-the-best/)
+- [getting married at 18](https://wedding.allwomenstalk.com/of-todays-delightful-wedding-inspo-for-girls-who-cant-wait-to-get-married/)
 - [savvy nail](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram/)
 - [inspo flowers](https://gardening.allwomenstalk.com/of-todays-delightful-flowers-inspo-for-girls-who-love-having-flowers-around/)
-- [nail inspo pink french](https://nails.allwomenstalk.com/of-todays-tempting-nail-inspo-for-girls-who-are-always-on-trend/)
+- [inspo flowers](https://gardening.allwomenstalk.com/of-todays-delightful-flowers-inspo-for-women-who-really-know-arrangements/)
 - [heavenly travel](https://travel.allwomenstalk.com/of-todays-heavenly-travel-inspo-for-girls-who-have-a-long-bucket-travel-list/)
-- [girl hair inspo](https://hair.allwomenstalk.com/of-todays-hottest-hair-inspo-for-girls-who-love-the-best/)
-- [clear nail inspo](https://nails.allwomenstalk.com/of-todays-kick-ass-nail-inspo-every-beauty-needs-asap/)
-- [captivating flowers](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-7/)
 - [17 of Todays Charming Hair Inspo for Women Who Wan...](https://hair.allwomenstalk.com/of-todays-charming-hair-inspo-for-women-who-want-to-look-fabulous/)
 - [17 of Todays Magical Hair Inspo for Hair-obsessed ...](https://hair.allwomenstalk.com/of-todays-magical-hair-inspo-for-hair-obsessed-girls-everywhere/)
 

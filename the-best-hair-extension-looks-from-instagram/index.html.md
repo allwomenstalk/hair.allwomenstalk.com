@@ -134,16 +134,16 @@ What's your favorite hair extension style on this list? Let me know in the comme
 
 ## Related Posts
 
-- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
-- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
-- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
-- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
-- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
 - [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
-- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
+- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
+- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
 - [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
 - [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
+- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
+- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
 - [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
+- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
+- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
 - [7 Secrets for Pulling off Hair Extensions ...](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
 

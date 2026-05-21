@@ -42,15 +42,15 @@ You shouldn't leave your hair alone when you put a hat on. You can still style i
 
 ## Related Posts
 
-- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
-- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
-- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
-- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
-- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
-- [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
 - [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
 - [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
+- [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
+- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
+- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
+- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
 - [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
+- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
 - [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)

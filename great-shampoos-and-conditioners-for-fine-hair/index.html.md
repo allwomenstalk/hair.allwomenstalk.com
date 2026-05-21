@@ -69,15 +69,15 @@ I love most everything about my hair, including the strawberry blonde color. How
 ## Related Posts
 
 - [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
-- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
-- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
-- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
-- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
-- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
-- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
-- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
 - [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
+- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
+- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
+- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
+- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
+- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
+- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
+- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
+- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [7 Most Intensive Hair Conditioners for Damaged Hai...](https://allwomenstalk.com/7-most-intensive-hair-conditioners-for-damaged-hair/)
 

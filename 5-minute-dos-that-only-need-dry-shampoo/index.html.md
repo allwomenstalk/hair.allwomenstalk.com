@@ -68,15 +68,15 @@ These 5-minute 'dos that only need dry shampoo can change your busy mornings for
 
 ## Related Posts
 
-- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
 - [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
 - [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
 - [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
-- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
-- [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
-- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
 - [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
+- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
+- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
+- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
 - [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
 - [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [17 Gorgeous Hairstyles for Lazy Girls ...](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)

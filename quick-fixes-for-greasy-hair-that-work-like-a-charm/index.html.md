@@ -82,15 +82,15 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
-- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
-- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
-- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
-- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
 - [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
+- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
 - [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
+- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
+- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
 - [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
+- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
 - [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)

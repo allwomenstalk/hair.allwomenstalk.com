@@ -51,16 +51,16 @@ Top Image Source: [vandemast.com](https://goo.gl/3BK9oW)
 
 ## Related Posts
 
-- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
-- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
 - [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
-- [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
-- [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
-- [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
-- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
 - [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
 - [facts about brown hair and blue eyes](https://hair.allwomenstalk.com/facts-you-should-know-about-keratin-treatments-for-your-hair/)
 - [must have natural hair products](https://hair.allwomenstalk.com/must-have-natural-hair-care-products-for-gorgeous-hair/)
+- [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
+- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
+- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
+- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
+- [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
+- [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Brilliant Hairstyle Blogs ...](https://hair.allwomenstalk.com/brilliant-hairstyle-blogs/)
 

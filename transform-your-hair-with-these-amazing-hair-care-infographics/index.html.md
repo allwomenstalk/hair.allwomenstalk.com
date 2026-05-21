@@ -172,16 +172,16 @@ There are SO many valuable hair care tips and I can't wait to try some of these 
 
 ## Related Posts
 
-- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
+- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
 - [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
+- [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
 - [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
 - [how to overcome frizzy hair](https://hair.allwomenstalk.com/home-remedies-for-frizzy-hair/)
 - [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
-- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
+- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
 - [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
-- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
+- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
 - [tangly hair after shower](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
-- [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

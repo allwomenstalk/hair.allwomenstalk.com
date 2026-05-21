@@ -42,16 +42,16 @@ What do you think about DIY highlights? Have you done them before, were you happ
 
 ## Related Posts
 
-- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
+- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
 - [hair care myths and facts](https://hair.allwomenstalk.com/popular-hair-care-myths/)
 - [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
-- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
-- [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
-- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
-- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
-- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
+- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
 - [matching hair dye](https://hair.allwomenstalk.com/tips-for-matching-hair-color-with-skin-tone/)
+- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
 - [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
+- [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
+- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
+- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 - [7 Hair Highlighting Tips You Should Know ...](https://hair.allwomenstalk.com/hair-highlighting-tips-you-should-know/)
 

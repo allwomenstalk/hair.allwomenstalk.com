@@ -118,14 +118,14 @@ Frizz is no fun, but you can easily win the war on fly-aways, dry hair and frizz
 
 ## Related Posts
 
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
+- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
 - [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
 - [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
 - [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
-- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
+- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
 - [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)

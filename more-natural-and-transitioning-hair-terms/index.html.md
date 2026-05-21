@@ -44,16 +44,16 @@ There you have it, ladies! Seven more natural and transitioning terms, decoded. 
 
 ## Related Posts
 
+- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
 - [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
+- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
 - [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
-- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
-- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
 - [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
 - [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
+- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
+- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
 - [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
-- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
-- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
+- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 

@@ -110,16 +110,16 @@ What’s the bane of your dry hair? Frizz? Split ends? Lack of shine?
 
 ## Related Posts
 
-- [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
-- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
-- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
-- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
-- [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
-- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
 - [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
-- [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
-- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
+- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
+- [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
 - [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
+- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
+- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
+- [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
+- [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
+- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
+- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 - [19 DIY Hair Masks for Girls Suffering from Dry Hai...](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair/)
 

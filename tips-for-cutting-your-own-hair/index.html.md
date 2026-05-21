@@ -82,16 +82,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
-- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
 - [hair care myths and facts](https://hair.allwomenstalk.com/popular-hair-care-myths/)
+- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
+- [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
+- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
+- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
+- [matching hair dye](https://hair.allwomenstalk.com/tips-for-matching-hair-color-with-skin-tone/)
 - [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
+- [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
 - [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
 - [diy highlighting hair](https://hair.allwomenstalk.com/tips-on-diy-highlighting/)
-- [matching hair dye](https://hair.allwomenstalk.com/tips-for-matching-hair-color-with-skin-tone/)
-- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
-- [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
-- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
 - [7 Tips for Taking Care of Your Cuticles ...](https://skincare.allwomenstalk.com/tips-for-taking-care-of-your-cuticles/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

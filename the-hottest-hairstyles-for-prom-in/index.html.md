@@ -82,16 +82,16 @@ How are you going to wear your hair to prom, stalkers?
 
 ## Related Posts
 
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
-- [folded ponytail](https://hair.allwomenstalk.com/quick-hairstyles-for-late-mornings/)
-- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
-- [hairstyles](https://hair.allwomenstalk.com/inspirational-hair-styles-for-girls-with-long-hair/)
-- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
-- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
-- [tidy bun hairstyle](https://hair.allwomenstalk.com/gorgeous-buns-to-try/)
-- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
-- [braid inspiration](https://hair.allwomenstalk.com/instagram-braid-inspiration-thatll-turn-you-into-the-queen-of-insta/)
 - [wedding guest headbands](https://wedding.allwomenstalk.com/gorgeous-hair-inspirations-for-your-wedding-day/)
+- [folded ponytail](https://hair.allwomenstalk.com/quick-hairstyles-for-late-mornings/)
+- [hairstyles](https://hair.allwomenstalk.com/inspirational-hair-styles-for-girls-with-long-hair/)
+- [braid inspiration](https://hair.allwomenstalk.com/instagram-braid-inspiration-thatll-turn-you-into-the-queen-of-insta/)
+- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
+- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
+- [tidy bun hairstyle](https://hair.allwomenstalk.com/gorgeous-buns-to-try/)
+- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
+- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

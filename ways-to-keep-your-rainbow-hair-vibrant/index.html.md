@@ -56,16 +56,16 @@ Your hair is one of your greatest assets and these tips will help ensure they st
 
 ## Related Posts
 
-- [great clips bad haircut policy](https://hair.allwomenstalk.com/how-to-ensure-you-never-have-a-bad-haircut/)
-- [how to make second day hair look good](https://hair.allwomenstalk.com/ways-to-style-second-day-hair/)
-- [hairstyle while sleeping](https://hair.allwomenstalk.com/how-to-get-the-hair-of-your-dreams-while-you-sleep/)
-- [homemade hair thickener](https://hair.allwomenstalk.com/natural-ways-to-thicken-your-hair/)
-- [ready for selfie](https://hair.allwomenstalk.com/how-to-keep-your-hair-selfie-ready/)
 - [how to treat sun damaged hair](https://hair.allwomenstalk.com/how-to-repair-sun-damaged-hair/)
+- [hairstyle while sleeping](https://hair.allwomenstalk.com/how-to-get-the-hair-of-your-dreams-while-you-sleep/)
+- [ready for selfie](https://hair.allwomenstalk.com/how-to-keep-your-hair-selfie-ready/)
 - [how to choose perfect hair color](https://hair.allwomenstalk.com/how-to-understand-your-skin-tone-to-choose-your-perfect-hair-color/)
+- [dyed fringe hair](https://hair.allwomenstalk.com/how-to-manage-your-bangs-when-its-crazy-hot/)
 - [thicker beauties](https://hair.allwomenstalk.com/ways-to-get-thicker-hair/)
 - [how to make hair straight without heat](https://hair.allwomenstalk.com/pro-tips-on-how-to-get-straight-hair-without-heat/)
-- [dyed fringe hair](https://hair.allwomenstalk.com/how-to-manage-your-bangs-when-its-crazy-hot/)
+- [how to make second day hair look good](https://hair.allwomenstalk.com/ways-to-style-second-day-hair/)
+- [homemade hair thickener](https://hair.allwomenstalk.com/natural-ways-to-thicken-your-hair/)
+- [great clips bad haircut policy](https://hair.allwomenstalk.com/how-to-ensure-you-never-have-a-bad-haircut/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [7 Fabulous Ways to Liven up a Ponytail ...](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
 

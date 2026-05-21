@@ -230,16 +230,16 @@ Now you can create alluring waves and curls anytime you want without worrying ab
 
 ## Related Posts
 
-- [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
+- [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
 - [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
-- [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
-- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
-- [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
-- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
 - [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
 - [curls n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
 - [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
-- [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
+- [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
+- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
+- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
+- [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
+- [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 

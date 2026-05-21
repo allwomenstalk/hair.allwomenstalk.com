@@ -56,16 +56,16 @@ Having shiny hair isn’t incredibly hard to obtain, it just takes a little crea
 
 ## Related Posts
 
-- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
-- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
-- [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
-- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
-- [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
-- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
-- [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
-- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
 - [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
+- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
+- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
+- [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
+- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
+- [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
+- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
+- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
 - [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
+- [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [7 Best Hairstyling Products Ever ...](https://allwomenstalk.com/7-best-hairstyling-products-ever/)
 

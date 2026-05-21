@@ -134,16 +134,16 @@ Source: [How to do a Perfect](https://goo.gl/RCJqc7)
 
 ## Related Posts
 
+- [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
 - [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
+- [haircuts with a fringe](https://hair.allwomenstalk.com/join-the-fringe-festival-with-these-styles-for-girls-with-bangs/)
 - [updos for shoulder length hair easy](https://hair.allwomenstalk.com/summer-hair-keep-your-cool-with-these-updos/)
 - [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
-- [haircuts with a fringe](https://hair.allwomenstalk.com/join-the-fringe-festival-with-these-styles-for-girls-with-bangs/)
-- [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
-- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
 - [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
-- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
+- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
+- [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
 - [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
-- [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
+- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
 - [72 Fabulous Ideas for Summer Hair Inspiration ...](https://hair.allwomenstalk.com/photos-for-summer-hair-inspiration/)
 - [40 Curly Hair Inspos That Every Curly Girl Will Ap...](https://hair.allwomenstalk.com/curly-hair-inspos-that-every-curly-girl-will-appreciate/)
 

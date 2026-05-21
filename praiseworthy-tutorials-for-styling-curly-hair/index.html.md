@@ -50,16 +50,16 @@ Do you have curly hair? What's your favorite style? Remember that taking proper 
 
 ## Related Posts
 
+- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
+- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
+- [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
+- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
+- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
+- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
+- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
 - [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
-- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
-- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
-- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
-- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
-- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
-- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
-- [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
-- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
 - [15 Best Shampoos for Curly Hair ...](https://allwomenstalk.com/12-best-shampoos-for-curly-hair/)
 - [13 Simple and Stylish Updos for Curly Hair ...](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
 

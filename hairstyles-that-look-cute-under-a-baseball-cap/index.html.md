@@ -70,14 +70,14 @@ Don't hesitate to wear your favorite baseball cap, because you can pull it off. 
 
 - [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
 - [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
-- [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
-- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
+- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
 - [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
 - [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
 - [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
-- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
 - [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
-- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
+- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
+- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
+- [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Ponytails That Look Adorable ...](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
 

@@ -35,13 +35,13 @@ Do you think the stereotypes for your hair color ring true?
 ## Related Posts
 
 - [7 Reasons to Break up with Your Hairstylist ...](https://hair.allwomenstalk.com/reasons-to-break-up-with-your-hairstylist/)
-- [7 Tips for Dyeing Your Hair Blonde ...](https://hair.allwomenstalk.com/tips-for-dyeing-your-hair-blonde/)
 - [How Often Should You Be Washing Your Hair ...](https://hair.allwomenstalk.com/how-often-should-you-be-washing-your-hair/)
-- [faux side braid](https://hair.allwomenstalk.com/easy-ways-to-step-up-your-braid-game/)
 - [7 Tips on Getting Rid of Greasy Hair ...](https://hair.allwomenstalk.com/tips-on-getting-rid-of-greasy-hair/)
 - [home hairstyle](https://hair.allwomenstalk.com/steps-to-recreating-your-salon-hairstyle-at-home/)
-- [7 Ways to Treat Thinning Hair ...](https://hair.allwomenstalk.com/ways-to-treat-thinning-hair/)
+- [7 Tips for Dyeing Your Hair Blonde ...](https://hair.allwomenstalk.com/tips-for-dyeing-your-hair-blonde/)
+- [faux side braid](https://hair.allwomenstalk.com/easy-ways-to-step-up-your-braid-game/)
 - [7 Protective Styles and How to Care for Them ...](https://hair.allwomenstalk.com/protective-styles-and-how-to-care-for-them/)
+- [7 Ways to Treat Thinning Hair ...](https://hair.allwomenstalk.com/ways-to-treat-thinning-hair/)
 - [hair brushing routine](https://hair.allwomenstalk.com/ways-to-get-the-most-out-of-your-hair-brushing-routine/)
 - [Hair 101: Easy Tips to Help You Have Healthy Hair ...](https://hair.allwomenstalk.com/hair-101-easy-tips-to-help-you-have-healthy-hair/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)

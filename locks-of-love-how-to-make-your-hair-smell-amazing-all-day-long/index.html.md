@@ -42,16 +42,16 @@ You don't need to spray your hair with sticky perfume in order to have it smell 
 
 ## Related Posts
 
-- [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
-- [how to overcome frizzy hair](https://hair.allwomenstalk.com/home-remedies-for-frizzy-hair/)
+- [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
 - [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
+- [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
 - [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
 - [tangly hair after shower](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
-- [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
-- [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
-- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
-- [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
 - [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
+- [how to overcome frizzy hair](https://hair.allwomenstalk.com/home-remedies-for-frizzy-hair/)
+- [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
+- [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
+- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
 - [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
 - [15 Ways to Make Your Hair Smell Good All Day ...](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
 

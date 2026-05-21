@@ -56,16 +56,16 @@ Hair can be hard to style depending on the texture of your hair as well as the l
 
 ## Related Posts
 
-- [gotta be hair products](https://hair.allwomenstalk.com/winter-hair-color-tips-and-trends-youve-gotta-read/)
-- [hairstyles for frizzy hair for school](https://hair.allwomenstalk.com/back-to-school-hairstyles-to-look-stylish-this-year/)
-- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
 - [pixie cut challenge](https://hair.allwomenstalk.com/stylish-suggestions-on-styling-a-pixie-cut/)
-- [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
+- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
+- [gotta be hair products](https://hair.allwomenstalk.com/winter-hair-color-tips-and-trends-youve-gotta-read/)
+- [riche le smoky with a twist](https://hair.allwomenstalk.com/super-stylish-retro-hairstyles-with-a-modern-twist-to-try/)
 - [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
+- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
+- [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
 - [striking hair color](https://hair.allwomenstalk.com/feisty-and-unique-hair-colors-for-your-inner-rebel/)
 - [easy styles for curly hair](https://hair.allwomenstalk.com/easy-styles-for-curly-hair-that-are-great-for-any-occasion/)
-- [riche le smoky with a twist](https://hair.allwomenstalk.com/super-stylish-retro-hairstyles-with-a-modern-twist-to-try/)
-- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
+- [hairstyles for frizzy hair for school](https://hair.allwomenstalk.com/back-to-school-hairstyles-to-look-stylish-this-year/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

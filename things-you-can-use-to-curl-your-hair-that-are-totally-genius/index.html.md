@@ -42,16 +42,16 @@ Are you rushing off to curl your hair right now? It’s always nice to go to bed
 
 ## Related Posts
 
-- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
-- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
+- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
 - [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
+- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
+- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
 - [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
+- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
 - [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
 - [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
-- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
-- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
 - [8 Tips for Curling Your Hair ...](https://hair.allwomenstalk.com/8-tips-for-curling-your-hair/)
 - [8 Steps to Beautiful Curls ...](https://hair.allwomenstalk.com/steps-to-beautiful-curls/)
 

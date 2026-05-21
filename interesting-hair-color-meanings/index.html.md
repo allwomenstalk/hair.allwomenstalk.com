@@ -68,16 +68,16 @@ So what do you think? Have you rocked any of these hair colors? Does your person
 
 ## Related Posts
 
-- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
-- [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
-- [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
-- [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
-- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
 - [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
-- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
-- [womens professional hairstyles](https://hair.allwomenstalk.com/perfectly-professional-hairstyles-for-work/)
+- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
+- [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
+- [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
+- [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
 - [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
+- [womens professional hairstyles](https://hair.allwomenstalk.com/perfectly-professional-hairstyles-for-work/)
 - [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
+- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
+- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 - [5 Hair Color Ideas for a Fresh Look ...](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
 

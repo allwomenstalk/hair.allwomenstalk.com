@@ -42,16 +42,16 @@ As long as you follow these preventative tips, you shouldn't have to worry about
 
 ## Related Posts
 
-- [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
-- [between washes hair products](https://hair.allwomenstalk.com/ways-to-go-longer-between-hair-washes/)
-- [static hair fix](https://hair.allwomenstalk.com/say-goodbye-to-hair-static-with-these-tips/)
+- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
+- [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
 - [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
 - [jessies nails helsingborg](https://hair.allwomenstalk.com/heres-how-brazilian-women-treat-split-ends/)
-- [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
-- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
-- [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
-- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
+- [static hair fix](https://hair.allwomenstalk.com/say-goodbye-to-hair-static-with-these-tips/)
+- [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
 - [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
+- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
+- [between washes hair products](https://hair.allwomenstalk.com/ways-to-go-longer-between-hair-washes/)
+- [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 

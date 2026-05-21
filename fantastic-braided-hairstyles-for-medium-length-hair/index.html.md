@@ -68,15 +68,15 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
-- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
-- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
 - [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
 - [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
+- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
 - [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
 - [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
-- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
+- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
 - [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
 - [7 Cute Short Curly Hairstyles ...](https://hair.allwomenstalk.com/cute-short-curly-hairstyles/)
 - [7 Elegant Hairstyles for Short Hair ...](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)

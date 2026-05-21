@@ -44,16 +44,16 @@ Top Photo Credit: [heat_lighting](https://www.flickr.com/photos/47435819@N02/533
 
 ## Related Posts
 
-- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
-- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
-- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
-- [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
-- [how to cope with bad haircut](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
-- [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
-- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 - [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
-- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
 - [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
+- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
+- [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
+- [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
+- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
+- [how to cope with bad haircut](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
+- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
+- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
+- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 - [7 Steps to a Chic Chignon ...](https://hair.allwomenstalk.com/7-steps-to-a-chic-chignon/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

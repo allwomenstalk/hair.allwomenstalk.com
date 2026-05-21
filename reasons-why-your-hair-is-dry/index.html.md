@@ -38,14 +38,14 @@ You would be surprised at how much dead hair you have and that can get in the wa
 
 - [how to prevent lice](https://hair.allwomenstalk.com/ways-to-prevent-head-lice/)
 - [Too Many Bad Hair Days This is What You Are Doing ...](https://hair.allwomenstalk.com/this-is-what-you-are-doing-wrong-with-your-hair/)
-- [Stop Doing These Things That Make Your Hair Greasy...](https://hair.allwomenstalk.com/things-that-make-your-hair-greasy/)
-- [unmanageable hair](https://hair.allwomenstalk.com/tips-to-control-unmanageable-hair/)
 - [Pro Tips to Get Salon Hair in under 2 Hours ...](https://hair.allwomenstalk.com/how-to-get-salon-hair-in-under-2-hours/)
-- [How to Improve the Health of Your Hair so It Grows...](https://hair.allwomenstalk.com/how-to-improve-the-health-of-your-hair-so-it-grows-faster/)
+- [Stop Doing These Things That Make Your Hair Greasy...](https://hair.allwomenstalk.com/things-that-make-your-hair-greasy/)
 - [Things That Make Your Hair Greasy ...](https://hair.allwomenstalk.com/things-that-make-your-hair-greasy-2/)
-- [8 Pro Tips for Hiding Hair Loss ...](https://hair.allwomenstalk.com/pro-tips-for-hiding-hair-loss/)
+- [How to Improve the Health of Your Hair so It Grows...](https://hair.allwomenstalk.com/how-to-improve-the-health-of-your-hair-so-it-grows-faster/)
+- [unmanageable hair](https://hair.allwomenstalk.com/tips-to-control-unmanageable-hair/)
 - [The Stages of Donating Your Hair for Girls Contemp...](https://hair.allwomenstalk.com/the-stages-of-donating-your-hair/)
 - [5 Easy Ways to Get Natural Curls ...](https://hair.allwomenstalk.com/easy-ways-to-get-natural-curls/)
+- [8 Pro Tips for Hiding Hair Loss ...](https://hair.allwomenstalk.com/pro-tips-for-hiding-hair-loss/)
 - [7 Possible Reasons for Hair Loss ...](https://hair.allwomenstalk.com/7-possible-reasons-for-hair-loss/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 

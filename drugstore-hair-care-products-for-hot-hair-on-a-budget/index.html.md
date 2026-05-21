@@ -104,16 +104,16 @@ That about finishes my list of craveworthy drugstore hair products! There were n
 
 ## Related Posts
 
-- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
 - [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
-- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
-- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
-- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
+- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
 - [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
+- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
+- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
 - [elegant hair brushes](https://hair.allwomenstalk.com/top-notch-hair-brushes-that-will-blow-you-away/)
-- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 

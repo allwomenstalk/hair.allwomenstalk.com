@@ -94,16 +94,16 @@ Now that you’re read all of my stylist tips for silky hair, are you eager to t
 
 ## Related Posts
 
-- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
-- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
 - [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
-- [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
 - [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
 - [hair crunching](https://hair.allwomenstalk.com/ways-to-tell-your-hair-has-been-damaged/)
 - [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
-- [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
+- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
 - [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
+- [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
+- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
+- [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

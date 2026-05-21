@@ -46,14 +46,14 @@ Top Image Source: _readmarsipan.blogspot.in_
 
 - [how to make thick hair lay flat](https://hair.allwomenstalk.com/tips-on-how-to-deal-with-thick-hair/)
 - [best haircut for boys](https://hair.allwomenstalk.com/neat-tricks-for-dealing-with-a-bad-haircut/)
-- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
 - [can you make fine hair thicker](https://hair.allwomenstalk.com/tips-to-make-thin-hair-thicker/)
+- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
 - [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
-- [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
 - [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
+- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
 - [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
 - [fall hair tips](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-autumn/)
-- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
+- [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

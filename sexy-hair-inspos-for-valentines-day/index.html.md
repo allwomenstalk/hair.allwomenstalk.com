@@ -142,14 +142,14 @@ Which look is your favorite? What are your Valentine's Day plans this year?
 
 - [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
 - [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
-- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
-- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
 - [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
 - [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
 - [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
-- [caribbean curls ig](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
 - [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
+- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
+- [caribbean curls ig](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 - [Sexy Hair](https://allwomenstalk.com/sexy-hair/)
 

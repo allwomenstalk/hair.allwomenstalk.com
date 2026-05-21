@@ -44,16 +44,16 @@ Top Photo Credit: [Evil Erin](https://www.flickr.com/photos/evilerin/3435417453/
 
 ## Related Posts
 
-- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
 - [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
-- [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
-- [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
-- [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
+- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [10 Definite Donts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
-- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
 - [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
 - [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
-- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
+- [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
+- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
+- [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
+- [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
 

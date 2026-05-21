@@ -56,16 +56,16 @@ These’re 7 ideas to try when you’re growing your bangs out. Are you in this 
 
 ## Related Posts
 
-- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
-- [lobs girl questions and answers class 6](https://hair.allwomenstalk.com/the-lob-is-this-hot-hairstyle-right-for-you/)
-- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
-- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
-- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
-- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
-- [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
-- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
 - [diy 1920s hair](https://hair.allwomenstalk.com/grab-a-headband-to-create-these-sexy-hairstyles/)
+- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
+- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
+- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
+- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
+- [lobs girl questions and answers class 6](https://hair.allwomenstalk.com/the-lob-is-this-hot-hairstyle-right-for-you/)
 - [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
+- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
+- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
+- [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Amazingly Helpful Tips on How to Cut Your Own Ba...](https://hair.allwomenstalk.com/amazingly-helpful-tips-on-how-to-cut-your-own-bangs/)
 

@@ -48,10 +48,10 @@ These natural hair masks are a great, cheap way to revitalise and moisturise you
 - [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
 - [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
-- [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
-- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
-- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
 - [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
+- [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
+- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
+- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 of the Best at-Home Hair Care Tips ...](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 

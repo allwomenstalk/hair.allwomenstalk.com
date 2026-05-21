@@ -42,16 +42,16 @@ Short curly hair is fantastic but it requires no less a attention than longer ha
 
 ## Related Posts
 
-- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
-- [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
-- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
-- [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
 - [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
-- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
-- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
-- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
-- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
 - [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
+- [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
+- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
+- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
+- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
+- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
+- [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
+- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
+- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

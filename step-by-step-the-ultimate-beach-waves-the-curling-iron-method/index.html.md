@@ -42,14 +42,14 @@ Good luck with creating the perfect summer style! Have you tried the curling iro
 
 ## Related Posts
 
-- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
-- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
 - [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
-- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
-- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
 - [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
-- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
+- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
+- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
+- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
 - [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
+- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
+- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
 - [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
 - [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
 - [2 Techniques to Create the Long and Wavy Hair Styl...](https://allwomenstalk.com/2-ways-to-create-the-long-and-wavy-hair-style/)

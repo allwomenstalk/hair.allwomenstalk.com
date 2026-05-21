@@ -42,16 +42,16 @@ I love how short hair looks sometimes, but I don't want to cut my long hair. It 
 
 ## Related Posts
 
-- [best tool for loose waves](https://hair.allwomenstalk.com/styling-tools-to-give-your-hair-waves-and-curls/)
-- [teens hairstyles](https://hair.allwomenstalk.com/trendiest-hairstyles-for-teens-that-you-should-try-today/)
 - [edgy hairstyles for long hair](https://hair.allwomenstalk.com/edgy-haircuts-to-rock-this-year/)
-- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
+- [hairstyles for clean hair](https://hair.allwomenstalk.com/hairstyles-for-when-you-cant-wash-your-hair/)
+- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
 - [street style hairstyles](https://hair.allwomenstalk.com/streetstyle-hairstyles-thatll-keep-you-looking-fab/)
+- [best tool for loose waves](https://hair.allwomenstalk.com/styling-tools-to-give-your-hair-waves-and-curls/)
 - [new hairstyle 2023](https://hair.allwomenstalk.com/reasons-to-change-your-hairstyle/)
 - [how to wear a headband with ponytail](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
-- [hairstyles for clean hair](https://hair.allwomenstalk.com/hairstyles-for-when-you-cant-wash-your-hair/)
 - [long hair quotes for man](https://hair.allwomenstalk.com/fun-reasons-to-love-your-long-hair/)
-- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
+- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
+- [teens hairstyles](https://hair.allwomenstalk.com/trendiest-hairstyles-for-teens-that-you-should-try-today/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

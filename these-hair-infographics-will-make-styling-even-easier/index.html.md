@@ -150,16 +150,16 @@ Which of these do you think will be most helpful to you?
 
 ## Related Posts
 
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
-- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
+- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
 - [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
-- [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
-- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
 - [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
+- [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
+- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
+- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
 - [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
 - [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
-- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
-- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
+- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 

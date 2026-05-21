@@ -120,16 +120,16 @@ I don't know about you, but I'm happy to ditch the bobby pins for some braids. H
 
 ## Related Posts
 
-- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
-- [girls updo](https://hair.allwomenstalk.com/hair-inspo-for-those-who-need-a-breathtaking-undo-now/)
-- [cool braiding styles](https://hair.allwomenstalk.com/gorge-braids-inspo-every-blond-girl-needs-to-see/)
 - [best hair influencers](https://hair.allwomenstalk.com/amazing-hair-influencers-to-check-out/)
 - [great gatsby hair for long hair](https://hair.allwomenstalk.com/habits-that-all-women-with-amazing-hair-have/)
-- [hair obsessed](https://hair.allwomenstalk.com/trendiest-hairstyles-all-hair-obsessed-girls-will-love/)
-- [natural beach wave](https://hair.allwomenstalk.com/tricks-for-girls-who-want-to-wake-up-with-beach-waves/)
-- [80s hair tutorial for short hair](https://hair.allwomenstalk.com/hair-tutorials-for-women-who-wish-they-had-shorter-hair/)
+- [cool braiding styles](https://hair.allwomenstalk.com/gorge-braids-inspo-every-blond-girl-needs-to-see/)
+- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
 - [what does hairstyle say about you](https://hair.allwomenstalk.com/what-does-your-hairstyle-say-about-you/)
+- [natural beach wave](https://hair.allwomenstalk.com/tricks-for-girls-who-want-to-wake-up-with-beach-waves/)
+- [hair obsessed](https://hair.allwomenstalk.com/trendiest-hairstyles-all-hair-obsessed-girls-will-love/)
+- [girls updo](https://hair.allwomenstalk.com/hair-inspo-for-those-who-need-a-breathtaking-undo-now/)
 - [withoomph](https://hair.allwomenstalk.com/the-best-tips-for-girls-who-want-ponytails-with-oomph/)
+- [80s hair tutorial for short hair](https://hair.allwomenstalk.com/hair-tutorials-for-women-who-wish-they-had-shorter-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 

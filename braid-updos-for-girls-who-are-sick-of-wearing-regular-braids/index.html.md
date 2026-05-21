@@ -48,16 +48,16 @@ Which one is your favorite? Where will you wear it?
 
 ## Related Posts
 
-- [girls updo](https://hair.allwomenstalk.com/hair-inspo-for-those-who-need-a-breathtaking-undo-now/)
 - [80s hair tutorial for short hair](https://hair.allwomenstalk.com/hair-tutorials-for-women-who-wish-they-had-shorter-hair/)
 - [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
 - [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
-- [hair obsessed](https://hair.allwomenstalk.com/trendiest-hairstyles-all-hair-obsessed-girls-will-love/)
-- [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
-- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
 - [what does hairstyle say about you](https://hair.allwomenstalk.com/what-does-your-hairstyle-say-about-you/)
+- [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
 - [great gatsby hair for long hair](https://hair.allwomenstalk.com/habits-that-all-women-with-amazing-hair-have/)
+- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
 - [cute girls 17 years old](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair/)
+- [girls updo](https://hair.allwomenstalk.com/hair-inspo-for-those-who-need-a-breathtaking-undo-now/)
+- [hair obsessed](https://hair.allwomenstalk.com/trendiest-hairstyles-all-hair-obsessed-girls-will-love/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [7 Tips on How to Perfect the Oh-so-Stylish Braids ...](https://allwomenstalk.com/7-tips-on-how-to-perfect-the-oh-so-stylish-braids-look/)
 

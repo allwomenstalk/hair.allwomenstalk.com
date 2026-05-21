@@ -50,16 +50,16 @@ You might as well live life on the edge by trying out all of these hair trends. 
 
 ## Related Posts
 
-- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
-- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
-- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
-- [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
-- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
-- [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
-- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
-- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
 - [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
 - [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
+- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
+- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
+- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
+- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
+- [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
+- [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
+- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
+- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

@@ -114,16 +114,16 @@ When you want to baby your color-treated hair, it pays to try out some special s
 
 ## Related Posts
 
-- [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
+- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
+- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
 - [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
-- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
-- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
 - [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
+- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
+- [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
+- [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
+- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
 - [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
 - [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
-- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
-- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
 - [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 - [15 Best Shampoos for Girls with Oily Hair ...](https://allwomenstalk.com/12-best-shampoos-for-oily-hair/)
 

@@ -150,16 +150,16 @@ Anything goes! Women wear their hair any which way with styles and colors changi
 
 ## Related Posts
 
+- [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
 - [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
 - [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
-- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
-- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
+- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
 - [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
 - [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
 - [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
+- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

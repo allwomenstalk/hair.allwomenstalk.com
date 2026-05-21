@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/5361071)
 
 ## Related Posts
 
-- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
-- [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
-- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
-- [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
-- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
+- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
+- [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
+- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
+- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
+- [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
 - [8 Tips to Prevent Split Ends ...](https://hair.allwomenstalk.com/8-tips-to-prevent-split-ends/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 

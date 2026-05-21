@@ -58,16 +58,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/28114076)
 
 ## Related Posts
 
-- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
 - [hair accessories for beach](https://hair.allwomenstalk.com/hair-accessories-for-the-beach-to-die-for/)
 - [paris color smoky eye neon skirt](https://hair.allwomenstalk.com/amazing-hair-trends-to-try/)
-- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
+- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
 - [movie characters with two braids](https://hair.allwomenstalk.com/movie-inspired-braided-hairstyles-to-try/)
 - [beachy braids](https://hair.allwomenstalk.com/cute-versions-of-a-beachy-wave-style/)
-- [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
-- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
-- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
+- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
+- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
 - [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
+- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
+- [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Steps to Celebrity like Hair ...](https://hair.allwomenstalk.com/steps-to-celebrity-like-hair/)
 

@@ -77,15 +77,15 @@ Top Image Source: indulgy.com_
 ## Related Posts
 
 - [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
 - [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
-- [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
-- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
-- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
 - [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
-- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
 - [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
 - [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
+- [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
+- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
+- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
 - [7 Best Oily Hair Treatments ...](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
 - [15 Tips for Shiny Hair ...](https://hair.allwomenstalk.com/tips-for-shiny-hair/)
 

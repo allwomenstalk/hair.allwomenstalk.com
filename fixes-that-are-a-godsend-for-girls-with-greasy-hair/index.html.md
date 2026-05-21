@@ -74,15 +74,15 @@ You’re now ready to kick greasy hair to the curb.
 
 ## Related Posts
 
-- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
-- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
-- [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
-- [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
-- [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
-- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
-- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
-- [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
 - [lusious locks](https://hair.allwomenstalk.com/miracle-hair-products-for-girls-who-are-dying-for-thick-luscious-locks/)
+- [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
+- [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
+- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
+- [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
+- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
+- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
+- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
+- [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
 - [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [15 Best Shampoos for Girls with Oily Hair ...](https://allwomenstalk.com/12-best-shampoos-for-oily-hair/)

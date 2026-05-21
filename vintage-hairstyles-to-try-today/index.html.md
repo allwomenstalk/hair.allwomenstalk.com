@@ -56,15 +56,15 @@ See what I mean when I say I love them all? They are all amazing but I need to f
 
 ## Related Posts
 
-- [updo for hair](https://hair.allwomenstalk.com/easy-updos-that-you-can-do-in-under-5-minutes/)
-- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
-- [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
-- [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
 - [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
 - [7th birthday hairstyle](https://hair.allwomenstalk.com/wonderful-reasons-to-change-your-hairstyle-thatll-make-you-visit-your-stylist-right-away/)
-- [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
-- [2020 hair color trends](https://hair.allwomenstalk.com/fabulous-hair-color-trends-for-fall-we-just-love/)
+- [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
+- [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
 - [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
+- [2020 hair color trends](https://hair.allwomenstalk.com/fabulous-hair-color-trends-for-fall-we-just-love/)
+- [updo for hair](https://hair.allwomenstalk.com/easy-updos-that-you-can-do-in-under-5-minutes/)
+- [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
+- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [strange hair styles](https://hair.allwomenstalk.com/strange-hair-trends-that-are-only-for-the-brave/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Ponytails That Look Adorable ...](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)

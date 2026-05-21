@@ -68,16 +68,16 @@ Here’s to a glorious summer of beach waves.
 
 ## Related Posts
 
-- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
-- [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
-- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
-- [peinados de rock](https://hair.allwomenstalk.com/hairstyles-to-rock-for-girls-who-are-always-hot/)
-- [withoomph](https://hair.allwomenstalk.com/the-best-tips-for-girls-who-want-ponytails-with-oomph/)
-- [cool braiding styles](https://hair.allwomenstalk.com/gorge-braids-inspo-every-blond-girl-needs-to-see/)
-- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
 - [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
+- [peinados de rock](https://hair.allwomenstalk.com/hairstyles-to-rock-for-girls-who-are-always-hot/)
+- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
+- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
+- [withoomph](https://hair.allwomenstalk.com/the-best-tips-for-girls-who-want-ponytails-with-oomph/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
+- [cool braiding styles](https://hair.allwomenstalk.com/gorge-braids-inspo-every-blond-girl-needs-to-see/)
+- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
 - [7 Beautiful Beach-Ready Hairstyles ...](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
 - [7 Splendid Salt Sprays for Perfect Beach Waves ...](https://hair.allwomenstalk.com/splendid-salt-sprays-for-perfect-beach-waves/)
 

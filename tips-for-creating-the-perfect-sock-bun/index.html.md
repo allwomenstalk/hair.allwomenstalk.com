@@ -42,16 +42,16 @@ So ladies, there you have it, the secret to learning how to create the sock bun 
 
 ## Related Posts
 
+- [bad hair do](https://hair.allwomenstalk.com/ways-to-disguise-a-bad-hair-day/)
 - [how to keep bangs from curling in humidity](https://hair.allwomenstalk.com/ways-to-keep-your-hair-perfectly-straight-despite-weather/)
-- [bad haircut picture](https://hair.allwomenstalk.com/tips-for-avoiding-a-bad-haircut/)
-- [style thinning hair](https://hair.allwomenstalk.com/sensational-style-tips-for-thinning-hair/)
+- [how to hide thinning hair](https://hair.allwomenstalk.com/ways-to-hide-thinning-hair/)
+- [7 on sides haircut](https://hair.allwomenstalk.com/tips-for-his-perfect-haircut/)
 - [styling blunt bangs](https://hair.allwomenstalk.com/tips-for-maintaining-blunt-bangs/)
 - [is a blowout bad for your hair](https://hair.allwomenstalk.com/facts-you-should-know-about-a-brazilian-blow-out/)
-- [bad hair do](https://hair.allwomenstalk.com/ways-to-disguise-a-bad-hair-day/)
-- [transitioning from relaxed to natural hair without...](https://hair.allwomenstalk.com/tips-on-how-to-grow-out-relaxed-hair-without-the-big-chop/)
-- [7 on sides haircut](https://hair.allwomenstalk.com/tips-for-his-perfect-haircut/)
-- [how to hide thinning hair](https://hair.allwomenstalk.com/ways-to-hide-thinning-hair/)
 - [dying my hair blonde](https://hair.allwomenstalk.com/things-to-consider-before-dying-your-hair-blond/)
+- [bad haircut picture](https://hair.allwomenstalk.com/tips-for-avoiding-a-bad-haircut/)
+- [style thinning hair](https://hair.allwomenstalk.com/sensational-style-tips-for-thinning-hair/)
+- [transitioning from relaxed to natural hair without...](https://hair.allwomenstalk.com/tips-on-how-to-grow-out-relaxed-hair-without-the-big-chop/)
 - [7 Steps to a Chic Chignon ...](https://hair.allwomenstalk.com/7-steps-to-a-chic-chignon/)
 - [7 Tips for Creating a Fishtail Braid ...](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
 

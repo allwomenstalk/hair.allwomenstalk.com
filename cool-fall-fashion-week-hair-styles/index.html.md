@@ -74,16 +74,16 @@ New York, London, Milan, Paris - there are plenty of spring/summer fashion week 
 
 ## Related Posts
 
-- [holidays hairstyles](https://hair.allwomenstalk.com/hot-holiday-hairstyles/)
-- [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
 - [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
-- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
 - [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
-- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
-- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
-- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
 - [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
+- [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
+- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
+- [holidays hairstyles](https://hair.allwomenstalk.com/hot-holiday-hairstyles/)
+- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
+- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
 - [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
+- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 - [8 Hair Trends for the Fall 2011 ...](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
 

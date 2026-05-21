@@ -62,16 +62,16 @@ I’m definitely going to trial using hair oils more. I just love how glossy my 
 
 ## Related Posts
 
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
-- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
-- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
 - [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
+- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
 - [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
+- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
+- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Best Oily Hair Treatments ...](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
 

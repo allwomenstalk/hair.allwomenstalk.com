@@ -220,16 +220,16 @@ I hope you give one or more of these wonderful, easy to make healthy hair recipe
 
 ## Related Posts
 
-- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
-- [drugstore hair products](https://hair.allwomenstalk.com/drugstore-hair-care-products-for-hot-hair-on-a-budget/)
-- [elegant hair brushes](https://hair.allwomenstalk.com/top-notch-hair-brushes-that-will-blow-you-away/)
-- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
 - [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
+- [elegant hair brushes](https://hair.allwomenstalk.com/top-notch-hair-brushes-that-will-blow-you-away/)
+- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
-- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
 - [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
-- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
 - [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
+- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
+- [drugstore hair products](https://hair.allwomenstalk.com/drugstore-hair-care-products-for-hot-hair-on-a-budget/)
+- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Signs of Healthy Hair ...](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
 

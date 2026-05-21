@@ -42,16 +42,16 @@ I guess short hair isn't for everyone. But if you have ever considered cutting y
 
 ## Related Posts
 
+- [are dryer sheets bad for your hair](https://hair.allwomenstalk.com/tips-to-get-rid-of-hat-hair/)
 - [keri russell curly hair products](https://hair.allwomenstalk.com/tips-on-how-to-love-your-curly-hair-and-rock-it-like-a-superstar/)
+- [tips for growing long curly hair](https://hair.allwomenstalk.com/helpful-tips-for-taking-care-of-long-curly-hair/)
+- [hair looks fried after blow drying](https://hair.allwomenstalk.com/common-causes-of-dry-hair/)
+- [how to prevent falling hair naturally](https://hair.allwomenstalk.com/natural-tips-to-help-stop-your-hair-from-falling-out/)
+- [oily hair hairstyles](https://hair.allwomenstalk.com/helpful-ways-to-make-oily-hair-look-good/)
 - [how to get longer hair quickly](https://hair.allwomenstalk.com/ways-to-grow-your-hair-quickly-that-work/)
 - [bold hair colors](https://hair.allwomenstalk.com/unmissable-hints-for-trying-bold-hair-colors/)
-- [shining hair](https://hair.allwomenstalk.com/easy-ways-to-make-your-hair-shiny-instantly/)
 - [how to hair soft and silky](https://hair.allwomenstalk.com/tips-for-keeping-your-hair-soft-and-silky-this-winter/)
-- [oily hair hairstyles](https://hair.allwomenstalk.com/helpful-ways-to-make-oily-hair-look-good/)
-- [are dryer sheets bad for your hair](https://hair.allwomenstalk.com/tips-to-get-rid-of-hat-hair/)
-- [hair looks fried after blow drying](https://hair.allwomenstalk.com/common-causes-of-dry-hair/)
-- [tips for growing long curly hair](https://hair.allwomenstalk.com/helpful-tips-for-taking-care-of-long-curly-hair/)
-- [how to prevent falling hair naturally](https://hair.allwomenstalk.com/natural-tips-to-help-stop-your-hair-from-falling-out/)
+- [shining hair](https://hair.allwomenstalk.com/easy-ways-to-make-your-hair-shiny-instantly/)
 - [7 Pros and Cons of Long Hair ...](https://allwomenstalk.com/7-pros-and-cons-of-long-hair/)
 - [7 Pros and Cons of Short Hair ...](https://allwomenstalk.com/7-pros-and-cons-of-short-hair/)
 

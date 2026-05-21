@@ -42,16 +42,16 @@ Your hair doesn't have to look like a mess, just because the weather is a mess. 
 
 ## Related Posts
 
-- [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
-- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
 - [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
-- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
-- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
-- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
-- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
 - [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
+- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
+- [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
+- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
+- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
+- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 

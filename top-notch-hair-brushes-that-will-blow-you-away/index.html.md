@@ -56,16 +56,16 @@ As you can see, you find some pretty awesome hair brushes for very reasonable pr
 
 ## Related Posts
 
-- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
-- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
-- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
-- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
-- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
-- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
-- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
-- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
 - [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
+- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
+- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
+- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
+- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
+- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
+- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
+- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [7 Best Hairsprays That I Love ...](https://hair.allwomenstalk.com/best-hairsprays-that-i-love/)
 

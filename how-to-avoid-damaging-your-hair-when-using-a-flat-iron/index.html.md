@@ -56,15 +56,15 @@ Are you damaging your hair with your flat iron? What are you going to do differe
 
 ## Related Posts
 
-- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
-- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
-- [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
+- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
+- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
 - [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
 - [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
 - [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
-- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
-- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
-- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
+- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
+- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
+- [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
 - [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [7 Tips to Care for Your Ceramic Straightener ...](https://hair.allwomenstalk.com/tips-to-care-for-your-ceramic-straightener/)

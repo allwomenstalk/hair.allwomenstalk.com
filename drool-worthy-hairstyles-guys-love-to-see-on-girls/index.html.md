@@ -80,16 +80,16 @@ The side ponytail might not be a sexy hair style on its own, but when you add th
 
 ## Related Posts
 
-- [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
-- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
-- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
-- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
-- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
-- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
-- [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
-- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
+- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
+- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
+- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
+- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
+- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
+- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
+- [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [Adorable Haircuts for Spring That Are Simply Perfe...](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
 

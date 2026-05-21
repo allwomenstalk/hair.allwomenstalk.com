@@ -137,16 +137,16 @@ Which one is your favorite? Where will you go once you get the style just right?
 
 ## Related Posts
 
-- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
-- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
+- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
 - [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
 - [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
-- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
-- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
-- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
 - [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
-- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
+- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
+- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
 - [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
+- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
+- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
 - [8 Innovative Things to Try with Your Hair ...](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 

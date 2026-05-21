@@ -58,15 +58,15 @@ Top Image Source: [livejournal.com](https://ohnotheydidnt.livejournal.com/668171
 
 ## Related Posts
 
-- [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
-- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
-- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
 - [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
+- [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
+- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
 - [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)

@@ -42,15 +42,15 @@ How do you save money on haircare?
 
 ## Related Posts
 
-- [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
+- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
+- [how to fix dry hair after dying](https://hair.allwomenstalk.com/heres-how-to-keep-your-dyed-hair-hydrated/)
 - [how to add string to hair](https://hair.allwomenstalk.com/non-dye-ways-to-add-color-to-your-hair/)
+- [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
+- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
 - [how to stop bangs from parting in the middle](https://hair.allwomenstalk.com/how-to-grow-your-bangs-out-in-a-month/)
 - [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
 - [how to style transitioning hair after washing](https://hair.allwomenstalk.com/how-to-wash-and-detangle-your-fragile-transitioning-hair/)
-- [how to fix dry hair after dying](https://hair.allwomenstalk.com/heres-how-to-keep-your-dyed-hair-hydrated/)
 - [intitle:how to thinning hair](https://hair.allwomenstalk.com/heres-how-to-avoid-hat-hair/)
-- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
-- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
 - [wet cut hair](https://hair.allwomenstalk.com/should-you-ask-for-a-dry-cut-at-the-salon/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)

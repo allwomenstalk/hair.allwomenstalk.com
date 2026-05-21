@@ -48,16 +48,16 @@ Top Image Source: [volvoretas.wordpress.com/](https://volvoretas.wordpress.com/)
 
 ## Related Posts
 
-- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
 - [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
 - [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
-- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
-- [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
-- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
+- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
 - [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
-- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
-- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
 - [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
+- [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
+- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
+- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [7 Signs of Healthy Hair ...](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
 

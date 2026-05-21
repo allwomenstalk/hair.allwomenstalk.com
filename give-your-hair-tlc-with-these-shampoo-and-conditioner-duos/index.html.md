@@ -64,16 +64,16 @@ These’re some great shampoo and conditioner duos if your hair is in need of TL
 
 ## Related Posts
 
-- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
-- [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
-- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
-- [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
 - [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
-- [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
+- [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
 - [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
-- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
-- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
 - [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
+- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
+- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
+- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
+- [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
+- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
+- [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
 - [8 Damaged Hair Treatments to Improve Your Tresses ...](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
 - [11 Best Natural Shampoos for Beautiful and Healthy...](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
 

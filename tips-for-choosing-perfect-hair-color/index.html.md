@@ -46,16 +46,16 @@ Got any more tips on how to choose a hair color? Well, I’m all ears then! Tell
 
 ## Related Posts
 
+- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
+- [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
+- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
+- [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
 - [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
-- [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
-- [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
-- [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
-- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
+- [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [make your own dry shampoo](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
-- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [8 Steps to Successful Home Hair Colour ...](https://hair.allwomenstalk.com/8-steps-to-successful-home-hair-colour/)
 

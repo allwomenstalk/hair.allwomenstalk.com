@@ -42,16 +42,16 @@ Which one of these faux mohawk tutorials are you going to bookmark and use these
 
 ## Related Posts
 
-- [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
-- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
-- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
-- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
-- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
-- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
-- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
 - [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
+- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
+- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
+- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
 - [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
+- [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
+- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
 - [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
+- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
 - [7 Steps to a Chic Chignon ...](https://hair.allwomenstalk.com/7-steps-to-a-chic-chignon/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

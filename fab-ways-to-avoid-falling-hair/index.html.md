@@ -48,16 +48,16 @@ While some hair falling out is normal, you don't want to lose all of your hair! 
 
 ## Related Posts
 
-- [7 Tips for Looking after Long Hair ...](https://hair.allwomenstalk.com/tips-for-looking-after-long-hair/)
-- [9 Tips to Fight Hair Breakage and Loss ...](https://hair.allwomenstalk.com/tips-to-fight-hair-breakage-and-loss/)
-- [7 Ways to Deal with Brassy Colour ...](https://hair.allwomenstalk.com/ways-to-deal-with-brassy-colour/)
-- [wearing a ponytail everyday](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-that-you-need-to-stop-right-now/)
-- [7 Possible Reasons Why Youre Losing Hair ...](https://hair.allwomenstalk.com/possible-reasons-why-youre-losing-hair/)
-- [7 Easy Steps to a Gorgeous Retro Blowdry ...](https://beauty.allwomenstalk.com/easy-steps-to-a-gorgeous-retro-blowdry/)
-- [7 Simple Ways to Avoid Hair Damage and Look Gorgeo...](https://hair.allwomenstalk.com/simple-ways-to-avoid-hair-damage-and-look-gorgeous/)
 - [7 Tips to Cope with Female Hair Loss ...](https://health.allwomenstalk.com/tips-to-cope-with-female-hair-loss/)
+- [7 Possible Reasons Why Youre Losing Hair ...](https://hair.allwomenstalk.com/possible-reasons-why-youre-losing-hair/)
+- [7 Ways to Deal with Brassy Colour ...](https://hair.allwomenstalk.com/ways-to-deal-with-brassy-colour/)
+- [7 Easy Steps to a Gorgeous Retro Blowdry ...](https://beauty.allwomenstalk.com/easy-steps-to-a-gorgeous-retro-blowdry/)
+- [9 Tips to Fight Hair Breakage and Loss ...](https://hair.allwomenstalk.com/tips-to-fight-hair-breakage-and-loss/)
 - [how should i get my hair done](https://hair.allwomenstalk.com/ways-to-get-the-most-out-of-your-hair-appointment/)
 - [8 Brilliant Tips for Wearing and Caring for Extens...](https://hair.allwomenstalk.com/brilliant-tips-for-wearing-and-caring-for-extensions/)
+- [7 Tips for Looking after Long Hair ...](https://hair.allwomenstalk.com/tips-for-looking-after-long-hair/)
+- [wearing a ponytail everyday](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-that-you-need-to-stop-right-now/)
+- [7 Simple Ways to Avoid Hair Damage and Look Gorgeo...](https://hair.allwomenstalk.com/simple-ways-to-avoid-hair-damage-and-look-gorgeous/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 

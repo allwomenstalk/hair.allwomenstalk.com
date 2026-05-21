@@ -48,16 +48,16 @@ Top Photo Credit: [Shandi-lee](https://www.flickr.com/photos/shandilee/506302666
 
 ## Related Posts
 
-- [how to make my hair stay in place](https://hair.allwomenstalk.com/ways-to-make-your-hair-stay-fresh-longer/)
-- [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
 - [loreal riche le stylo bottomless](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
-- [envious curls](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
-- [how to style long hair](https://hair.allwomenstalk.com/universal-tips-on-how-to-style-long-hair/)
+- [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
 - [10 things to know about coloring your hair](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
+- [envious curls](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
+- [how to make my hair stay in place](https://hair.allwomenstalk.com/ways-to-make-your-hair-stay-fresh-longer/)
 - [ceramic hair straightener good or bad](https://hair.allwomenstalk.com/tips-to-care-for-your-ceramic-straightener/)
+- [sign of healthy hair](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
+- [how to style long hair](https://hair.allwomenstalk.com/universal-tips-on-how-to-style-long-hair/)
 - [how to choose the best haircut](https://hair.allwomenstalk.com/essential-tips-on-how-to-choose-the-best-haircut/)
 - [what causes extreme dandruff](https://hair.allwomenstalk.com/things-that-cause-dandruff/)
-- [sign of healthy hair](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
 - [9 Ways to Wake up Beautiful Every Morning ...](https://beauty.allwomenstalk.com/ways-to-wake-up-beautiful-every-morning/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 

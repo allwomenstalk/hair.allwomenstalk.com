@@ -42,16 +42,16 @@ To help keep those crazy loose hairs from getting huge and flying away, tame the
 
 ## Related Posts
 
-- [cute and curls](https://hair.allwomenstalk.com/super-cute-curly-hairstyles-for-fall-that-youve-got-to-try/)
 - [amy winehouse hairstyles](https://hair.allwomenstalk.com/worst-hairstyles-ever-seen-on-a-head-of-a-celebrity/)
+- [gotta be hair products](https://hair.allwomenstalk.com/winter-hair-color-tips-and-trends-youve-gotta-read/)
+- [cute and curls](https://hair.allwomenstalk.com/super-cute-curly-hairstyles-for-fall-that-youve-got-to-try/)
+- [in the twentieth century which beauty trend did ce...](https://hair.allwomenstalk.com/most-iconic-hairstyles-of-all-time/)
 - [how to braid hairstyles](https://hair.allwomenstalk.com/stunning-braided-hairstyles-youtube-tutorials-you-have-to-check-out/)
 - [hairstyles for windy days](https://hair.allwomenstalk.com/lovely-hairstyles-for-windy-days-that-are-pretty-and-practical/)
-- [in the twentieth century which beauty trend did ce...](https://hair.allwomenstalk.com/most-iconic-hairstyles-of-all-time/)
-- [gotta be hair products](https://hair.allwomenstalk.com/winter-hair-color-tips-and-trends-youve-gotta-read/)
+- [hairstyles for frizzy hair for school](https://hair.allwomenstalk.com/back-to-school-hairstyles-to-look-stylish-this-year/)
 - [unstyled bangs](https://hair.allwomenstalk.com/ways-to-style-your-bangs-and-look-fabulous/)
 - [heat free hairstyles](https://hair.allwomenstalk.com/easy-heat-free-hairstyles-you-need-to-try-now/)
 - [pixie cut challenge](https://hair.allwomenstalk.com/stylish-suggestions-on-styling-a-pixie-cut/)
-- [hairstyles for frizzy hair for school](https://hair.allwomenstalk.com/back-to-school-hairstyles-to-look-stylish-this-year/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 

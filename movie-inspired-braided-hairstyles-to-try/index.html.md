@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/25523108)
 
 ## Related Posts
 
-- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
 - [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
-- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
+- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
+- [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
 - [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
 - [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
-- [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
-- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
-- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
+- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
 - [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
+- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
 - [beachy braids](https://hair.allwomenstalk.com/cute-versions-of-a-beachy-wave-style/)
+- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

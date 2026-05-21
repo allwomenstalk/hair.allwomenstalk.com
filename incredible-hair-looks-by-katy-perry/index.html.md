@@ -190,16 +190,16 @@ What do you think Katy will do next? I love that she likes to have fun with her 
 
 ## Related Posts
 
-- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
 - [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
+- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
+- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
+- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
 - [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
+- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
 - [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
 - [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
+- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
 - [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
-- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
-- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
-- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 

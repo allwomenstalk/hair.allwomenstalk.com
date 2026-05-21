@@ -44,16 +44,16 @@ If you’ve ever believed any of these or some of the many other popular hair my
 
 ## Related Posts
 
-- [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
-- [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
 - [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)
-- [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
-- [what color should i dye my hair personality quiz](https://hair.allwomenstalk.com/reasons-to-dye-your-hair-a-crazy-color-at-least-once/)
-- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
-- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
+- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
 - [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
 - [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
-- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
+- [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
+- [what color should i dye my hair personality quiz](https://hair.allwomenstalk.com/reasons-to-dye-your-hair-a-crazy-color-at-least-once/)
+- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
+- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
+- [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
+- [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 

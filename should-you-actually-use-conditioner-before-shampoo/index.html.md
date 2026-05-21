@@ -56,16 +56,16 @@ Have you ever tried conditioner before shampoo? Did it work wonders on your hair
 
 ## Related Posts
 
-- [loreal paris color stylo primped previous](https://hair.allwomenstalk.com/skip-the-salon-and-use-these-hair-dye-products/)
-- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
 - [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
+- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
 - [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
-- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
-- [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
-- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
-- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
 - [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
+- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
+- [loreal paris color stylo primped previous](https://hair.allwomenstalk.com/skip-the-salon-and-use-these-hair-dye-products/)
+- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
 - [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
+- [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
 - [Whats in Your Shower](https://allwomenstalk.com/whats-in-your-shower/)
 - [7 Tips on Picking the Right Shampoo for You ...](https://allwomenstalk.com/7-tips-on-picking-the-right-shampoo-for-you/)
 

@@ -111,16 +111,16 @@ Resource for nutrient statistics
 
 ## Related Posts
 
-- [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
-- [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
-- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
-- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
 - [how to overcome frizzy hair](https://hair.allwomenstalk.com/home-remedies-for-frizzy-hair/)
-- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
-- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
-- [tangly hair after shower](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
 - [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
+- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
 - [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
+- [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
+- [tangly hair after shower](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
+- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
+- [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
+- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
+- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
 - [15 Tips for Shiny Hair ...](https://hair.allwomenstalk.com/tips-for-shiny-hair/)
 - [14 Tips for Shiny Hair ...](https://allwomenstalk.com/14-tips-for-shiny-hair/)
 

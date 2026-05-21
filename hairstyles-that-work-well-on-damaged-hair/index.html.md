@@ -66,16 +66,16 @@ Is your hair beyond fried? Too many split ends? What about a really bad dye job 
 
 ## Related Posts
 
-- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
 - [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
-- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
-- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
-- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
 - [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
 - [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
 - [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
+- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
+- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
 - [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
 - [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
+- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
+- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
 

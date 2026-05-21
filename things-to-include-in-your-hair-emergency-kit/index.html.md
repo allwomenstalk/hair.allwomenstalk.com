@@ -136,16 +136,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/4120641)
 
 ## Related Posts
 
-- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
-- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
-- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
-- [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
 - [best haircut for boys](https://hair.allwomenstalk.com/neat-tricks-for-dealing-with-a-bad-haircut/)
-- [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
 - [fall hair tips](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-autumn/)
+- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
+- [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
 - [can you make fine hair thicker](https://hair.allwomenstalk.com/tips-to-make-thin-hair-thicker/)
+- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
 - [how to make thick hair lay flat](https://hair.allwomenstalk.com/tips-on-how-to-deal-with-thick-hair/)
+- [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
 - [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
+- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

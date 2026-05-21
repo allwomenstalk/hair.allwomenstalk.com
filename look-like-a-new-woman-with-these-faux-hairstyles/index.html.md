@@ -42,16 +42,16 @@ Faux hairstyles are so much fun, because they give you the opportunity to look a
 
 ## Related Posts
 
-- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
-- [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
 - [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
-- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
-- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
-- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
 - [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
+- [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
+- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
+- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
 - [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
 - [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
+- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
+- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
 - [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
 

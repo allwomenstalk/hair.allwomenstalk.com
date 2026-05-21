@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20614437)
 
 ## Related Posts
 
-- [almay intense i-color for blue eyes](https://allwomenstalk.com/almays-intense-i-color-collection/)
-- [almay smart shade review](https://allwomenstalk.com/review-almay-smart-shade-makeup/)
-- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
+- [neutrogena mineral sheers](https://allwomenstalk.com/product-review-neutrogena-mineral-sheers-for-eyes/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
+- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
+- [Supermarket Beauty](https://allwomenstalk.com/supermarket-beauty/)
 - [maybelline pure makeup](https://allwomenstalk.com/review-maybelline-pure-makeup/)
 - [estee lauder self tanners](https://allwomenstalk.com/product-review-estee-lauder-go-tan-airbrush-spray/)
+- [almay smart shade review](https://allwomenstalk.com/review-almay-smart-shade-makeup/)
 - [WEBSITE FIND: Beauty Exclusive ...](https://allwomenstalk.com/website-find-beauty-exclusive/)
-- [ELF Cosmetics . Special Offer ...](https://allwomenstalk.com/elf-cosmetics-special-offer/)
+- [almay intense i-color for blue eyes](https://allwomenstalk.com/almays-intense-i-color-collection/)
 - [how to revive old eyeshadow](https://allwomenstalk.com/revive-your-old-cosmetics/)
-- [neutrogena mineral sheers](https://allwomenstalk.com/product-review-neutrogena-mineral-sheers-for-eyes/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 

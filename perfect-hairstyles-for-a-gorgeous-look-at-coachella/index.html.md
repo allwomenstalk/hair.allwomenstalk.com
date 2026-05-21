@@ -82,16 +82,16 @@ Are you going to Coachella this year? How will you wear your hair?
 
 ## Related Posts
 
-- [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
-- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
 - [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
-- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
-- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
-- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
-- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
-- [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
-- [haircuts for long hair women](https://hair.allwomenstalk.com/layered-haircuts-for-every-face-shape/)
 - [lazy easy hairstyles for school](https://hair.allwomenstalk.com/most-awesomely-easy-hairstyles-any-lazy-girl-can-do-quickly/)
+- [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
+- [haircuts for long hair women](https://hair.allwomenstalk.com/layered-haircuts-for-every-face-shape/)
+- [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
+- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
+- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
+- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
+- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
+- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
 - [8 Hairstyles I Loved at the Oscars ...](https://allwomenstalk.com/8-hairstyles-i-loved-at-the-oscars/)
 - [8 Fantastic Celebrity Inspired Hairstyles ...](https://hair.allwomenstalk.com/fantastic-celebrity-inspired-hairstyles/)
 

@@ -56,16 +56,16 @@ The style possibilities with buns are pretty endless, and you can really create 
 
 ## Related Posts
 
-- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
-- [curls n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
-- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
-- [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
-- [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
-- [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
-- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
 - [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
+- [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
+- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
+- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
+- [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
 - [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
+- [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
+- [curls n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
 - [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
+- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 

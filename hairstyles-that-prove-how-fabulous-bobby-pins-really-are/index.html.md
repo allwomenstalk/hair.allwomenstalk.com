@@ -147,16 +147,16 @@ Source: 5 Bobby Pin Hacks to_
 
 ## Related Posts
 
-- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
-- [low pigtail buns](https://hair.allwomenstalk.com/hairstyles-men-love-to-see-us-wear/)
-- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
-- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
-- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
-- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
-- [hair goal](https://hair.allwomenstalk.com/long-hair-goals-for/)
 - [bee melvnin hair real](https://hair.allwomenstalk.com/up-your-color-game-with-northern-lights-hair/)
-- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
+- [hair goal](https://hair.allwomenstalk.com/long-hair-goals-for/)
+- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
+- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
 - [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
+- [low pigtail buns](https://hair.allwomenstalk.com/hairstyles-men-love-to-see-us-wear/)
+- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
+- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

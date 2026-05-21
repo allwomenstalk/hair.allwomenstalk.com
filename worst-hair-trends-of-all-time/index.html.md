@@ -56,16 +56,16 @@ I’m sure that I've went over a few of the worst hair trends that you didn't ev
 
 ## Related Posts
 
-- [male ombre long hair](https://hair.allwomenstalk.com/celebrity-hairstyles-we-love/)
 - [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
-- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
-- [librarian hairstyles](https://hair.allwomenstalk.com/beautiful-and-stylish-hair-dos-to-give-you-a-whole-new-look/)
-- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
-- [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
-- [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
 - [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
+- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
+- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
 - [how to make long hair appear short](https://hair.allwomenstalk.com/hairstyles-that-make-long-hair-look-short/)
+- [male ombre long hair](https://hair.allwomenstalk.com/celebrity-hairstyles-we-love/)
+- [librarian hairstyles](https://hair.allwomenstalk.com/beautiful-and-stylish-hair-dos-to-give-you-a-whole-new-look/)
 - [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
+- [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
+- [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

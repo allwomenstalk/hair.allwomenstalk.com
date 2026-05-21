@@ -66,16 +66,16 @@ We hope you enjoyed these hairstyles and hope you give them a try!
 
 ## Related Posts
 
-- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
-- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
 - [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
 - [lucky daye hairstyle](https://hair.allwomenstalk.com/super-simple-hairstyles-for-girls-with-super-long-hair/)
-- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
+- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
 - [hairstyles for thick hair for women](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair-2/)
 - [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
-- [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
+- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
 - [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
+- [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
+- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

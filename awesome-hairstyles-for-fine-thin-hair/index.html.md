@@ -42,16 +42,16 @@ Are you going to give any of these hairstyles for thin hair a go? Hope you are! 
 
 ## Related Posts
 
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
 - [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [paris color stylo avant azure](https://hair.allwomenstalk.com/retro-hairstyles-to-try-out/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
-- [glamrock hair style](https://hair.allwomenstalk.com/new-interesting-ways-to-style-your-layered-hair/)
 - [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [paris color stylo avant azure](https://hair.allwomenstalk.com/retro-hairstyles-to-try-out/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
+- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
 - [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
+- [glamrock hair style](https://hair.allwomenstalk.com/new-interesting-ways-to-style-your-layered-hair/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

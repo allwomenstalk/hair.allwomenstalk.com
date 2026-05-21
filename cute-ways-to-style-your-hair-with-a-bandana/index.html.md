@@ -25,16 +25,16 @@ So, happy bandana-ing!
 
 ## Related Posts
 
-- [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
-- [The Latest Celebrity Hair Trend - Are YOU in](https://allwomenstalk.com/the-latest-celebrity-hair-trend-are-you-in/)
-- [good quality wigs](https://allwomenstalk.com/classy-high-quality-wigs/)
-- [loreal paris riche le stylo eye endless](https://hair.allwomenstalk.com/ring-lighting-hairstyle-trend/)
-- [hair styles natural](https://hair.allwomenstalk.com/natural-hair-styles/)
 - [eyebrow fashion](https://beauty.allwomenstalk.com/have-you-tried-these-incredible-eyebrow-trends/)
-- [baddie white girl hairstyles](https://hair.allwomenstalk.com/easy-baddie-hairstyles-for-short-hair/)
+- [The Latest Celebrity Hair Trend - Are YOU in](https://allwomenstalk.com/the-latest-celebrity-hair-trend-are-you-in/)
 - [Hair Perfection](https://allwomenstalk.com/hair-perfection/)
+- [baddie white girl hairstyles](https://hair.allwomenstalk.com/easy-baddie-hairstyles-for-short-hair/)
+- [loreal paris riche le stylo eye endless](https://hair.allwomenstalk.com/ring-lighting-hairstyle-trend/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
+- [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
+- [hair styles natural](https://hair.allwomenstalk.com/natural-hair-styles/)
 - [Before They Had Stylists ...](https://allwomenstalk.com/before-they-had-stylists/)
+- [good quality wigs](https://allwomenstalk.com/classy-high-quality-wigs/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

@@ -50,16 +50,16 @@ Hairdressers have an important job. Your hair says a lot about you, and a hairdr
 
 ## Related Posts
 
-- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
 - [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
 - [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
-- [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
 - [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
+- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
 - [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
+- [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
 - [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
+- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
 - [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
 - [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
-- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

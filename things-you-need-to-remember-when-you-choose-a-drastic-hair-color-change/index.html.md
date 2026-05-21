@@ -56,16 +56,16 @@ A drastic hair color change can be a lot of fun but there are also some things y
 
 ## Related Posts
 
-- [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
-- [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
-- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
-- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
-- [how long for bangs to grow an inch](https://hair.allwomenstalk.com/incredible-tips-for-growing-out-your-bangs/)
-- [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
 - [what heat should i straighten my hair at](https://hair.allwomenstalk.com/things-to-know-before-you-straighten-your-hair/)
-- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
-- [yourhairdresser](https://hair.allwomenstalk.com/things-your-hairdresser-wants-you-to-know/)
+- [how long for bangs to grow an inch](https://hair.allwomenstalk.com/incredible-tips-for-growing-out-your-bangs/)
 - [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
+- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
+- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
+- [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
+- [yourhairdresser](https://hair.allwomenstalk.com/things-your-hairdresser-wants-you-to-know/)
+- [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
+- [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
+- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 

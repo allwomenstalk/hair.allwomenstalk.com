@@ -50,16 +50,16 @@ It's fun to experiment without the commitment of a permanent dye. What's your fa
 
 ## Related Posts
 
-- [how to protect hair from sun damage](https://hair.allwomenstalk.com/how-do-i-protect-my-hair-from-sun-damage/)
-- [tricks to make your hair grow faster](https://hair.allwomenstalk.com/how-to-make-hair-grow-faster/)
-- [how to lighten hair](https://hair.allwomenstalk.com/how-to-lighten-your-hair-at-home/)
-- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
-- [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
-- [different kinds of perms for short hair](https://hair.allwomenstalk.com/care-tips-for-short-permed-hair/)
 - [dreams about long hair](https://hair.allwomenstalk.com/sensational-tips-for-girls-who-want-to-grow-the-hair-of-their-dreams/)
+- [how to protect hair from sun damage](https://hair.allwomenstalk.com/how-do-i-protect-my-hair-from-sun-damage/)
 - [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
+- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
+- [different kinds of perms for short hair](https://hair.allwomenstalk.com/care-tips-for-short-permed-hair/)
+- [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
 - [how do you trim bangs](https://hair.allwomenstalk.com/how-to-trim-your-own-bangs/)
 - [how to test your hair type](https://hair.allwomenstalk.com/hair-porosity-test/)
+- [tricks to make your hair grow faster](https://hair.allwomenstalk.com/how-to-make-hair-grow-faster/)
+- [how to lighten hair](https://hair.allwomenstalk.com/how-to-lighten-your-hair-at-home/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 - [10 Tips for Colouring Your Hair at Home ...](https://allwomenstalk.com/10-tips-for-colouring-your-hair-at-home/)
 

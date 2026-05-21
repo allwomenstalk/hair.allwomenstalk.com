@@ -136,16 +136,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11151417)
 
 ## Related Posts
 
-- [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
 - [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
-- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
 - [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
 - [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
 - [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
+- [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
+- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
+- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [8 Sexiest Badass Celebrity Hair Styles ...](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 

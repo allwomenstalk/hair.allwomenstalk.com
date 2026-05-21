@@ -56,15 +56,15 @@ I hope I’ve convinced you to give [unnatural hair colors](https://hair.allwome
 
 ## Related Posts
 
-- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
-- [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
-- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
-- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
-- [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)
-- [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
 - [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
-- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
+- [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)
+- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
+- [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
 - [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
+- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
+- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
+- [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
+- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
 - [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 - [7 Tips to Dye Your Hair Darker ...](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)

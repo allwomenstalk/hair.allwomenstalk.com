@@ -42,16 +42,16 @@ Do you love your natural hair and what advice could you give to the girls who ar
 
 ## Related Posts
 
-- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
-- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
-- [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
-- [straight hair curly](https://hair.allwomenstalk.com/tips-to-help-you-curl-pin-straight-hair/)
-- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
-- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
-- [how to wear your hair on a rainy day](https://hair.allwomenstalk.com/hair-tips-for-rainy-days/)
-- [riche stylo avant azure](https://hair.allwomenstalk.com/different-ways-to-create-curls-sans-heat/)
 - [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
+- [straight hair curly](https://hair.allwomenstalk.com/tips-to-help-you-curl-pin-straight-hair/)
+- [riche stylo avant azure](https://hair.allwomenstalk.com/different-ways-to-create-curls-sans-heat/)
+- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
+- [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
+- [how to wear your hair on a rainy day](https://hair.allwomenstalk.com/hair-tips-for-rainy-days/)
+- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
 - [hairstyle for swimming](https://hair.allwomenstalk.com/excellent-ways-to-protect-your-hair-when-in-the-pool/)
+- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
+- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 

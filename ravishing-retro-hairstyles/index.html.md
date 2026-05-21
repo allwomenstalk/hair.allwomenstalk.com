@@ -272,16 +272,16 @@ There are so many different retro styles, it's just a matter of finding what wor
 
 ## Related Posts
 
-- [small hair ribbons](https://hair.allwomenstalk.com/beautiful-hairstyles-with-ribbons/)
 - [fire hydrant red hair](https://hair.allwomenstalk.com/hair-inspirations-for-changing-up-your-style/)
 - [easy updo layered hair](https://hair.allwomenstalk.com/updos-for-everyday-hair/)
-- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
-- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
-- [lisa purple hair](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
-- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
-- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
-- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
+- [small hair ribbons](https://hair.allwomenstalk.com/beautiful-hairstyles-with-ribbons/)
 - [2014 haircuts](https://hair.allwomenstalk.com/of-the-most-popular-haircuts-of/)
+- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
+- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
+- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
+- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
+- [lisa purple hair](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
+- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 

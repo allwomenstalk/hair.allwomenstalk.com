@@ -42,16 +42,16 @@ I adore organic hair care! What are your go-to hair care products?
 
 ## Related Posts
 
+- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
+- [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
+- [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
+- [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
+- [best leave in conditioner for soft hair](https://hair.allwomenstalk.com/best-leave-in-conditioners-for-soft-hair/)
 - [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
 - [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
-- [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
 - [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
-- [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
-- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
 - [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
-- [best leave in conditioner for soft hair](https://hair.allwomenstalk.com/best-leave-in-conditioners-for-soft-hair/)
-- [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
-- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
+- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [7 Lip Conditioning Products to Try out ...](https://beauty.allwomenstalk.com/lip-conditioning-products-to-try-out/)
 

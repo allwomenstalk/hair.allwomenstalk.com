@@ -80,14 +80,14 @@ So ladies, there you have it! All of the different kinds of bangs that look hot 
 
 ## Related Posts
 
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
 - [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
 - [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
 - [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
-- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
 - [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
 - [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
 - [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
 - [7 Interesting Ways to Style Your Bangs ...](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)

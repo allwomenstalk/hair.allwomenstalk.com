@@ -48,16 +48,16 @@ Top Photo Credit: [Musa de Lirio](https://www.flickr.com/photos/musa_de_lirio/44
 
 ## Related Posts
 
-- [how to choose the best haircut](https://hair.allwomenstalk.com/essential-tips-on-how-to-choose-the-best-haircut/)
-- [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
-- [how to make my hair stay in place](https://hair.allwomenstalk.com/ways-to-make-your-hair-stay-fresh-longer/)
-- [what causes extreme dandruff](https://hair.allwomenstalk.com/things-that-cause-dandruff/)
-- [ceramic hair straightener good or bad](https://hair.allwomenstalk.com/tips-to-care-for-your-ceramic-straightener/)
-- [envious curls](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
-- [sign of healthy hair](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
-- [how to style long hair](https://hair.allwomenstalk.com/universal-tips-on-how-to-style-long-hair/)
 - [highlighting hair at home](https://hair.allwomenstalk.com/hair-highlighting-tips-you-should-know/)
+- [ceramic hair straightener good or bad](https://hair.allwomenstalk.com/tips-to-care-for-your-ceramic-straightener/)
+- [how to style long hair](https://hair.allwomenstalk.com/universal-tips-on-how-to-style-long-hair/)
 - [10 things to know about coloring your hair](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
+- [what causes extreme dandruff](https://hair.allwomenstalk.com/things-that-cause-dandruff/)
+- [how to make my hair stay in place](https://hair.allwomenstalk.com/ways-to-make-your-hair-stay-fresh-longer/)
+- [how to choose the best haircut](https://hair.allwomenstalk.com/essential-tips-on-how-to-choose-the-best-haircut/)
+- [sign of healthy hair](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
+- [envious curls](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
+- [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
 - [8 Wild Things to do with Your Hair ...](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

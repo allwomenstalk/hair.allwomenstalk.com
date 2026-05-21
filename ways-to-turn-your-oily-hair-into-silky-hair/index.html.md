@@ -42,16 +42,16 @@ As I said earlier, no one knows your hair like you so it’s going to be a case 
 
 ## Related Posts
 
-- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
-- [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
-- [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
-- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
-- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
-- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
 - [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
-- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
-- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
+- [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
+- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
+- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
+- [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
+- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
 - [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
+- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
+- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
+- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Best Oily Hair Treatments ...](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
 

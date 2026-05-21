@@ -56,16 +56,16 @@ There you have it! Seven fabulous and trendy hairstyles for teens! If you can, I
 
 ## Related Posts
 
-- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
 - [simple basketball hairstyles](https://hair.allwomenstalk.com/simple-fuss-free-hairstyles-for-athletes/)
-- [how to wear a headband with ponytail](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
+- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
+- [bridesmaid survey](https://wedding.allwomenstalk.com/easy-hairstyles-for-the-busy-bridesmaid/)
+- [hairstyles for clean hair](https://hair.allwomenstalk.com/hairstyles-for-when-you-cant-wash-your-hair/)
+- [long hair quotes for man](https://hair.allwomenstalk.com/fun-reasons-to-love-your-long-hair/)
+- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
 - [haircuts for low maintenance](https://hair.allwomenstalk.com/low-maintenance-hairstyles-to-try-no-matter-your-hair-texture/)
 - [appropriate accessories](https://hair.allwomenstalk.com/tips-for-choosing-beautiful-age-appropriate-hair-accessories/)
-- [long hair quotes for man](https://hair.allwomenstalk.com/fun-reasons-to-love-your-long-hair/)
+- [how to wear a headband with ponytail](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
 - [celebrity women with short hair](https://hair.allwomenstalk.com/best-short-hairstyles-modeled-by-celebrities/)
-- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
-- [hairstyles for clean hair](https://hair.allwomenstalk.com/hairstyles-for-when-you-cant-wash-your-hair/)
-- [bridesmaid survey](https://wedding.allwomenstalk.com/easy-hairstyles-for-the-busy-bridesmaid/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 

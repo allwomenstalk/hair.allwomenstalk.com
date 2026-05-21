@@ -62,16 +62,16 @@ Short hairstyles don't have to be really short, and there is a much wider variet
 
 ## Related Posts
 
-- [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
-- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
-- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
-- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
-- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
 - [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
 - [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
-- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
 - [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
+- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
+- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
+- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
+- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
+- [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
 - [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
+- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [8 Beautiful Boho Hairstyles ...](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 

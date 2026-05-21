@@ -72,16 +72,16 @@ Top Photo Credit: [laurenlemon](https://www.flickr.com/photos/renolauren/3842554
 
 ## Related Posts
 
+- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
+- [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
+- [hair color to look younger before and after](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 - [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
 - [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
-- [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
-- [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
 - [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
-- [hair color to look younger before and after](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
-- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
+- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 - [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
-- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
+- [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
 

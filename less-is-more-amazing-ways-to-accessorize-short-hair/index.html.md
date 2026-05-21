@@ -56,16 +56,16 @@ I totally understand the desire to mix it up every once in a while, but also the
 
 ## Related Posts
 
-- [simple easy easter hairstyles](https://hair.allwomenstalk.com/look-hot-during-the-holidays-how-should-you-style-your-hair-this-easter/)
-- [sweeping bangs long hair](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-so-hot-right-now/)
 - [hairstyles for grade 8 grad](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
 - [hairstyles that never go out of style](https://hair.allwomenstalk.com/timeless-hairstyles-that-have-been-around-for-centuries/)
-- [lauren graham curly hair](https://hair.allwomenstalk.com/curly-hair-inspos-that-every-curly-girl-will-appreciate/)
-- [anne hathaway waterfall bangs](https://hair.allwomenstalk.com/these-long-hair-inspos-will-make-you-love-your-locks/)
-- [cute hairstyles with bangs tumblr](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
-- [change hairstyle](https://hair.allwomenstalk.com/virtual-makeover-websites-to-see-how-youd-look-with-different-haircuts/)
-- [hiking hair styles](https://hair.allwomenstalk.com/got-to-have-hairstyles-for-girls-with-long-hair/)
 - [longish pixie haircuts](https://hair.allwomenstalk.com/the-long-and-short-of-it-pixie-cuts/)
+- [simple easy easter hairstyles](https://hair.allwomenstalk.com/look-hot-during-the-holidays-how-should-you-style-your-hair-this-easter/)
+- [anne hathaway waterfall bangs](https://hair.allwomenstalk.com/these-long-hair-inspos-will-make-you-love-your-locks/)
+- [change hairstyle](https://hair.allwomenstalk.com/virtual-makeover-websites-to-see-how-youd-look-with-different-haircuts/)
+- [cute hairstyles with bangs tumblr](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
+- [sweeping bangs long hair](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-so-hot-right-now/)
+- [lauren graham curly hair](https://hair.allwomenstalk.com/curly-hair-inspos-that-every-curly-girl-will-appreciate/)
+- [hiking hair styles](https://hair.allwomenstalk.com/got-to-have-hairstyles-for-girls-with-long-hair/)
 - [Everything about Fashion Accessories for a Womans ...](https://allwomenstalk.com/fashion-accessories-for-a-womans-wardrobe/)
 - [8 Marvelous Tips on Accessorizing a Pretty Little ...](https://fashion.allwomenstalk.com/marvelous-tips-on-accessorizing-a-pretty-little-black-dress/)
 

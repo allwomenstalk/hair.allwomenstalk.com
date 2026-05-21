@@ -146,16 +146,16 @@ Source: [Pinterest](https://www.pinterest.com/pin/147704062750371321/)
 
 ## Related Posts
 
+- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
 - [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
-- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
-- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
 - [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
+- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
+- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
+- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
 - [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
 - [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
 - [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
-- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
-- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
 

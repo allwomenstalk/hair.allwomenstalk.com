@@ -57,16 +57,16 @@ My skin and hair react very quickly to the sun so I rarely have to use anything 
 
 ## Related Posts
 
-- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
-- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
-- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
-- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
-- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
-- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
 - [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
 - [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
-- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
+- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
 - [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
+- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
+- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
+- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
+- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
+- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
+- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 - [8 All-Natural Summer Remedies for Your Hair ...](https://allwomenstalk.com/8-all-natural-summer-remedies-for-your-hair/)
 

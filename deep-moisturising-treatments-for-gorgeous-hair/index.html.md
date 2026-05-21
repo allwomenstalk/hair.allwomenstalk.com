@@ -56,16 +56,16 @@ There's no excuse for limp, frizzy, unmanageable hair when you get your hands on
 
 ## Related Posts
 
-- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
-- [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
-- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
-- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
-- [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
-- [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
-- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
-- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
-- [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
 - [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
+- [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
+- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
+- [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
+- [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
+- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
+- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
+- [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
+- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
+- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
 - [7 Night Treatments for Amazing Skin ...](https://skincare.allwomenstalk.com/night-treatments-for-amazing-skin/)
 - [7 Lip Conditioning Products to Try out ...](https://beauty.allwomenstalk.com/lip-conditioning-products-to-try-out/)
 

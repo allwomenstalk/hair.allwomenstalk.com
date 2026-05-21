@@ -120,16 +120,16 @@ Dreadlocks are so underrated! They are beautiful and so many styles can be done 
 
 ## Related Posts
 
-- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
-- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
-- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
-- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
-- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
-- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
 - [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
+- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
+- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
 - [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
+- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
+- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
+- [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
+- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
 - [Gorgeous Ways to Dress up Your Ponytail ...](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
 - [Fabulous Hairstyles for Girls Who Want to Look Gor...](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 

@@ -90,16 +90,16 @@ Beautiful, right?
 
 ## Related Posts
 
-- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
-- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
 - [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
-- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
 - [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
-- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
+- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
 - [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
 - [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
+- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
 - [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
+- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
+- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
 - [Im so Ready for Spring ...](https://allwomenstalk.com/im-so-ready-for-spring/)
 - [7 Bracelets to Wear This Spring ...](https://allwomenstalk.com/7-bracelets-to-wear-this-spring/)
 

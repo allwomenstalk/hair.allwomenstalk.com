@@ -56,16 +56,16 @@ Having just endured my own hated haircut, I completely sympathize with the strug
 
 ## Related Posts
 
-- [what kind of haircut should i get](https://hair.allwomenstalk.com/ways-to-figure-out-what-haircut-you-want/)
-- [how to tell if short hair suits you](https://hair.allwomenstalk.com/ways-to-work-out-if-short-hair-will-suit-you/)
+- [high ponytail fancy](https://hair.allwomenstalk.com/ways-to-spice-up-your-ponytail/)
+- [how to make a braid bun](https://hair.allwomenstalk.com/easy-steps-to-the-perfect-braid-bun/)
 - [riche le stylo smoky shadow spark](https://hair.allwomenstalk.com/tips-if-you-start-to-go-grey-early/)
 - [people with curly hair](https://hair.allwomenstalk.com/incredible-perks-of-having-curly-hair/)
-- [straight hair personality](https://hair.allwomenstalk.com/reasons-to-love-your-stick-straight-hair/)
-- [high ponytail fancy](https://hair.allwomenstalk.com/ways-to-spice-up-your-ponytail/)
-- [how to grow your hair in 2 weeks](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair-when-its-dry-and-damaged/)
 - [revel blow dryer](https://hair.allwomenstalk.com/ways-to-style-your-hair-with-a-blow-dryer/)
-- [how to make a braid bun](https://hair.allwomenstalk.com/easy-steps-to-the-perfect-braid-bun/)
+- [straight hair personality](https://hair.allwomenstalk.com/reasons-to-love-your-stick-straight-hair/)
+- [what kind of haircut should i get](https://hair.allwomenstalk.com/ways-to-figure-out-what-haircut-you-want/)
 - [growing side hair](https://hair.allwomenstalk.com/reasons-why-your-natural-hair-isnt-growing/)
+- [how to tell if short hair suits you](https://hair.allwomenstalk.com/ways-to-work-out-if-short-hair-will-suit-you/)
+- [how to grow your hair in 2 weeks](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair-when-its-dry-and-damaged/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [7 Lifesaving Styling Hacks for Curvy Girls Wanting...](https://fashion.allwomenstalk.com/styling-tips-for-curvy-girls/)
 

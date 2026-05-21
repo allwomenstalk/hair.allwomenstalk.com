@@ -42,16 +42,16 @@ How do you wear your hair for back to school? Which of these fun new styles are 
 
 ## Related Posts
 
+- [best girls videos](https://hair.allwomenstalk.com/best-bun-drop-videos-for-girls-who-are-obsessed-with-hair/)
+- [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
 - [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
 - [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
 - [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
 - [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
-- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
-- [heatless hairstyles for school](https://hair.allwomenstalk.com/polished-no-heat-hair-styles-for-girls-going-back-to-school/)
-- [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
-- [best girls videos](https://hair.allwomenstalk.com/best-bun-drop-videos-for-girls-who-are-obsessed-with-hair/)
-- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
 - [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
+- [heatless hairstyles for school](https://hair.allwomenstalk.com/polished-no-heat-hair-styles-for-girls-going-back-to-school/)
+- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
+- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

@@ -56,16 +56,16 @@ These’re 7 high end hair products and the dupes for them. What’re your favor
 
 ## Related Posts
 
-- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
-- [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
-- [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
-- [loreal paris color stylo primped previous](https://hair.allwomenstalk.com/skip-the-salon-and-use-these-hair-dye-products/)
-- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
+- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
 - [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
 - [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
+- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
+- [loreal paris color stylo primped previous](https://hair.allwomenstalk.com/skip-the-salon-and-use-these-hair-dye-products/)
+- [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
 - [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
-- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
-- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
+- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 of My Favorite Hairstyling Products ...](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
 

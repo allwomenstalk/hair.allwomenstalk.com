@@ -63,16 +63,16 @@ There are so many **pretty things for your hair from Mod Cloth**, it was hard to
 
 ## Related Posts
 
-- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
-- [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
-- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
-- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
-- [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
 - [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
-- [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
+- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
+- [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
 - [round shaped face](https://hair.allwomenstalk.com/lovely-hairstyles-ideal-for-round-shaped-faces/)
+- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
 - [hair color to look younger before and after](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
+- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
+- [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
+- [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
 - [5 Pretty Bridal Hair Accessories from BHLDN ...](https://wedding.allwomenstalk.com/5-pretty-bridal-hair-accessories-from-bhldn/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 

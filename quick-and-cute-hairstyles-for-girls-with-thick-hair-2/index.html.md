@@ -62,16 +62,16 @@ Do you have thick hair? What's your go to style?
 
 ## Related Posts
 
-- [shine line hair color](https://hair.allwomenstalk.com/look-here-to-see-the-newest-viral-hair-trend-taking-over-the-web/)
-- [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
-- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
-- [unicorn braid tutorial](https://hair.allwomenstalk.com/hair-inspirations-for-girls-ready-to-mix-up-their-style/)
-- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
 - [lucky daye hairstyle](https://hair.allwomenstalk.com/super-simple-hairstyles-for-girls-with-super-long-hair/)
-- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
-- [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
-- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
 - [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
+- [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
+- [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
+- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
+- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
+- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
+- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
+- [shine line hair color](https://hair.allwomenstalk.com/look-here-to-see-the-newest-viral-hair-trend-taking-over-the-web/)
+- [unicorn braid tutorial](https://hair.allwomenstalk.com/hair-inspirations-for-girls-ready-to-mix-up-their-style/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

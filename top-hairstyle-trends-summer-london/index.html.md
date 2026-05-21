@@ -42,16 +42,16 @@ Eye length fringe provides change without having a major hair cut! It’s the id
 
 ## Related Posts
 
-- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
-- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
 - [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
-- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
-- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
-- [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
-- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
 - [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
+- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
+- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
+- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
+- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
+- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 - [6 Hottest Hairstyle Trends for 2010 ...](https://allwomenstalk.com/hot-new-hair-style-trends-for/)
 

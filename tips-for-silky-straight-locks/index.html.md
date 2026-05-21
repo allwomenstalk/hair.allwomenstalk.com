@@ -48,15 +48,15 @@ Top Photo Credit: [Shandi-lee](https://www.flickr.com/photos/shandilee/570502400
 
 ## Related Posts
 
-- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
+- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
+- [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
+- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
+- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
 - [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
 - [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
-- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
-- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
-- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
-- [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
+- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
-- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [8 Tips for Curling Your Hair ...](https://hair.allwomenstalk.com/8-tips-for-curling-your-hair/)
 - [7 Ways to Give Body to Straight Hair ...](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)

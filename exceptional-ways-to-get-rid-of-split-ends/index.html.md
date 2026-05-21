@@ -60,16 +60,16 @@ It doesn't get any easier than applying a serum, creme or mist to your ends and 
 
 ## Related Posts
 
-- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
-- [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
 - [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
-- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
-- [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
-- [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
+- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
 - [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
+- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
+- [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
+- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
 - [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
-- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
+- [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
+- [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Easily Avoidable Ways You Could Get Split Ends ....](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
 

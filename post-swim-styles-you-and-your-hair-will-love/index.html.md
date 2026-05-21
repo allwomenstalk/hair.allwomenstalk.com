@@ -42,16 +42,16 @@ None of these styles will take long to do, and will help keep your hair looking 
 
 ## Related Posts
 
-- [Late Summer Braid Tutorials for Natural Hair ...](https://hair.allwomenstalk.com/summer-braid-tutorials-for-natural-hair/)
-- [Fall Hair Ideas from Celeb Stylists ...](https://hair.allwomenstalk.com/fall-hair-ideas-from-celeb-stylists/)
-- [what accessories are trending right now](https://hair.allwomenstalk.com/hair-accessories-that-work-well-in-autumn/)
-- [2016 winter hair trends](https://hair.allwomenstalk.com/the-best-fall-hair-colors-on-instagram/)
 - [7 Trendy Pieces of Hair Jewelry to Try out ...](https://jewelry.allwomenstalk.com/trendy-pieces-of-hair-jewelry-to-try-out/)
-- [How to Create the Perfect Braid for Girls Wanting ...](https://hair.allwomenstalk.com/how-to-create-the-perfect-braid/)
+- [2016 winter hair trends](https://hair.allwomenstalk.com/the-best-fall-hair-colors-on-instagram/)
+- [Fall Hair Ideas from Celeb Stylists ...](https://hair.allwomenstalk.com/fall-hair-ideas-from-celeb-stylists/)
+- [Late Summer Braid Tutorials for Natural Hair ...](https://hair.allwomenstalk.com/summer-braid-tutorials-for-natural-hair/)
 - [Hottest Style Hacks of the Century All Girls Need ...](https://fashion.allwomenstalk.com/the-hottest-style-hacks-of-the-century/)
-- [7 School Hairstyles Inspired by Celebs ...](https://hair.allwomenstalk.com/school-hairstyles-inspired-by-celebs/)
+- [what accessories are trending right now](https://hair.allwomenstalk.com/hair-accessories-that-work-well-in-autumn/)
+- [How to Create the Perfect Braid for Girls Wanting ...](https://hair.allwomenstalk.com/how-to-create-the-perfect-braid/)
 - [7 Chignon Hairstyles Fit for Fancy Parties ...](https://hair.allwomenstalk.com/chignon-hairstyles-fit-for-fancy-parties/)
 - [bobby pin hacks](https://hair.allwomenstalk.com/bobby-pin-hacks-for-styling-your-hair/)
+- [7 School Hairstyles Inspired by Celebs ...](https://hair.allwomenstalk.com/school-hairstyles-inspired-by-celebs/)
 - [Your Perfect Swimming Suit ...](https://allwomenstalk.com/your-perfect-swimming-suit/)
 - [7 Swimwear Trends for Beach Babes Everywhere ...](https://swimwear.allwomenstalk.com/swimwear-trends-for-beach-babes-everywhere/)
 

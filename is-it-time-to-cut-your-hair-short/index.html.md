@@ -42,16 +42,16 @@ If you're not quite certain about cutting your hair, then try playing with an ap
 
 ## Related Posts
 
-- [lady gaga heart engagement ring](https://jewelry.allwomenstalk.com/which-of-these-celebrity-engagement-rings-you-would-say-yes-to/)
-- [empower writing program](https://inspiration.allwomenstalk.com/how-can-writing-empower-you/)
 - [different ways to cuddle](https://love.allwomenstalk.com/what-does-your-cuddling-position-say-about-your-relationship/)
-- [yuccie style](https://lifestyle.allwomenstalk.com/are-you-a-yuccie-heres-how-to-tell/)
-- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
+- [newlywed show questions](https://love.allwomenstalk.com/can-you-and-your-bf-answer-these-newlywed-show-questions/)
 - [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
 - [capsule wardrobe books](https://fashion.allwomenstalk.com/what-on-earth-is-a-capsule-wardrobe-and-why-do-you-need-to-try-it-asap/)
-- [major emotions](https://lifestyle.allwomenstalk.com/what-are-the-major-emotions/)
-- [newlywed show questions](https://love.allwomenstalk.com/can-you-and-your-bf-answer-these-newlywed-show-questions/)
+- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
 - [what type of reader am i](https://books.allwomenstalk.com/what-type-of-reader-are-you/)
+- [yuccie style](https://lifestyle.allwomenstalk.com/are-you-a-yuccie-heres-how-to-tell/)
+- [lady gaga heart engagement ring](https://jewelry.allwomenstalk.com/which-of-these-celebrity-engagement-rings-you-would-say-yes-to/)
+- [major emotions](https://lifestyle.allwomenstalk.com/what-are-the-major-emotions/)
+- [empower writing program](https://inspiration.allwomenstalk.com/how-can-writing-empower-you/)
 - [Are You Ready for Your Close-up](https://allwomenstalk.com/are-you-ready-for-your-close-up/)
 - [Are You Ready for Your Close-up](https://allwomenstalk.com/are-you-ready-for-your-close-up-2/)
 

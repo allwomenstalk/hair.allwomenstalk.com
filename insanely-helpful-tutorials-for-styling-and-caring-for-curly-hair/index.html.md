@@ -70,16 +70,16 @@ You can learn how to do just about anything on YouTube these days, and one of my
 
 ## Related Posts
 
-- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
-- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
-- [what size curling iron do most salons use](https://hair.allwomenstalk.com/secrets-to-long-lasting-curls/)
 - [how to get softer eyebrows](https://beauty.allwomenstalk.com/easy-ways-to-care-for-your-eyebrows/)
-- [why does my hair curl in the rain](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
-- [no more bad hair days](https://hair.allwomenstalk.com/no-more-hairy-situations-tips-to-avoid-bad-hair-days/)
-- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
 - [what to do when having a bad hair day](https://hair.allwomenstalk.com/ways-to-handle-a-bad-hair-day/)
+- [why does my hair curl in the rain](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
+- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
+- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
 - [dark pink hair on black girl](https://hair.allwomenstalk.com/reasons-to-become-a-natural-hair-henna-head/)
 - [protein treatment before or after relaxer](https://hair.allwomenstalk.com/tips-to-care-for-relaxed-hair/)
+- [no more bad hair days](https://hair.allwomenstalk.com/no-more-hairy-situations-tips-to-avoid-bad-hair-days/)
+- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
+- [what size curling iron do most salons use](https://hair.allwomenstalk.com/secrets-to-long-lasting-curls/)
 - [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

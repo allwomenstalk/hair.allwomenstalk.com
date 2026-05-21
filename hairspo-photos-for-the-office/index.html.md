@@ -190,15 +190,15 @@ Via [How to Get the Best ...](https://www.southernliving.com/home/all-you-southe
 
 ## Related Posts
 
-- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
 - [hair romance](https://hair.allwomenstalk.com/romantic-hairdos-to-wow-your-date-on-valentines-day-and-beyond/)
+- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
 - [volume long hair cut](https://hair.allwomenstalk.com/hairstyles-for-thin-hair-to-add-volume-and-texture/)
-- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
-- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
-- [loreal color stylo neon](https://hair.allwomenstalk.com/pastel-and-neon-colored-hair-dyes-to-try-while-youre-young/)
-- [super sleek hair](https://hair.allwomenstalk.com/hacks-for-super-straight-hair-style/)
 - [the gibson tuck](https://hair.allwomenstalk.com/sexy-old-fashioned-hairstyles-to-bring-back/)
+- [super sleek hair](https://hair.allwomenstalk.com/hacks-for-super-straight-hair-style/)
+- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
 - [hide fringe](https://hair.allwomenstalk.com/signs-bangs-will-look-amazing-on-you/)
+- [loreal color stylo neon](https://hair.allwomenstalk.com/pastel-and-neon-colored-hair-dyes-to-try-while-youre-young/)
+- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
 - [hair styles for short hair wedding](https://hair.allwomenstalk.com/beautiful-wedding-styles-for-short-natural-hair-you-will-love/)
 - [5 Classy Boudoir Photos to Surprise Your Groom wit...](https://wedding.allwomenstalk.com/5-classy-boudoir-photos-to-surprise-your-groom-with/)
 - [56 Photos of 18th Annual ESPY Awards ...](https://celebs.allwomenstalk.com/18th-annual-espy-awards/)

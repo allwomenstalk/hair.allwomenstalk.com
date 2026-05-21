@@ -66,16 +66,16 @@ My hair is too short for ponytails right now, which makes me sad. Literally the 
 
 ## Related Posts
 
-- [hair salon blog](https://hair.allwomenstalk.com/brilliant-hairstyle-blogs/)
-- [concave bob curly hair](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
-- [ponytail wind](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
 - [short haircuts 2011](https://hair.allwomenstalk.com/gorgeously-stylish-celebrity-hairstyles-in-you-should-try/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
-- [7 Sweet Hairclips under 10 ...](https://hair.allwomenstalk.com/7-sweet-hairclips-under-10/)
 - [hairstyles for my face](https://hair.allwomenstalk.com/best-hairstyles-for-7-face-shapes/)
+- [7 Sweet Hairclips under 10 ...](https://hair.allwomenstalk.com/7-sweet-hairclips-under-10/)
+- [ponytail wind](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
+- [concave bob curly hair](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
 - [how to wear your hair up](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [curly hairstyles to try](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
+- [hair salon blog](https://hair.allwomenstalk.com/brilliant-hairstyle-blogs/)
 - [8 Rules for Hair Accessories ...](https://hair.allwomenstalk.com/8-rules-for-hair-accessories/)
 - [8 Trendy Peacock Hair Accessories ...](https://hair.allwomenstalk.com/trendy-peacock-hair-accessories/)
 

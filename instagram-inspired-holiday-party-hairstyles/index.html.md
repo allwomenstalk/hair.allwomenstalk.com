@@ -52,16 +52,16 @@ Whether you're going to an ugly sweater party, a family get together or a swanky
 
 ## Related Posts
 
-- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
 - [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
-- [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
-- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
-- [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
-- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
-- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
-- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
-- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
 - [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
+- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
+- [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
+- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
+- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
+- [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
+- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
+- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
 - [7 Tips for Glamorous Holiday Makeup That Are Perfe...](https://makeup.allwomenstalk.com/tips-for-glamorous-holiday-makeup-that-are-perfect-for-any-party/)
 - [Follow These Tips for the Perfect Holiday Updo ...](https://hair.allwomenstalk.com/tips-to-follow-for-the-perfect-holiday-updo/)
 

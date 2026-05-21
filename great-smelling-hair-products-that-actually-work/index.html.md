@@ -42,16 +42,16 @@ Great smelling hair products that actually work will make your hair smell and lo
 
 ## Related Posts
 
-- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
-- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
-- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
 - [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
-- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
 - [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
-- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
 - [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
+- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
+- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
+- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
+- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [Top 7 Oily Hair Products ...](https://hair.allwomenstalk.com/top-oily-hair-products/)
 

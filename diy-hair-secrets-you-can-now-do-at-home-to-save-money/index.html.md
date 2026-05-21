@@ -80,16 +80,16 @@ Whether it's a decorative barrette or comb or even just a fresh flower, it'll lo
 
 ## Related Posts
 
-- [hair growth diy](https://hair.allwomenstalk.com/recipes-for-homemade-hair-growth-treatments-2/)
-- [heat protectant for hair diy](https://hair.allwomenstalk.com/video-recipes-for-diy-heat-protectants-to-save-your-precious-hair/)
-- [paris la maximalist eyeshadow blinged and](https://hair.allwomenstalk.com/homemade-recipes-to-prevent-hair-loss/)
 - [herbal hair dye without chemicals](https://hair.allwomenstalk.com/recipes-for-homemade-all-natural-hair-dyes-for-color-without-chemicals/)
+- [paris la maximalist eyeshadow blinged and](https://hair.allwomenstalk.com/homemade-recipes-to-prevent-hair-loss/)
+- [hair growth diy](https://hair.allwomenstalk.com/recipes-for-homemade-hair-growth-treatments-2/)
+- [eliza wig](https://hair.allwomenstalk.com/on-point-hair-conditioners-to-try-on-your-own/)
+- [heat protectant for hair diy](https://hair.allwomenstalk.com/video-recipes-for-diy-heat-protectants-to-save-your-precious-hair/)
 - [fantastic hair](https://hair.allwomenstalk.com/fantastic-all-natural-homemade-shampoos-to-kick-chemicals-to-the-curb/)
 - [diy hair mask for dry curly hair](https://hair.allwomenstalk.com/diy-hair-mask-videos-for-girls-battling-dry-hair/)
 - [hair dye recipe](https://hair.allwomenstalk.com/brilliant-recipes-to-make-your-own-natural-dye/)
 - [how can you make your hair grow faster naturally](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster-2/)
 - [bunny unicorn hair dye](https://hair.allwomenstalk.com/mind-blowing-dyes-for-your-most-surreal-unicorn-hair-ever/)
-- [eliza wig](https://hair.allwomenstalk.com/on-point-hair-conditioners-to-try-on-your-own/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [7 Amazingly Easy Blow Drying Tips That Could save ...](https://hair.allwomenstalk.com/amazingly-easy-blow-drying-tips-that-could-save-your-lovely-tresses/)
 

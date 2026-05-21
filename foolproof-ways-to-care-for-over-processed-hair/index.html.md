@@ -46,16 +46,16 @@ It's incredibly easy to over-process your hair – almost effortless, in fact. I
 
 ## Related Posts
 
-- [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
+- [styling tips for short hair](https://hair.allwomenstalk.com/tips-for-managing-short-hair/)
+- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
 - [loreal paris color le stylo silver couture](https://hair.allwomenstalk.com/cons-of-short-hair/)
+- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
+- [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
 - [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
 - [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
-- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
-- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [styling tips for short hair](https://hair.allwomenstalk.com/tips-for-managing-short-hair/)
-- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
 - [girls gone styled](https://hair.allwomenstalk.com/reasons-to-go-to-a-salon-to-get-your-hair-styled/)
-- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
+- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
+- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
 - [Top 8 Hair Care Mistakes to Avoid ...](https://hair.allwomenstalk.com/top-8-hair-care-mistakes-to-avoid/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 

@@ -56,16 +56,16 @@ What are some hairstyles you like to rock when you get hot?
 
 ## Related Posts
 
-- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
-- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
-- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
-- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
 - [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
+- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
+- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
 - [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
+- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
 - [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [The 20 Hottest Hair Trends for Trendy Girls ...](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
 - [Fabulous Hairstyles for Girls Who Want to Look Gor...](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 

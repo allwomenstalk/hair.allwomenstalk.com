@@ -114,16 +114,16 @@ Okay, so this one is true and untrue. You eventually will have to cut off all of
 
 ## Related Posts
 
-- [be careful with heart](https://inspiration.allwomenstalk.com/be-careful-with-your-heart-by-erin-hanson/)
 - [different types of areola](https://beauty.allwomenstalk.com/whats-normal-anyway-different-types-of-nipples/)
-- [diy auto mechanic](https://lifestyle.allwomenstalk.com/vehicle-repairs-diy-or-mechanic/)
-- [hard fork bitcoin cash](https://allwomenstalk.com/hard-forks-of-bitcoin-cash-and-bitcoin-cash-nodes/)
-- [declotte](https://health.allwomenstalk.com/stop-worrying-things-about-your-breasts-that-are-completely-normal/)
-- [tattoo safety](https://beauty.allwomenstalk.com/what-you-should-know-before-tattoo-removal/)
-- [is lengua healthy](https://health.allwomenstalk.com/what-can-your-tongue-tell-you-about-your-health/)
-- [juicing 101 recipes](https://diet.allwomenstalk.com/juicing-101/)
 - [common misconceptions about gmos](https://food.allwomenstalk.com/how-square-watermelons-get-their-shape-and-other-gmo-misconceptions/)
+- [be careful with heart](https://inspiration.allwomenstalk.com/be-careful-with-your-heart-by-erin-hanson/)
+- [tattoo safety](https://beauty.allwomenstalk.com/what-you-should-know-before-tattoo-removal/)
 - [cellulite when sitting cross legged](https://beauty.allwomenstalk.com/if-you-dont-want-cellulite-this-is-what-you-should-know/)
+- [diy auto mechanic](https://lifestyle.allwomenstalk.com/vehicle-repairs-diy-or-mechanic/)
+- [is lengua healthy](https://health.allwomenstalk.com/what-can-your-tongue-tell-you-about-your-health/)
+- [hard fork bitcoin cash](https://allwomenstalk.com/hard-forks-of-bitcoin-cash-and-bitcoin-cash-nodes/)
+- [juicing 101 recipes](https://diet.allwomenstalk.com/juicing-101/)
+- [declotte](https://health.allwomenstalk.com/stop-worrying-things-about-your-breasts-that-are-completely-normal/)
 - [7 Steps to Pulling off the Natural Look ...](https://makeup.allwomenstalk.com/7-steps-to-pulling-off-the-natural-look/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 

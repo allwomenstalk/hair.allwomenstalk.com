@@ -42,16 +42,16 @@ Whatever type of hair that you have, these tricks are sure to work. After dying 
 
 ## Related Posts
 
-- [Whats Your Hair Color Say about You ...](https://hair.allwomenstalk.com/whats-your-hair-color-say-about-you/)
-- [7 Reasons to Break up with Your Hairstylist ...](https://hair.allwomenstalk.com/reasons-to-break-up-with-your-hairstylist/)
-- [faux side braid](https://hair.allwomenstalk.com/easy-ways-to-step-up-your-braid-game/)
-- [7 Tips on Getting Rid of Greasy Hair ...](https://hair.allwomenstalk.com/tips-on-getting-rid-of-greasy-hair/)
-- [home hairstyle](https://hair.allwomenstalk.com/steps-to-recreating-your-salon-hairstyle-at-home/)
-- [7 Ways to Treat Thinning Hair ...](https://hair.allwomenstalk.com/ways-to-treat-thinning-hair/)
 - [Hair 101: Easy Tips to Help You Have Healthy Hair ...](https://hair.allwomenstalk.com/hair-101-easy-tips-to-help-you-have-healthy-hair/)
 - [7 Protective Styles and How to Care for Them ...](https://hair.allwomenstalk.com/protective-styles-and-how-to-care-for-them/)
-- [How Often Should You Be Washing Your Hair ...](https://hair.allwomenstalk.com/how-often-should-you-be-washing-your-hair/)
 - [7 Tips for Dyeing Your Hair Blonde ...](https://hair.allwomenstalk.com/tips-for-dyeing-your-hair-blonde/)
+- [7 Ways to Treat Thinning Hair ...](https://hair.allwomenstalk.com/ways-to-treat-thinning-hair/)
+- [faux side braid](https://hair.allwomenstalk.com/easy-ways-to-step-up-your-braid-game/)
+- [How Often Should You Be Washing Your Hair ...](https://hair.allwomenstalk.com/how-often-should-you-be-washing-your-hair/)
+- [home hairstyle](https://hair.allwomenstalk.com/steps-to-recreating-your-salon-hairstyle-at-home/)
+- [Whats Your Hair Color Say about You ...](https://hair.allwomenstalk.com/whats-your-hair-color-say-about-you/)
+- [7 Reasons to Break up with Your Hairstylist ...](https://hair.allwomenstalk.com/reasons-to-break-up-with-your-hairstylist/)
+- [7 Tips on Getting Rid of Greasy Hair ...](https://hair.allwomenstalk.com/tips-on-getting-rid-of-greasy-hair/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
 

@@ -56,16 +56,16 @@ Which one is your favorite?
 
 ## Related Posts
 
-- [hairstyles](https://hair.allwomenstalk.com/inspirational-hair-styles-for-girls-with-long-hair/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hairstyles-that-are-perfect-for-low-maintenance-girls/)
-- [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
-- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
 - [cute hairstyles for gym class](https://hair.allwomenstalk.com/hairstyles-for-athletic-women-to-wear-to-keep-it-casual/)
 - [girls silver hair](https://hair.allwomenstalk.com/grey-hair-inspo-for-girls-who-want-to-try-something-different/)
-- [girl with a bun drawing](https://hair.allwomenstalk.com/awesome-looks-for-girls-who-want-to-try-a-double-bun/)
-- [blonde to rose gold hair](https://hair.allwomenstalk.com/rose-gold-hair-that-would-look-hot-on-any-blond/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hairstyles-that-are-perfect-for-low-maintenance-girls/)
 - [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
 - [cute 17 girls](https://hair.allwomenstalk.com/super-cute-hairstyles-for-girls-who-are-growing-out-their-bangs/)
+- [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
+- [girl with a bun drawing](https://hair.allwomenstalk.com/awesome-looks-for-girls-who-want-to-try-a-double-bun/)
+- [blonde to rose gold hair](https://hair.allwomenstalk.com/rose-gold-hair-that-would-look-hot-on-any-blond/)
+- [hairstyles](https://hair.allwomenstalk.com/inspirational-hair-styles-for-girls-with-long-hair/)
+- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
 - [7 Tumblr Inspired Hairstyle Tutorials Youll Adore ...](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
 - [Rainbow Braids That Will Make You Want to Dye Your...](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
 

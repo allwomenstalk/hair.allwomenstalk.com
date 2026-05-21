@@ -77,16 +77,16 @@ Try an egg wash every now and again, using the protein to strengthen cuticles
 
 ## Related Posts
 
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
-- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
-- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
-- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
+- [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
 - [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
+- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
+- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
 - [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
 - [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
-- [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
-- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
+- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
 - [Why Does Hair Turn Gray](https://allwomenstalk.com/why-does-hair-turn-gray/)
 - [What Does Your Car Say about You](https://allwomenstalk.com/what-does-your-car-say-about-you/)
 

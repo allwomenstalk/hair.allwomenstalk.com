@@ -100,16 +100,16 @@ I'm not gonna lie: this is my running hairstyle every. day.
 
 ## Related Posts
 
-- [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
-- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
-- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
-- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
-- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
-- [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
-- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
-- [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
-- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
 - [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
+- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
+- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
+- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
+- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
+- [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
+- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
+- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
+- [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Innovative Things to Try with Your Hair ...](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
 

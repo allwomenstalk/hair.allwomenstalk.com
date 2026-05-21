@@ -42,16 +42,16 @@ I love all of these braids… I can’t wait til my hair’s long enough to try 
 
 ## Related Posts
 
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
+- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
 - [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
 - [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
-- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
-- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
-- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
-- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
 - [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
 - [7 Tips for Creating a Fishtail Braid ...](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

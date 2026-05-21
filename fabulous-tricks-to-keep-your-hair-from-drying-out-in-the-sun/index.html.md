@@ -42,16 +42,16 @@ If you spend a good bit of time outdoors, you know protecting your hair isn’t 
 
 ## Related Posts
 
-- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
+- [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
+- [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
 - [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
+- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
+- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
+- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
+- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
 - [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
 - [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
 - [curly hair boy kids](https://parenting.allwomenstalk.com/tips-for-caring-for-curly-haired-kids/)
-- [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
-- [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
-- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
-- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
-- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
 - [7 Hair-Care Hints for Humid Weather ...](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 

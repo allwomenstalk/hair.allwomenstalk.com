@@ -242,16 +242,16 @@ Changing up your hair is the perfect way to start fresh without any major work. 
 
 ## Related Posts
 
-- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
 - [lisa purple hair](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
 - [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
-- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
 - [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
+- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
+- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
 - [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
 - [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
-- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
 - [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
+- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
+- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
 - [9 Tips for Re-Inventing Your Personal Style in 201...](https://fashion.allwomenstalk.com/tips-for-re-inventing-your-personal-style-in/)
 - [9 New Fashion Trends to Try ...](https://fashion.allwomenstalk.com/new-fashion-trends-to-try/)
 

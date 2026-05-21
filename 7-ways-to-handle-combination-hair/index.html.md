@@ -44,16 +44,16 @@ Top Photo Credit: [_Tophee_](https://www.flickr.com/photos/64667396@N00/16693202
 
 ## Related Posts
 
-- [color my quest](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
-- [bad hair good groove 5](https://hair.allwomenstalk.com/emergency-hair-fixes/)
-- [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
-- [how to protect hair in humid weather](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
-- [super sensitive scalp](https://hair.allwomenstalk.com/tips-for-dealing-with-a-very-sensitive-scalp/)
-- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
-- [how to get the shiniest hair](https://hair.allwomenstalk.com/ways-to-get-shiny-hair-fast/)
 - [nice tips](https://hair.allwomenstalk.com/tips-for-being-nice-to-your-hair/)
+- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
+- [how to protect hair in humid weather](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
+- [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
+- [super sensitive scalp](https://hair.allwomenstalk.com/tips-for-dealing-with-a-very-sensitive-scalp/)
 - [9 Tips for More Hair Volume ...](https://hair.allwomenstalk.com/tips-for-more-hair-volume/)
+- [bad hair good groove 5](https://hair.allwomenstalk.com/emergency-hair-fixes/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
+- [color my quest](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
+- [how to get the shiniest hair](https://hair.allwomenstalk.com/ways-to-get-shiny-hair-fast/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

@@ -44,16 +44,16 @@ Top Image Source:[xaxor.com](https://goo.gl/8W2tiJ)
 
 ## Related Posts
 
-- [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
-- [tips for smooth and silky hair](https://hair.allwomenstalk.com/fantastic-tips-for-silky-smooth-hair/)
-- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
-- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
-- [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
-- [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
 - [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
 - [hair crunching](https://hair.allwomenstalk.com/ways-to-tell-your-hair-has-been-damaged/)
+- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
+- [tips for smooth and silky hair](https://hair.allwomenstalk.com/fantastic-tips-for-silky-smooth-hair/)
+- [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
 - [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
+- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
+- [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
 - [8 Steps to Beautiful Bed Head Hair ...](https://hair.allwomenstalk.com/8-steps-to-beautiful-bed-head-hair/)
 - [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
 

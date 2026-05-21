@@ -92,16 +92,16 @@ These are some of my favorite hair infographics. Which is your favorite?
 
 ## Related Posts
 
+- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
+- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
 - [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
-- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
-- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
 - [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
 - [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
-- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
-- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
-- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
-- [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
 - [pearl hairstyles](https://hair.allwomenstalk.com/adorable-little-girl-hairstyles-your-daughter-will-love/)
+- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
+- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
+- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
+- [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

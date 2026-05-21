@@ -42,16 +42,16 @@ Which one are you going to watch first? Do you want colored mermaid hair or a na
 
 ## Related Posts
 
-- [long textured haircut](https://hair.allwomenstalk.com/remarkable-fall-haircuts-for-girls-needing-a-change-with-the-seasons/)
+- [long plait hairstyles](https://hair.allwomenstalk.com/175-fabulous-braids-for-long-haired-ladies-who-just-cant-get-enough-inspo/)
 - [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
-- [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
-- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
 - [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
 - [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
 - [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
-- [long plait hairstyles](https://hair.allwomenstalk.com/175-fabulous-braids-for-long-haired-ladies-who-just-cant-get-enough-inspo/)
+- [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
+- [long textured haircut](https://hair.allwomenstalk.com/remarkable-fall-haircuts-for-girls-needing-a-change-with-the-seasons/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
 - [7 Gorgeous Hair Tutorials ...](https://hair.allwomenstalk.com/gorgeous-hair-tutorials/)
 - [7 Tumblr Inspired Hairstyle Tutorials Youll Adore ...](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
 

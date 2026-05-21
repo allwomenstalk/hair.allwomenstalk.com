@@ -178,15 +178,15 @@ Source: [Santa Barbara - Barefoot Blonde](https://amberfillerup.com/santa-barbar
 
 ## Related Posts
 
-- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
-- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
-- [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
-- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
-- [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
 - [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
+- [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
+- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
+- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
+- [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
 - [updos for shoulder length hair easy](https://hair.allwomenstalk.com/summer-hair-keep-your-cool-with-these-updos/)
 - [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
-- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
+- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
+- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
 - [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
 - [8 Beautiful Boho Hairstyles ...](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)

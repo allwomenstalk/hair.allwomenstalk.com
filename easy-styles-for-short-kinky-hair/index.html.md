@@ -50,16 +50,16 @@ Natural hair is beautiful, no matter the texture. It is always wonderful to see 
 
 ## Related Posts
 
-- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
-- [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
-- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
 - [nose hair braids](https://hair.allwomenstalk.com/chic-boho-hair-styles-your-hair-wants-now/)
-- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
-- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
-- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
 - [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
+- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
+- [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
+- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
 - [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
 - [updos for shoulder length hair easy](https://hair.allwomenstalk.com/summer-hair-keep-your-cool-with-these-updos/)
+- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
+- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
+- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Quick and Easy Hairstyles ...](https://allwomenstalk.com/7-quick-and-easy-hairstyles/)
 

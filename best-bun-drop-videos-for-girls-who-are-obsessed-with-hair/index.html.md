@@ -40,16 +40,16 @@ Move aside, rainbow colored food and avocado toast. The latest trend to hit Inst
 
 ## Related Posts
 
-- [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
-- [heatless hairstyles for school](https://hair.allwomenstalk.com/polished-no-heat-hair-styles-for-girls-going-back-to-school/)
-- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
-- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
 - [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
-- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
-- [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
-- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
 - [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
+- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
+- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
+- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
+- [heatless hairstyles for school](https://hair.allwomenstalk.com/polished-no-heat-hair-styles-for-girls-going-back-to-school/)
+- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
+- [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
+- [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
 - [7 Gorgeous Hair Tutorials ...](https://hair.allwomenstalk.com/gorgeous-hair-tutorials/)
 - [12 Fab  Easy Bun Hairstyles ...](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
 

@@ -42,16 +42,16 @@ I think I’ve shown you can leave the expensive product on the shelf and still 
 
 ## Related Posts
 
-- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
-- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
 - [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
-- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
+- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
+- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
 - [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
 - [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
 - [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
-- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
-- [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
 - [loreal paris color stylo primped previous](https://hair.allwomenstalk.com/skip-the-salon-and-use-these-hair-dye-products/)
+- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
 - [8 Incredibly Amazing Ways to Get Lovely Shiny Hair...](https://hair.allwomenstalk.com/incredibly-amazing-ways-to-get-lovely-shiny-hair/)
 - [7 Gorgeously Stunning Hair Styles to Look Younger ...](https://hair.allwomenstalk.com/gorgeously-stunning-hair-styles-to-look-younger/)
 

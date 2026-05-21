@@ -69,16 +69,16 @@ Styling curly hair is always an adventure. Having a go-to style is incredibly he
 
 ## Related Posts
 
-- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
-- [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
-- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
-- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
-- [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
-- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
-- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
-- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
 - [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
 - [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
+- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
+- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
+- [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
+- [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
+- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
+- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
+- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
+- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

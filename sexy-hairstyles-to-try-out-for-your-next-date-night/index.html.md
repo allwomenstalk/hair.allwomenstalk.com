@@ -56,16 +56,16 @@ These are 7 sexy hairstyles you can wear for date night. What are some of your b
 
 ## Related Posts
 
-- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
-- [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
-- [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
 - [pearl hairstyles](https://hair.allwomenstalk.com/adorable-little-girl-hairstyles-your-daughter-will-love/)
-- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
-- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
-- [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
 - [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
+- [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
+- [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
+- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
+- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
+- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
 - [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
 - [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
+- [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
 - [4 Sexy Hairstyles to Create on Your Wedding Day .....](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

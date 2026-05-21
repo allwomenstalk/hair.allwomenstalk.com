@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/17294851)
 
 ## Related Posts
 
-- [summer wedding updos](https://wedding.allwomenstalk.com/gorgeous-hairstyles-for-your-summer-wedding/)
-- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
-- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
-- [hot hair updos](https://hair.allwomenstalk.com/hot-hair-styles-to-try-in/)
-- [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
-- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
 - [hairstyle bob](https://hair.allwomenstalk.com/iconic-bob-hairstyles/)
+- [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
+- [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
+- [hot hair updos](https://hair.allwomenstalk.com/hot-hair-styles-to-try-in/)
+- [summer wedding updos](https://wedding.allwomenstalk.com/gorgeous-hairstyles-for-your-summer-wedding/)
 - [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
 - [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
-- [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
+- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
+- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
+- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

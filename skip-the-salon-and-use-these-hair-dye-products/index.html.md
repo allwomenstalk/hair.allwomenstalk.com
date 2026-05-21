@@ -44,16 +44,16 @@ What color is your hair currently?
 
 ## Related Posts
 
-- [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
+- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
+- [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
+- [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
 - [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
+- [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
+- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
+- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
 - [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
 - [biolage original scent](https://hair.allwomenstalk.com/shampoo-and-conditioner-duos-thatll-make-you-smell-delicious/)
-- [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
-- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
-- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
-- [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
-- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
-- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
 - [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 

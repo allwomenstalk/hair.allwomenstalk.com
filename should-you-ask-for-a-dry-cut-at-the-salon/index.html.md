@@ -42,16 +42,16 @@ I’d love to hear from anyone who has had a dry cut. My hair is two different a
 
 ## Related Posts
 
-- [messy hair gif](https://hair.allwomenstalk.com/the-struggles-of-long-hair-can-you-relate/)
-- [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
-- [intitle:how to thinning hair](https://hair.allwomenstalk.com/heres-how-to-avoid-hat-hair/)
-- [how to style transitioning hair after washing](https://hair.allwomenstalk.com/how-to-wash-and-detangle-your-fragile-transitioning-hair/)
-- [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
-- [how to stop bangs from parting in the middle](https://hair.allwomenstalk.com/how-to-grow-your-bangs-out-in-a-month/)
-- [how to add string to hair](https://hair.allwomenstalk.com/non-dye-ways-to-add-color-to-your-hair/)
-- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
 - [how to fix dry hair after dying](https://hair.allwomenstalk.com/heres-how-to-keep-your-dyed-hair-hydrated/)
+- [how to add string to hair](https://hair.allwomenstalk.com/non-dye-ways-to-add-color-to-your-hair/)
+- [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
+- [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
+- [intitle:how to thinning hair](https://hair.allwomenstalk.com/heres-how-to-avoid-hat-hair/)
+- [messy hair gif](https://hair.allwomenstalk.com/the-struggles-of-long-hair-can-you-relate/)
+- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
 - [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
+- [how to stop bangs from parting in the middle](https://hair.allwomenstalk.com/how-to-grow-your-bangs-out-in-a-month/)
+- [how to style transitioning hair after washing](https://hair.allwomenstalk.com/how-to-wash-and-detangle-your-fragile-transitioning-hair/)
 - [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
 - [Summer Hair Care Tips for Dry Hair ...](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
 

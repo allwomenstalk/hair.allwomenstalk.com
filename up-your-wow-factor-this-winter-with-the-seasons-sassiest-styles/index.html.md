@@ -56,16 +56,16 @@ h/t: [elle.com](https://www.elle.com/beauty/hair/g62/winter-hairstyles/)
 
 ## Related Posts
 
-- [cozy winter scarf](https://fashion.allwomenstalk.com/cosy-scarves-for-winter/)
-- [cute color combos](https://fashion.allwomenstalk.com/the-cutest-color-combos-to-wear-in-winter/)
-- [my favorite sweater](https://inspiration.allwomenstalk.com/my-favorite-sweater-by-erin-hanson/)
-- [spring fall coats](https://fashion.allwomenstalk.com/coats-for-a-perfect-transition-from-winter-to-spring/)
 - [cozy blanket gif](https://lifestyle.allwomenstalk.com/warm-and-cozy-blankets/)
 - [how to wear a crop top over 50](https://fashion.allwomenstalk.com/how-to-wear-crop-tops-in-the-cold/)
-- [cute beanies](https://fashion.allwomenstalk.com/cute-beanies-for-when-its-colder/)
-- [best faux fur accessories](https://fashion.allwomenstalk.com/faux-fur-wraps/)
 - [best black friday coat deals](https://fashion.allwomenstalk.com/best-black-friday-deals-on-designer-coats/)
+- [cute beanies](https://fashion.allwomenstalk.com/cute-beanies-for-when-its-colder/)
+- [spring fall coats](https://fashion.allwomenstalk.com/coats-for-a-perfect-transition-from-winter-to-spring/)
+- [cute color combos](https://fashion.allwomenstalk.com/the-cutest-color-combos-to-wear-in-winter/)
+- [my favorite sweater](https://inspiration.allwomenstalk.com/my-favorite-sweater-by-erin-hanson/)
 - [trendy raincoats](https://fashion.allwomenstalk.com/best-and-most-fashionable-raincoats-for-trendsetting-women/)
+- [cozy winter scarf](https://fashion.allwomenstalk.com/cosy-scarves-for-winter/)
+- [best faux fur accessories](https://fashion.allwomenstalk.com/faux-fur-wraps/)
 - [7 Stylish Ways to Wear Your Hair This Season ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 

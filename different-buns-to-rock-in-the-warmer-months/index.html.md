@@ -42,16 +42,16 @@ I love trying out these different buns throughout the warmer months. Buns, in my
 
 ## Related Posts
 
-- [lovely coats](https://fashion.allwomenstalk.com/lovely-winter-coats-to-keep-you-warm-this-year/)
-- [fall layered outfits](https://streetstyle.allwomenstalk.com/layered-street-style-looks-for-the-fall/)
-- [fashionable sweaters](https://fashion.allwomenstalk.com/fashionable-sweaters-that-will-keep-you-comfortable-in-air-conditioned-buildings/)
-- [denim ensemble](https://fashion.allwomenstalk.com/gorgeous-jean-jacket-ensembles-for-fall/)
-- [chunky knit scarves](https://fashion.allwomenstalk.com/must-have-chunky-knit-scarves-to-keep-you-warm/)
-- [fun sweaters](https://fashion.allwomenstalk.com/fun-sweaters-to-wear/)
-- [caslon cashmere sweater](https://fashion.allwomenstalk.com/adorable-and-cozy-cashmere-sweaters/)
 - [sundress and boots](https://fashion.allwomenstalk.com/great-sundresses-you-can-wear-with-boots-and-a-sweater-come-fall/)
-- [raincoats lightweight](https://fashion.allwomenstalk.com/adorable-lightweight-raincoats-that-youll-love/)
 - [beanie outfits black girl](https://streetstyle.allwomenstalk.com/street-style-outfits-with-beanies-to-recreate-this-fall/)
+- [fashionable sweaters](https://fashion.allwomenstalk.com/fashionable-sweaters-that-will-keep-you-comfortable-in-air-conditioned-buildings/)
+- [fall layered outfits](https://streetstyle.allwomenstalk.com/layered-street-style-looks-for-the-fall/)
+- [lovely coats](https://fashion.allwomenstalk.com/lovely-winter-coats-to-keep-you-warm-this-year/)
+- [denim ensemble](https://fashion.allwomenstalk.com/gorgeous-jean-jacket-ensembles-for-fall/)
+- [fun sweaters](https://fashion.allwomenstalk.com/fun-sweaters-to-wear/)
+- [chunky knit scarves](https://fashion.allwomenstalk.com/must-have-chunky-knit-scarves-to-keep-you-warm/)
+- [raincoats lightweight](https://fashion.allwomenstalk.com/adorable-lightweight-raincoats-that-youll-love/)
+- [caslon cashmere sweater](https://fashion.allwomenstalk.com/adorable-and-cozy-cashmere-sweaters/)
 - [7 Shoes to Wear in Warm Weather ...](https://shoes.allwomenstalk.com/shoes-to-wear-in-warm-weather/)
 - [7 Delightfully Warm and Stylish Hats for Fall ...](https://fashion.allwomenstalk.com/delightfully-warm-and-stylish-hats-for-fall/)
 
