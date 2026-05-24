@@ -78,7 +78,7 @@ Buy at: [www.amazon.com/](https://www.amazon.com?ref=allwomenstalk.com)
 
 ![Not Your Mother's, liquid, magenta, NOT, YOUR,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/js/ou/sgjho3na57758fc5b77fb539130351_500x491.jpg)
 
-This brand is a firm favorite in the budget haircare range, but this leave-in conditioner certainly doesn���t feel like it is part of a cheaper collection! It helps to moisturize your hair and prevent breakage, leaving it feeling much softer and stronger.
+This brand is a firm favorite in the budget haircare range, but this leave-in conditioner certainly doesn’t feel like it is part of a cheaper collection! It helps to moisturize your hair and prevent breakage, leaving it feeling much softer and stronger.
 
 Buy at: [www.amazon.com/](https://www.amazon.com?ref=allwomenstalk.com)
 
