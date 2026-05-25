@@ -56,15 +56,15 @@ Who says that just because you have short hair, you can’t have fun styling it?
 
 ## Related Posts
 
-- [striking hair color](https://hair.allwomenstalk.com/feisty-and-unique-hair-colors-for-your-inner-rebel/)
 - [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
-- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
-- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
-- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
 - [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
+- [striking hair color](https://hair.allwomenstalk.com/feisty-and-unique-hair-colors-for-your-inner-rebel/)
 - [riche le smoky with a twist](https://hair.allwomenstalk.com/super-stylish-retro-hairstyles-with-a-modern-twist-to-try/)
 - [easy styles for curly hair](https://hair.allwomenstalk.com/easy-styles-for-curly-hair-that-are-great-for-any-occasion/)
 - [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
+- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
+- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
+- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
 - [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fabulous Ways to Liven up a Ponytail ...](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)

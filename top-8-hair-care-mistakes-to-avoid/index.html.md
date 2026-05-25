@@ -48,16 +48,16 @@ Top image source: [haircosmetology.com](https://goo.gl/3XJ4KM)
 
 ## Related Posts
 
-- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
 - [tousled chignon](https://hair.allwomenstalk.com/steps-to-create-a-tousled-bun/)
-- [tips for perfect hair](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
+- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
-- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
-- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
 - [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
-- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
+- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
+- [tips for perfect hair](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
+- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
+- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [8 Tips for Being Nice to Your Hair ...](https://hair.allwomenstalk.com/tips-for-being-nice-to-your-hair/)
 

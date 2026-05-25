@@ -82,16 +82,16 @@ Which of these was your favorite look?
 
 ## Related Posts
 
-- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
-- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
-- [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
 - [unicorn braid tutorial](https://hair.allwomenstalk.com/hair-inspirations-for-girls-ready-to-mix-up-their-style/)
-- [shine line hair color](https://hair.allwomenstalk.com/look-here-to-see-the-newest-viral-hair-trend-taking-over-the-web/)
 - [lucky daye hairstyle](https://hair.allwomenstalk.com/super-simple-hairstyles-for-girls-with-super-long-hair/)
-- [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
-- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
-- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
 - [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
+- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
+- [shine line hair color](https://hair.allwomenstalk.com/look-here-to-see-the-newest-viral-hair-trend-taking-over-the-web/)
+- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
+- [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
+- [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
+- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
+- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [8 Sleek and Elegant Hairstyles ...](https://hair.allwomenstalk.com/sleek-and-elegant-hairstyles/)
 

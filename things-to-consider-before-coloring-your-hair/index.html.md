@@ -42,16 +42,16 @@ Do you color your hair? I haven’t done it in awhile, but I prefer a few highli
 
 ## Related Posts
 
-- [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
-- [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
-- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
-- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
-- [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
-- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
-- [curly hair boy kids](https://parenting.allwomenstalk.com/tips-for-caring-for-curly-haired-kids/)
-- [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
 - [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
+- [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
+- [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
+- [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
 - [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
+- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
+- [curly hair boy kids](https://parenting.allwomenstalk.com/tips-for-caring-for-curly-haired-kids/)
+- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
+- [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
+- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

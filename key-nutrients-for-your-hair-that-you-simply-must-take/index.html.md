@@ -44,16 +44,16 @@ You can take certain hair supplements if you choose to, but I always tell people
 
 ## Related Posts
 
-- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
-- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
 - [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
+- [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
+- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
+- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
+- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
 - [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
-- [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
-- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
-- [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
+- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
 - [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Foods That do Good for Your Hair ...](https://hair.allwomenstalk.com/foods-that-do-good-for-your-hair/)
 

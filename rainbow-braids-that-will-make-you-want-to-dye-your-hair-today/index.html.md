@@ -153,16 +153,16 @@ Are you loving rainbow braids as much as I am right now? Would you dye your hair
 
 ## Related Posts
 
-- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
-- [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
-- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
-- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
-- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
-- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
-- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
-- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
 - [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
+- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
+- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
+- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
+- [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
+- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
+- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
 - [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
+- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
 - [9 Creative Ways to Color Your Hair for Girls Looki...](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
 - [Natural Beauties That Will Inspire You to Color Yo...](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
 

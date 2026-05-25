@@ -122,16 +122,16 @@ Ah!! How beautiful are those? Girlfriend, give a try to some of these styles and
 
 ## Related Posts
 
-- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
 - [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
-- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
 - [long hair in ponytail](https://hair.allwomenstalk.com/you-must-try-these-ponytail-hacks-today-or-maybe-tomorrow/)
-- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
-- [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
-- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
 - [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
-- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
+- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
+- [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
 - [baseball hat with bangs](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-a-hat/)
+- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
+- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
+- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
+- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
 - [7 Styles for Super Long Hair ...](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
 - [7 Tips for Perfect Long Lasting Weave Hairstyles ....](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
 

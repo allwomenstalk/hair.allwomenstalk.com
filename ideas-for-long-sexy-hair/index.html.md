@@ -94,16 +94,16 @@ With these 20 sexy long hair ideas you are sure to find one or two that work for
 
 ## Related Posts
 
-- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
-- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
 - [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
-- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
-- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
-- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
-- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
 - [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
+- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
+- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
+- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
+- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
+- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
 - [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [8 Innovative Things to Try with Your Hair ...](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
 

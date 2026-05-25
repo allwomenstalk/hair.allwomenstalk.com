@@ -56,16 +56,16 @@ One bonus of keeping up with your hair's health, is less frequent visits to the 
 
 ## Related Posts
 
-- [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
-- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
-- [how to stop bangs from parting in the middle](https://hair.allwomenstalk.com/how-to-grow-your-bangs-out-in-a-month/)
-- [how to style transitioning hair after washing](https://hair.allwomenstalk.com/how-to-wash-and-detangle-your-fragile-transitioning-hair/)
-- [jackpot beauties pictures](https://hair.allwomenstalk.com/tips-for-natural-hair-all-black-beauties-will-love/)
-- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
-- [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
 - [paris color le stylo amour](https://hair.allwomenstalk.com/tricks-only-girls-with-gorge-hair-know/)
-- [how to keep legs smoother longer after shaving](https://skincare.allwomenstalk.com/tricks-to-shaving-your-legs-less-often/)
+- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
+- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
+- [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
+- [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
+- [how to style transitioning hair after washing](https://hair.allwomenstalk.com/how-to-wash-and-detangle-your-fragile-transitioning-hair/)
 - [messy hair gif](https://hair.allwomenstalk.com/the-struggles-of-long-hair-can-you-relate/)
+- [jackpot beauties pictures](https://hair.allwomenstalk.com/tips-for-natural-hair-all-black-beauties-will-love/)
+- [how to stop bangs from parting in the middle](https://hair.allwomenstalk.com/how-to-grow-your-bangs-out-in-a-month/)
+- [how to keep legs smoother longer after shaving](https://skincare.allwomenstalk.com/tricks-to-shaving-your-legs-less-often/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 - [7 Tips to Truly Make Your Hair Color Last ...](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
 

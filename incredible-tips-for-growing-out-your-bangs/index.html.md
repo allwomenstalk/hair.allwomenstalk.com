@@ -42,16 +42,16 @@ We all fancy a change of style every now and then, and bangs are a great way to 
 
 ## Related Posts
 
-- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
-- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
-- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
-- [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
-- [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
-- [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
-- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
 - [yourhairdresser](https://hair.allwomenstalk.com/things-your-hairdresser-wants-you-to-know/)
+- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
+- [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
+- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
+- [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
+- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
 - [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
+- [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
 - [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
+- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
 - [7 Amazingly Helpful Tips on How to Cut Your Own Ba...](https://hair.allwomenstalk.com/amazingly-helpful-tips-on-how-to-cut-your-own-bangs/)
 - [7 Interesting Ways to Style Your Bangs ...](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
 

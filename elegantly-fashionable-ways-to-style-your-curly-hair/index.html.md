@@ -44,16 +44,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2080804452528513
 
 ## Related Posts
 
-- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
-- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
-- [riche stylo smoky with twist](https://hair.allwomenstalk.com/super-easy-tutorials-on-styling-your-afro-curls/)
-- [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
 - [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
-- [oval shape face hairstyle](https://hair.allwomenstalk.com/awesome-hairstyles-for-oval-shaped-faces/)
 - [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
-- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
-- [round shaped face](https://hair.allwomenstalk.com/lovely-hairstyles-ideal-for-round-shaped-faces/)
 - [hair color to look younger before and after](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
+- [round shaped face](https://hair.allwomenstalk.com/lovely-hairstyles-ideal-for-round-shaped-faces/)
+- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
+- [oval shape face hairstyle](https://hair.allwomenstalk.com/awesome-hairstyles-for-oval-shaped-faces/)
+- [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
+- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
+- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [riche stylo smoky with twist](https://hair.allwomenstalk.com/super-easy-tutorials-on-styling-your-afro-curls/)
 - [7 Stylish Ways to Wear Your Hair This Season ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
 - [7 Amazingly Simple Hair Care Tips for Curly Hair ....](https://hair.allwomenstalk.com/amazingly-simple-hair-care-tips-for-curly-hair/)
 

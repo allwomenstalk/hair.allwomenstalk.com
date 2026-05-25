@@ -58,16 +58,16 @@ When picking your color, keep in mind that some colors don’t last as long as o
 
 ## Related Posts
 
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
-- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
-- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
-- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
-- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
-- [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
-- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
 - [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
-- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
+- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
+- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
 - [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
+- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
+- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
+- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
+- [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
+- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 - [10 Tips on How to Pick the Right Hair Color ...](https://allwomenstalk.com/10-tips-on-how-to-pick-the-right-hair-color/)
 

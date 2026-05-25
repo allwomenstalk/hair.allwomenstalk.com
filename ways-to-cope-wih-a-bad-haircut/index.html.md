@@ -44,16 +44,16 @@ Top image source: [3.bp.blogspot.com](http://3.bp.blogspot.com/_EDlcEHOPW9I/S88m
 
 ## Related Posts
 
-- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
-- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
-- [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
-- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
-- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
+- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
+- [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
 - [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
+- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
+- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
-- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Quick Fixes for a Bad Hair Day ...](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 

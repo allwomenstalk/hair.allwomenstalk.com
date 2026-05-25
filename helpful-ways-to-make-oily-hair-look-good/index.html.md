@@ -56,16 +56,16 @@ Dealing with oily hair can be a challenge but it can be overcome. How do you dea
 
 ## Related Posts
 
-- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
-- [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
-- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
-- [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
-- [why do people get split ends](https://hair.allwomenstalk.com/typical-reasons-why-your-split-ends-wont-go-away/)
 - [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
+- [why do people get split ends](https://hair.allwomenstalk.com/typical-reasons-why-your-split-ends-wont-go-away/)
 - [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
+- [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
+- [hair extensions to fix bad haircut](https://hair.allwomenstalk.com/reasons-not-to-let-a-bad-haircut-freak-you-out/)
+- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
 - [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
 - [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
-- [hair extensions to fix bad haircut](https://hair.allwomenstalk.com/reasons-not-to-let-a-bad-haircut-freak-you-out/)
+- [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
+- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 

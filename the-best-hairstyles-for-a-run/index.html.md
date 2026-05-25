@@ -42,16 +42,16 @@ If you want your neighbors to think you look fashionable during your jogs around
 
 ## Related Posts
 
-- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
-- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
-- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
-- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
-- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
-- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
 - [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
+- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
 - [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
+- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
+- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
+- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
+- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
 - [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
+- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [7 Must Have Hair Accessories for Girls ...](https://allwomenstalk.com/7-must-have-hair-accessories-for-girls/)
 

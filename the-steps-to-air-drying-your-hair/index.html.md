@@ -42,16 +42,16 @@ These are 7 steps to help you make air drying your hair a success. Do you air dr
 
 ## Related Posts
 
-- [teased hair with headband](https://hair.allwomenstalk.com/this-is-what-to-do-with-your-hair-if-you-only-have-minutes/)
-- [Everything You Need to Know about Putting on and C...](https://hair.allwomenstalk.com/how-to-put-on-and-care-for-your-hair-extensions/)
-- [9 Ways to Deal with Uncontrollable Hair Every Girl...](https://hair.allwomenstalk.com/ways-to-deal-with-uncontrollable-hair-every-girl-should-know/)
-- [Heres Howto Find the Right Flat Iron for Your Hair...](https://hair.allwomenstalk.com/what-type-of-flat-iron-fits-your-hair-type/)
-- [Do These Things to Wake up with Great Hair ...](https://hair.allwomenstalk.com/do-these-things-to-wake-up-with-great-hair/)
-- [paris riche stylo eternal sunshine](https://hair.allwomenstalk.com/heres-what-causes-your-dry-hair/)
 - [holly madison natural hair color](https://hair.allwomenstalk.com/want-to-go-blond-read-this-first/)
-- [2nd day hair ideas](https://hair.allwomenstalk.com/pretty-polished-styles-for-second-or-third-day-hair/)
+- [Do These Things to Wake up with Great Hair ...](https://hair.allwomenstalk.com/do-these-things-to-wake-up-with-great-hair/)
+- [Everything You Need to Know about Putting on and C...](https://hair.allwomenstalk.com/how-to-put-on-and-care-for-your-hair-extensions/)
+- [Heres Howto Find the Right Flat Iron for Your Hair...](https://hair.allwomenstalk.com/what-type-of-flat-iron-fits-your-hair-type/)
 - [How to Handle Unruly Hair in the Summer Heat ...](https://hair.allwomenstalk.com/how-to-handle-unruly-hair-in-the-summer-heat/)
+- [9 Ways to Deal with Uncontrollable Hair Every Girl...](https://hair.allwomenstalk.com/ways-to-deal-with-uncontrollable-hair-every-girl-should-know/)
 - [Are You Blow Drying Your Hair Wrong](https://hair.allwomenstalk.com/are-you-blow-drying-your-hair-wrong/)
+- [2nd day hair ideas](https://hair.allwomenstalk.com/pretty-polished-styles-for-second-or-third-day-hair/)
+- [paris riche stylo eternal sunshine](https://hair.allwomenstalk.com/heres-what-causes-your-dry-hair/)
+- [teased hair with headband](https://hair.allwomenstalk.com/this-is-what-to-do-with-your-hair-if-you-only-have-minutes/)
 - [7 Steps to Make Your Own Dry Shampoo ...](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
 - [7 Great but Effortless Remedies for Dry Hair ...](https://hair.allwomenstalk.com/great-but-effortless-remedies-for-dry-hair/)
 

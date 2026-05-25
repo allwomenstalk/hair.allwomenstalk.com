@@ -90,16 +90,16 @@ Beautiful, right?
 
 ## Related Posts
 
-- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
-- [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
+- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
 - [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
 - [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
-- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
-- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
-- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
-- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
 - [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
+- [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
+- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
+- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
+- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
+- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
 - [Im so Ready for Spring ...](https://allwomenstalk.com/im-so-ready-for-spring/)
 - [7 Bracelets to Wear This Spring ...](https://allwomenstalk.com/7-bracelets-to-wear-this-spring/)
 

@@ -42,16 +42,16 @@ You're not limited to one hairstyle, just because your hair is short. You still 
 
 ## Related Posts
 
-- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
-- [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
-- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
-- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
-- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
-- [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
-- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
 - [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
+- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
+- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
 - [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
+- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
+- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
+- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
+- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
+- [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 

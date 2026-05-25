@@ -56,16 +56,16 @@ These are 7 hairstyles that you can use when you can’t wash your hair. What is
 
 ## Related Posts
 
-- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
-- [bridesmaid survey](https://wedding.allwomenstalk.com/easy-hairstyles-for-the-busy-bridesmaid/)
-- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
-- [haircuts for low maintenance](https://hair.allwomenstalk.com/low-maintenance-hairstyles-to-try-no-matter-your-hair-texture/)
-- [appropriate accessories](https://hair.allwomenstalk.com/tips-for-choosing-beautiful-age-appropriate-hair-accessories/)
-- [simple basketball hairstyles](https://hair.allwomenstalk.com/simple-fuss-free-hairstyles-for-athletes/)
-- [celebrity women with short hair](https://hair.allwomenstalk.com/best-short-hairstyles-modeled-by-celebrities/)
 - [zooey deschanel unrecognizable](https://celebs.allwomenstalk.com/celebrity-bangs-that-will-inspire-you-to-get-your-own/)
 - [humidity proof hairstyles](https://hair.allwomenstalk.com/hairstyles-for-humid-weather-so-you-dont-feel-icky/)
+- [haircuts for low maintenance](https://hair.allwomenstalk.com/low-maintenance-hairstyles-to-try-no-matter-your-hair-texture/)
+- [celebrity women with short hair](https://hair.allwomenstalk.com/best-short-hairstyles-modeled-by-celebrities/)
+- [simple basketball hairstyles](https://hair.allwomenstalk.com/simple-fuss-free-hairstyles-for-athletes/)
+- [bridesmaid survey](https://wedding.allwomenstalk.com/easy-hairstyles-for-the-busy-bridesmaid/)
+- [appropriate accessories](https://hair.allwomenstalk.com/tips-for-choosing-beautiful-age-appropriate-hair-accessories/)
 - [merida hair up](https://hair.allwomenstalk.com/disney-inspired-hairstyles-for-when-you-need-some-magic/)
+- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
+- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 

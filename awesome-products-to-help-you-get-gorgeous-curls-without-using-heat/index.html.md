@@ -144,16 +144,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1735293918615998
 
 ## Related Posts
 
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
-- [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
-- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
+- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
+- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
+- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
 - [living proof thinning hair](https://hair.allwomenstalk.com/very-best-products-for-thin-hair/)
 - [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
-- [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
-- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
-- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
-- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
 - [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
+- [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
+- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Organic Hair Products ...](https://hair.allwomenstalk.com/organic-hair-products/)
 

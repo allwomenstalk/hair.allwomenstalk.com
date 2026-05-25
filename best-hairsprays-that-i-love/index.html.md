@@ -65,14 +65,14 @@ Trust me, I have went through a ton of different bad hairsprays to get to the be
 
 - [hair straighteners products](https://hair.allwomenstalk.com/best-hair-straighteners-to-invest-in/)
 - [loreal riche le stylo smoky shadow emerald conques...](https://hair.allwomenstalk.com/must-have-hair-products-for-winter-hair/)
-- [Hair-Care Products Quick Guide](https://allwomenstalk.com/hair-care-products-quick-guide-2/)
 - [neutrogena triple moisture shampoo](https://allwomenstalk.com/review-neutrogena-triple-moisture-shampoo/)
-- [neutrogena triple moisture conditioner](https://allwomenstalk.com/review-neutrogena-triple-moisture-hair-mask/)
 - [aussie hair products review](https://allwomenstalk.com/review-aussie-hair-products/)
-- [abba shampoo reviews](https://allwomenstalk.com/review-abba-shampoo/)
 - [starlit salon](https://allwomenstalk.com/review-john-frieda-starlit-waves/)
-- [clairol shine happy](https://allwomenstalk.com/review-shine-happy-from-clairol/)
+- [neutrogena triple moisture conditioner](https://allwomenstalk.com/review-neutrogena-triple-moisture-hair-mask/)
 - [Hair Today Gone Tomorrow. Stop Unwanted Hair in It...](https://allwomenstalk.com/hair-today-gone-tomorrow-stop-unwanted-hair-in-its-tracks-follicles-with-easy-to-use-vaniqa-cream-fashiontribes-beauty-blog/)
+- [clairol shine happy](https://allwomenstalk.com/review-shine-happy-from-clairol/)
+- [Hair-Care Products Quick Guide](https://allwomenstalk.com/hair-care-products-quick-guide-2/)
+- [abba shampoo reviews](https://allwomenstalk.com/review-abba-shampoo/)
 - [8 of My Favorite Hairstyling Products ...](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 

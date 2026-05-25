@@ -48,16 +48,16 @@ Top Photo Credit: [sourskittled](https://www.flickr.com/photos/sourskittled/4617
 
 ## Related Posts
 
-- [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 - [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
-- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
 - [make your own dry shampoo](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
-- [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
-- [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
-- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
-- [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
+- [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
+- [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
+- [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
+- [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [7 Ways to Handle Combination Hair ...](https://hair.allwomenstalk.com/7-ways-to-handle-combination-hair/)
+- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
+- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
 - [Top 8 Hair Care Mistakes to Avoid ...](https://hair.allwomenstalk.com/top-8-hair-care-mistakes-to-avoid/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 

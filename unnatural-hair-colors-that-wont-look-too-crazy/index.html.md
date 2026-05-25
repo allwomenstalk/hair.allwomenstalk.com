@@ -42,16 +42,16 @@ If you dye your hair one of these colors, you'll look unique, but you won't look
 
 ## Related Posts
 
+- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
 - [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
-- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
+- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
 - [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
 - [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
-- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
+- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
 - [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
-- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
+- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
 - [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
 - [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
-- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 - [7 Chemical-Free Ways to Dye Your Hair ...](https://allwomenstalk.com/7-chemical-free-ways-to-dye-your-hair/)
 

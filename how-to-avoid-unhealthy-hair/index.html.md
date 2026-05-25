@@ -42,16 +42,16 @@ What do you think is the worst hair habit you have?
 
 ## Related Posts
 
-- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
-- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
-- [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
+- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
 - [panel hair coloring technique](https://hair.allwomenstalk.com/how-to-create-smokestack-hair/)
-- [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
 - [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
 - [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
-- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
+- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
+- [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
 - [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
-- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
+- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 

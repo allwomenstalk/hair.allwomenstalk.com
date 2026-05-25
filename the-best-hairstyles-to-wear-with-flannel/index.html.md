@@ -42,16 +42,16 @@ The next time you wear flannel, make sure your hair matches your outfit. Then yo
 
 ## Related Posts
 
-- [long hair edgy](https://hair.allwomenstalk.com/badass-hairstyles-thatll-make-you-feel-unstoppable/)
-- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
-- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
-- [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
 - [christmas braids black hairstyles](https://hair.allwomenstalk.com/the-most-festive-hairstyles-to-wear-in-christmas-card-photos/)
-- [holiday updo](https://hair.allwomenstalk.com/these-easy-holiday-hairstyles-are-everything-youve-ever-wanted/)
-- [how to do glitter roots](https://hair.allwomenstalk.com/youll-want-to-rock-these-gorgeous-glitter-roots/)
 - [twist rope braid](https://hair.allwomenstalk.com/a-step-by-step-guide-to-creating-a-gorgeous-rope-braid/)
+- [how to do glitter roots](https://hair.allwomenstalk.com/youll-want-to-rock-these-gorgeous-glitter-roots/)
 - [glitter in hair trend](https://hair.allwomenstalk.com/glitter-roots-are-the-magical-new-hair-trend-taking-over-instagram/)
+- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
+- [long hair edgy](https://hair.allwomenstalk.com/badass-hairstyles-thatll-make-you-feel-unstoppable/)
+- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
 - [hair up styles casual](https://hair.allwomenstalk.com/casual-yet-classy-updos-to-wear-to-thanksgiving-dinner/)
+- [holiday updo](https://hair.allwomenstalk.com/these-easy-holiday-hairstyles-are-everything-youve-ever-wanted/)
+- [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
 - [The 4 Best Hairstyles for Busy Moms ...](https://allwomenstalk.com/the-4-best-hairstyles-for-busy-moms/)
 - [Gorgeous Ways to Dress up Your Ponytail ...](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
 

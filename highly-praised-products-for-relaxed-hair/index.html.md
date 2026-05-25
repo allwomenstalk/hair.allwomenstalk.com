@@ -65,16 +65,16 @@ Top Image Source: [stylishandtrendy](http://www.stylishandtrendy.com/beauty/hair
 
 ## Related Posts
 
-- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
 - [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
-- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
 - [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
-- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
-- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
+- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
 - [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
-- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
+- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
+- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [Top 7 Oily Hair Products ...](https://hair.allwomenstalk.com/top-oily-hair-products/)
 

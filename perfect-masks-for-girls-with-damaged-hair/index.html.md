@@ -130,16 +130,16 @@ What do you do for your damaged hair? Which of these masks will you try first?
 
 ## Related Posts
 
+- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
 - [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
+- [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
 - [lusious locks](https://hair.allwomenstalk.com/miracle-hair-products-for-girls-who-are-dying-for-thick-luscious-locks/)
 - [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
-- [loreal color le stylo sunshine](https://hair.allwomenstalk.com/awesome-shampooing-tips-for-girls-who-want-healthy-af-hair/)
 - [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
-- [aussie 3 minute miracle walmart](https://hair.allwomenstalk.com/supercharge-your-tresses-with-these-top-moisturizers/)
 - [madam cj walker leave in conditioner](https://hair.allwomenstalk.com/on-point-hair-care-products-for-fall/)
 - [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
-- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
-- [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
+- [aussie 3 minute miracle walmart](https://hair.allwomenstalk.com/supercharge-your-tresses-with-these-top-moisturizers/)
+- [loreal color le stylo sunshine](https://hair.allwomenstalk.com/awesome-shampooing-tips-for-girls-who-want-healthy-af-hair/)
 - [19 DIY Hair Masks for Girls Suffering from Dry Hai...](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair/)
 - [Get Luscious Locks with These DIY Hair Masks ...](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
 

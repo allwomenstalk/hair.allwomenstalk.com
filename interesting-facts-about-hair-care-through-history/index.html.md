@@ -47,15 +47,15 @@ Pretty cool hair care facts, huh? Guess the matter of hair is not and has not be
 ## Related Posts
 
 - [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
-- [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
-- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
-- [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
 - [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
 - [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
-- [tipless boar bristle brush](https://hair.allwomenstalk.com/helpful-hints-on-hair-tools-and-how-to-use-them/)
-- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
+- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
+- [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
 - [tips on blow drying hair](https://hair.allwomenstalk.com/splendid-tips-on-blow-drying-your-hair/)
+- [tipless boar bristle brush](https://hair.allwomenstalk.com/helpful-hints-on-hair-tools-and-how-to-use-them/)
+- [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
+- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
+- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
 - [Top 8 Hair Care Mistakes to Avoid ...](https://hair.allwomenstalk.com/top-8-hair-care-mistakes-to-avoid/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

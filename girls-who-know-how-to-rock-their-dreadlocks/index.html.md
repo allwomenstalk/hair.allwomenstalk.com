@@ -120,16 +120,16 @@ Dreadlocks are so underrated! They are beautiful and so many styles can be done 
 
 ## Related Posts
 
-- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
-- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
-- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
-- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
-- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
-- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
-- [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
 - [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
+- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
+- [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
+- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
+- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
+- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
+- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
+- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
 - [Gorgeous Ways to Dress up Your Ponytail ...](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
 - [Fabulous Hairstyles for Girls Who Want to Look Gor...](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 

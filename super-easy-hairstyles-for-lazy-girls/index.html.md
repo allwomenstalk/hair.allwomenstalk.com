@@ -54,16 +54,16 @@ How do you usually wear your hair on your lazy days?
 
 ## Related Posts
 
-- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
-- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
 - [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
-- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
-- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
-- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
 - [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
-- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
-- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
+- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
+- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
 - [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
+- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
+- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
+- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [15 Coolest Hassle-Free Hairstyles for Moms ...](https://hair.allwomenstalk.com/coolest-hassle-free-hairstyles-for-moms/)
 

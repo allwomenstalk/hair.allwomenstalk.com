@@ -56,16 +56,16 @@ How do you care for your hair? Would you ever consider using any of these foods 
 
 ## Related Posts
 
+- [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
+- [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
 - [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
+- [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
+- [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
 - [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
+- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
 - [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
 - [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
-- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
 - [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
-- [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
-- [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
-- [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
-- [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [8 Innovative Things to Try with Your Hair ...](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
 

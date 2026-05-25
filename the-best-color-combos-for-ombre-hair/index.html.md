@@ -42,16 +42,16 @@ Ombre hair is all the rage, and it doesn't look like that'll be changing anytime
 
 ## Related Posts
 
-- [11 Hairstyles Inspired by Beautiful Artwork ...](https://hair.allwomenstalk.com/hairstyles-inspired-by-beautiful-artwork/)
-- [Ponytail Inspos for Girls Short on Extra Time  ...](https://hair.allwomenstalk.com/ponytail-inspiration-for-women-who-dont-have-extra-time-on-their-hands/)
-- [Adorn Your Hair with These Springtime Accessories ...](https://hair.allwomenstalk.com/adorn-your-hair-with-these-springtime-accessories/)
 - [model off duty hair](https://hair.allwomenstalk.com/hot-products-thatll-give-you-modeloffduty-hair/)
-- [17 Springtime Hairstyles Thatll Make You Stand out...](https://hair.allwomenstalk.com/springtime-hairstyles-thatll-make-you-stand-out/)
 - [Funfetti Hair is the Hottest New Trend ...](https://hair.allwomenstalk.com/funfetti-hair-is-the-hottest-new-trend/)
-- [These 17 Adorable Hair  Colors Fit the Spring Seas...](https://hair.allwomenstalk.com/these-adorable-hair-colors-fit-the-spring-season/)
-- [sand art hair](https://hair.allwomenstalk.com/how-stylists-create-sand-art-hair/)
 - [7 Family Friendly Hairstyles to Wear during the Ea...](https://hair.allwomenstalk.com/family-friendly-hairstyles-to-wear-during-the-easter-holiday/)
+- [11 Hairstyles Inspired by Beautiful Artwork ...](https://hair.allwomenstalk.com/hairstyles-inspired-by-beautiful-artwork/)
+- [17 Springtime Hairstyles Thatll Make You Stand out...](https://hair.allwomenstalk.com/springtime-hairstyles-thatll-make-you-stand-out/)
+- [Ponytail Inspos for Girls Short on Extra Time  ...](https://hair.allwomenstalk.com/ponytail-inspiration-for-women-who-dont-have-extra-time-on-their-hands/)
+- [sand art hair](https://hair.allwomenstalk.com/how-stylists-create-sand-art-hair/)
 - [The Sexiest Instagram Hair Trends so Far in 2016 ....](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-so-far-in/)
+- [Adorn Your Hair with These Springtime Accessories ...](https://hair.allwomenstalk.com/adorn-your-hair-with-these-springtime-accessories/)
+- [These 17 Adorable Hair  Colors Fit the Spring Seas...](https://hair.allwomenstalk.com/these-adorable-hair-colors-fit-the-spring-season/)
 - [7 Best Hairdos for Short Hair ...](https://allwomenstalk.com/7-best-hairdos-for-short-hair/)
 - [7 Best Home Hair Colors ...](https://allwomenstalk.com/best-home-hair-colors/)
 

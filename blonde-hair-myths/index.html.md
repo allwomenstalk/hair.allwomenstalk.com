@@ -42,16 +42,16 @@ Any other interesting myths about blond hair out there? Feel free to jump in!
 
 ## Related Posts
 
-- [fixing hair style for ladies](https://hair.allwomenstalk.com/tips-on-how-to-fix-your-hair-after-a-workuot/)
-- [what does over processed hair look like](https://hair.allwomenstalk.com/foolproof-ways-to-care-for-over-processed-hair/)
-- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
-- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
-- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
 - [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
 - [loreal paris color le stylo silver couture](https://hair.allwomenstalk.com/cons-of-short-hair/)
 - [styling tips for short hair](https://hair.allwomenstalk.com/tips-for-managing-short-hair/)
+- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
+- [what does over processed hair look like](https://hair.allwomenstalk.com/foolproof-ways-to-care-for-over-processed-hair/)
+- [fixing hair style for ladies](https://hair.allwomenstalk.com/tips-on-how-to-fix-your-hair-after-a-workuot/)
 - [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
 - [girls gone styled](https://hair.allwomenstalk.com/reasons-to-go-to-a-salon-to-get-your-hair-styled/)
+- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
+- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [7 Hair-Care Hints for Blondes ...](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
 

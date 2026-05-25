@@ -28,16 +28,16 @@ Cute, right?
 
 ## Related Posts
 
-- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
-- [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
-- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
 - [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
+- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
 - [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
 - [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
 - [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
+- [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
 - [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
 - [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
 - [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
 

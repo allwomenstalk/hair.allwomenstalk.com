@@ -42,16 +42,16 @@ There you have it! All of the tips for shampooing hair that I have! What tips fo
 
 ## Related Posts
 
-- [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
 - [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
+- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
 - [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
+- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
 - [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
+- [how to make thick hair lay flat](https://hair.allwomenstalk.com/tips-on-how-to-deal-with-thick-hair/)
 - [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
 - [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
-- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
-- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
-- [how to make thick hair lay flat](https://hair.allwomenstalk.com/tips-on-how-to-deal-with-thick-hair/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 

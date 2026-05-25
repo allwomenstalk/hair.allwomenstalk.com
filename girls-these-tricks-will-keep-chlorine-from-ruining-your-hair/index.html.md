@@ -43,15 +43,15 @@ Don't avoid the pool out of fear of wrecking your hair. As long as you follow th
 ## Related Posts
 
 - [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
-- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
+- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
 - [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
 - [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
-- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
+- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
 - [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
 - [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
-- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
+- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
 - [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [8 Simple Tricks to Avoid Bad Hair Days ...](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
 - [Life-Saving Style Hacks for Girls Who Hate Their N...](https://hair.allwomenstalk.com/style-hacks-when-you-hate-your-haircut/)
 

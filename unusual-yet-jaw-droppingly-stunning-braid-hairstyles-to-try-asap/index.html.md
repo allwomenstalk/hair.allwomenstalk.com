@@ -50,16 +50,16 @@ Are you ready to try out some of these rad braids for yourself? You’ll never b
 
 ## Related Posts
 
-- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
-- [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
-- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
-- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
 - [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
 - [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
+- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
+- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
+- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
 - [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
 - [hairstyles for thick hair for women](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair-2/)
-- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
+- [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
+- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 

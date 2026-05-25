@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/17247607)
 
 ## Related Posts
 
-- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
-- [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
-- [best hair product for frizz and humidity](https://hair.allwomenstalk.com/best-humidity-hair-products-to-keep-your-hair-in-check/)
+- [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 - [how to restore split ends](https://hair.allwomenstalk.com/home-hair-treatments-for-split-ends-that-work-100/)
-- [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
-- [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
 - [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
+- [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
+- [best hair product for frizz and humidity](https://hair.allwomenstalk.com/best-humidity-hair-products-to-keep-your-hair-in-check/)
+- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
+- [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
+- [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 - [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
-- [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

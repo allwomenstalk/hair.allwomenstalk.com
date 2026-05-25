@@ -42,16 +42,16 @@ These are just a few things to help you in the fight against frizzy hair. A few 
 
 ## Related Posts
 
-- [curling iron tricks](https://hair.allwomenstalk.com/curling-iron-tricks-to-try-to-keep-your-curls-perfect/)
-- [how to curl hair with paper towels](https://hair.allwomenstalk.com/must-know-tips-for-women-with-curly-hair/)
-- [i colored my hair too dark](https://hair.allwomenstalk.com/do-it-yourself-ways-to-fix-a-dye-job-gone-wrong/)
-- [broken hair brush](https://hair.allwomenstalk.com/tips-for-damaged-hair/)
-- [how to keep color in hair longer](https://hair.allwomenstalk.com/ways-to-make-your-hair-color-last-longer/)
-- [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
-- [hairstyles to prevent scalp sunburn](https://hair.allwomenstalk.com/ways-to-protect-your-hair-from-the-sun/)
-- [how to increase hair volume instantly](https://hair.allwomenstalk.com/ways-to-increase-hair-volume/)
-- [hair care myths and facts](https://hair.allwomenstalk.com/ridiculous-hair-myths-you-need-to-stop-believing/)
 - [what is hair chalk](https://hair.allwomenstalk.com/essential-tips-for-hair-chalking-like-a-pro/)
+- [broken hair brush](https://hair.allwomenstalk.com/tips-for-damaged-hair/)
+- [how to curl hair with paper towels](https://hair.allwomenstalk.com/must-know-tips-for-women-with-curly-hair/)
+- [curling iron tricks](https://hair.allwomenstalk.com/curling-iron-tricks-to-try-to-keep-your-curls-perfect/)
+- [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
+- [hair care myths and facts](https://hair.allwomenstalk.com/ridiculous-hair-myths-you-need-to-stop-believing/)
+- [how to keep color in hair longer](https://hair.allwomenstalk.com/ways-to-make-your-hair-color-last-longer/)
+- [how to increase hair volume instantly](https://hair.allwomenstalk.com/ways-to-increase-hair-volume/)
+- [i colored my hair too dark](https://hair.allwomenstalk.com/do-it-yourself-ways-to-fix-a-dye-job-gone-wrong/)
+- [hairstyles to prevent scalp sunburn](https://hair.allwomenstalk.com/ways-to-protect-your-hair-from-the-sun/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 

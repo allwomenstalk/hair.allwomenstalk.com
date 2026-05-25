@@ -30,16 +30,16 @@ Getting a wavy perm for short hair can help you to get a brand new look. Being a
 
 ## Related Posts
 
-- [silky hair meaning](https://hair.allwomenstalk.com/how-to-get-super-soft-silky-hair/)
-- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
-- [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
 - [give your hair more volume](https://hair.allwomenstalk.com/ways-to-add-more-volume-to-your-hair/)
-- [highlighting my hair at home](https://hair.allwomenstalk.com/reasons-to-not-try-highlighting-your-hair-at-home/)
 - [how do you trim bangs](https://hair.allwomenstalk.com/how-to-trim-your-own-bangs/)
+- [how to choose the right hair color](https://hair.allwomenstalk.com/how-to-choose-the-right-hair-color/)
+- [highlighting my hair at home](https://hair.allwomenstalk.com/reasons-to-not-try-highlighting-your-hair-at-home/)
 - [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
+- [silky hair meaning](https://hair.allwomenstalk.com/how-to-get-super-soft-silky-hair/)
+- [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
 - [how to lighten hair](https://hair.allwomenstalk.com/how-to-lighten-your-hair-at-home/)
 - [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
-- [how to choose the right hair color](https://hair.allwomenstalk.com/how-to-choose-the-right-hair-color/)
+- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
 - [Summer Hair Care Tips for Dry Hair ...](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
 - [Relaxer Hair Care Tips from the Pro ...](https://allwomenstalk.com/relaxer-hair-care-tips-from-the-pro/)
 

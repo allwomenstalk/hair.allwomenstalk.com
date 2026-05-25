@@ -84,16 +84,16 @@ Curly hair is a pretty defining feature for many curly-haired women. So you want
 
 ## Related Posts
 
-- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
-- [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
-- [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
 - [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
-- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
-- [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
-- [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
-- [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
+- [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
 - [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
 - [biolage original scent](https://hair.allwomenstalk.com/shampoo-and-conditioner-duos-thatll-make-you-smell-delicious/)
+- [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
+- [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
+- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
+- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
+- [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
+- [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [15 Best Shampoos for Girls with Oily Hair ...](https://allwomenstalk.com/12-best-shampoos-for-oily-hair/)
 

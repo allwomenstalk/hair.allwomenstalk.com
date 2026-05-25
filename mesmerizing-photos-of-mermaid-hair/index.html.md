@@ -147,16 +147,16 @@ Source: [Community Post: The 7 Coolest](https://www.buzzfeed.com/imabeaker/the-c
 
 ## Related Posts
 
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
-- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
-- [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
-- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
-- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
 - [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
-- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
 - [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
 - [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
-- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
+- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
+- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
+- [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
+- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
 - [7 Gorgeous Bridal Floral Crown Hairstyles ...](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
 - [9 Pretty Hair Ideas for a Fresh Spring Look ...](https://hair.allwomenstalk.com/pretty-hair-ideas-for-a-fresh-spring-look/)
 

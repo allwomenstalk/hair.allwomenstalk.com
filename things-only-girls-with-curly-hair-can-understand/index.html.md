@@ -42,16 +42,16 @@ Do you have curly hair? What would you add to this list?
 
 ## Related Posts
 
-- [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
-- [how to be a better feminist](https://lifestyle.allwomenstalk.com/want-to-be-a-better-feminist-heres-what-you-need-to-do/)
+- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
 - [why are girls always tired](https://funny.allwomenstalk.com/things-girls-who-are-always-tired-can-relate-to/)
-- [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
+- [natural college girls](https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/)
+- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
 - [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
 - [college girl new year](https://teen.allwomenstalk.com/new-years-resolutions-for-college-girls/)
-- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
 - [what are a mans obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
-- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
-- [natural college girls](https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/)
+- [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
+- [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
+- [how to be a better feminist](https://lifestyle.allwomenstalk.com/want-to-be-a-better-feminist-heres-what-you-need-to-do/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

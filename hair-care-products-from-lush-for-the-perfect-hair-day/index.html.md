@@ -68,16 +68,16 @@ LUSH has something for every imaginable hair style, whether your hair is dry or 
 
 ## Related Posts
 
-- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
-- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
-- [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
-- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
-- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
-- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
 - [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
-- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
+- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
+- [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
 - [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
+- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
+- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
+- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
+- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
+- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
+- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
 - [10 Amazing LUSH Products for Your Bath ...](https://skincare.allwomenstalk.com/10-amazing-lush-products-for-your-bath/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

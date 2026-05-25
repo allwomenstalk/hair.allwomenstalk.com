@@ -43,15 +43,15 @@ What do you think about DIY highlights? Have you done them before, were you happ
 ## Related Posts
 
 - [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
-- [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
-- [matching hair dye](https://hair.allwomenstalk.com/tips-for-matching-hair-color-with-skin-tone/)
-- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
-- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
-- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
 - [hair care myths and facts](https://hair.allwomenstalk.com/popular-hair-care-myths/)
+- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
+- [matching hair dye](https://hair.allwomenstalk.com/tips-for-matching-hair-color-with-skin-tone/)
+- [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
 - [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
-- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
+- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
+- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
 - [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
+- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 - [7 Hair Highlighting Tips You Should Know ...](https://hair.allwomenstalk.com/hair-highlighting-tips-you-should-know/)
 

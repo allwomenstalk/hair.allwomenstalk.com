@@ -129,16 +129,16 @@ Which one do you plan to try today? How much do you miss Gossip Girl?
 
 ## Related Posts
 
-- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
-- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
-- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
-- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
 - [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
-- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
-- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
+- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
 - [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
+- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
+- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
+- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
+- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
+- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
 - [4 Fun Celebrity Haircuts This Week ...](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
 - [Fashionable Hair Styles 2006: Eyes on Stars](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
 

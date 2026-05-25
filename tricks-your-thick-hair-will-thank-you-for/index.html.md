@@ -56,16 +56,16 @@ What do you love about having thick hair? Do you have other tips you can share?
 
 ## Related Posts
 
-- [how to part hair into 4 sections](https://hair.allwomenstalk.com/the-locks-list-your-ultimate-guide-to-every-hair-hack-you-could-want/)
-- [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
-- [ion rose quartz on dark hair](https://hair.allwomenstalk.com/how-to-wear-pantone-color-of-the-year-rose-quartz-in-your-hair/)
-- [shabby hair](https://hair.allwomenstalk.com/the-easiest-way-to-turn-shabby-hair-smooth-and-sleek/)
-- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
 - [laser hair straightener](https://hair.allwomenstalk.com/look-hotter-than-ever-with-these-hair-straightener-hacks/)
+- [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
+- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
+- [shabby hair](https://hair.allwomenstalk.com/the-easiest-way-to-turn-shabby-hair-smooth-and-sleek/)
 - [big forehead light skin](https://hair.allwomenstalk.com/how-to-get-rid-of-your-bangs-if-you-have-a-big-forehead/)
-- [post](https://hair.allwomenstalk.com/how-to-fix-your-post-sex-hair-to-look-your-best/)
-- [loreal paris color stylo eye eternal sunshine](https://hair.allwomenstalk.com/how-unnaturally-colored-hair-improves-your-life/)
 - [serenity blue pantone](https://hair.allwomenstalk.com/how-to-wear-pantone-color-of-the-year-serenity-blue-in-your-hair/)
+- [ion rose quartz on dark hair](https://hair.allwomenstalk.com/how-to-wear-pantone-color-of-the-year-rose-quartz-in-your-hair/)
+- [loreal paris color stylo eye eternal sunshine](https://hair.allwomenstalk.com/how-unnaturally-colored-hair-improves-your-life/)
+- [post](https://hair.allwomenstalk.com/how-to-fix-your-post-sex-hair-to-look-your-best/)
+- [how to part hair into 4 sections](https://hair.allwomenstalk.com/the-locks-list-your-ultimate-guide-to-every-hair-hack-you-could-want/)
 - [7 Absolutely Clever Ways to Make Your Hair Thicker...](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
 - [7 Summer Hair Tips ...](https://allwomenstalk.com/7-summer-hair-tips/)
 

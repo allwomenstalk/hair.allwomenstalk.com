@@ -52,16 +52,16 @@ Top Image Source:[tumblr.com](https://web.archive.org/web/https://walnutwax.tumb
 
 ## Related Posts
 
-- [uses of hair dryer](https://lifestyle.allwomenstalk.com/surprising-uses-for-a-hair-dryer/)
 - [change your hair colour](https://hair.allwomenstalk.com/tips-for-changing-your-hair-color-safely/)
-- [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
-- [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
-- [i do my own hair](https://hair.allwomenstalk.com/situations-in-which-you-should-do-your-own-hair/)
-- [epilate vs shave](https://skincare.allwomenstalk.com/hair-removal-dos-and-donts/)
-- [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
-- [a picture of a perm](https://hair.allwomenstalk.com/things-you-need-to-know-about-perms/)
 - [hair sock](https://hair.allwomenstalk.com/extra-tips-for-a-perfect-sock-bun/)
 - [easy ways to change your hair](https://hair.allwomenstalk.com/tips-for-dramatically-changing-your-hair-color/)
+- [i do my own hair](https://hair.allwomenstalk.com/situations-in-which-you-should-do-your-own-hair/)
+- [epilate vs shave](https://skincare.allwomenstalk.com/hair-removal-dos-and-donts/)
+- [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
+- [a picture of a perm](https://hair.allwomenstalk.com/things-you-need-to-know-about-perms/)
+- [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
+- [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
+- [uses of hair dryer](https://lifestyle.allwomenstalk.com/surprising-uses-for-a-hair-dryer/)
 - [7 Reasons I Heart Highlights ...](https://hair.allwomenstalk.com/7-reasons-i-heart-highlights/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

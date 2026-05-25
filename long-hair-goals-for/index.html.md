@@ -114,16 +114,16 @@ Love the shaved sides!
 
 ## Related Posts
 
-- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
-- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
-- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
-- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
-- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
-- [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
-- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
 - [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
+- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
+- [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
+- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
+- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
 - [low pigtail buns](https://hair.allwomenstalk.com/hairstyles-men-love-to-see-us-wear/)
+- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
+- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
 - [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
 - [7 Styles for Super Long Hair ...](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

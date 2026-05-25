@@ -62,16 +62,16 @@ Short hairstyles don't have to be really short, and there is a much wider variet
 
 ## Related Posts
 
-- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
-- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
-- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
-- [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
-- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
-- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
-- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
-- [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
-- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
 - [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
+- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
+- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
+- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
+- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
+- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
+- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
+- [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
+- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
+- [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [8 Beautiful Boho Hairstyles ...](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 

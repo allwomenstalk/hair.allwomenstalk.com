@@ -44,16 +44,16 @@ Do you suffer from knotty hair? Will you try these tips?
 
 ## Related Posts
 
-- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
 - [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
-- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
+- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
 - [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
+- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
+- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
 - [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
 - [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
-- [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
-- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
 - [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
 - [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
+- [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
 - [Relaxer Hair Care Tips from the Pro ...](https://allwomenstalk.com/relaxer-hair-care-tips-from-the-pro/)
 - [7 Awesome Pro Tips for Each Hair Type ...](https://hair.allwomenstalk.com/awesome-pro-tips-for-each-hair-type/)
 

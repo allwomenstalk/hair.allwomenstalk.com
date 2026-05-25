@@ -44,14 +44,14 @@ Do you tend to blow dry or air dry your hair? Will you try any of these techniqu
 
 - [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
 - [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
-- [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
-- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
-- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
 - [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
 - [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
-- [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
+- [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
+- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
 - [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
 - [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
+- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
+- [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
 - [8 Ways to Deal with Dry Hair ...](https://hair.allwomenstalk.com/8-ways-to-deal-with-dry-hair/)
 - [7 Ways to Get Shiny Hair Fast ...](https://hair.allwomenstalk.com/ways-to-get-shiny-hair-fast/)
 

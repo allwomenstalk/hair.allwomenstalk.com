@@ -42,16 +42,16 @@ Eating for your hair isn’t only easy, but quite tasty too! I hope some of thes
 
 ## Related Posts
 
-- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
-- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
-- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
-- [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
-- [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
-- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
 - [back comb hair](https://hair.allwomenstalk.com/steps-to-achieve-the-perfect-backcomb/)
 - [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
+- [hair lightening process](https://hair.allwomenstalk.com/rules-to-follow-if-you-want-to-lighten-your-hair/)
 - [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
+- [washing hair after perm myth](https://hair.allwomenstalk.com/common-hair-myths-debunked/)
+- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
+- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
+- [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
 - [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
+- [things to do with your hair when bored](https://hair.allwomenstalk.com/things-to-do-when-you-are-bored-with-your-hair/)
 - [7 Ways to Look Thinner Instantly ...](https://weightloss.allwomenstalk.com/7-ways-to-look-thinner-instantly/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 

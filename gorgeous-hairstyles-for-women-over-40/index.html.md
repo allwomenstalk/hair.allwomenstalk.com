@@ -58,16 +58,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/10377002)
 
 ## Related Posts
 
-- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
-- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
-- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
-- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
 - [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
+- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
 - [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
-- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
 - [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
+- [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
+- [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
+- [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
 - [4 Sexy Hairstyles to Create on Your Wedding Day .....](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

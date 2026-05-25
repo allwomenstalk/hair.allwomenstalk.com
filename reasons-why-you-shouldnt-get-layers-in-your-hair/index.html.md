@@ -65,15 +65,15 @@ I regretted layers almost from day one. While some people love them, I don't rec
 ## Related Posts
 
 - [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
-- [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
 - [what color should i dye my hair personality quiz](https://hair.allwomenstalk.com/reasons-to-dye-your-hair-a-crazy-color-at-least-once/)
-- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
 - [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
-- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
-- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
-- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
-- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
 - [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)
+- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
+- [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
+- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
+- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
+- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
+- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

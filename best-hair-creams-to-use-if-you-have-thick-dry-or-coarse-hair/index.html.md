@@ -70,16 +70,16 @@ Hair creams can be a lifesaver if you don’t like using heavy styling products 
 
 ## Related Posts
 
-- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
-- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
 - [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
-- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
-- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
-- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
-- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
 - [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
+- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
+- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
+- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
+- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
+- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
 - [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
+- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
+- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Must-Have Hair Products for Winter Hair ...](https://hair.allwomenstalk.com/must-have-hair-products-for-winter-hair/)
 

@@ -114,16 +114,16 @@ I know that it's hard to be patient when you are growing out your bangs, but it'
 
 ## Related Posts
 
-- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
-- [messy hair gif](https://hair.allwomenstalk.com/the-struggles-of-long-hair-can-you-relate/)
-- [2 braids women](https://hair.allwomenstalk.com/read-this-if-you-want-to-be-better-at-braids/)
-- [freckle above lip](https://beauty.allwomenstalk.com/natural-ways-to-remove-the-hair-above-your-lip/)
-- [rainbow hair faded](https://hair.allwomenstalk.com/youre-fed-up-of-your-rainbow-hair-now-what/)
-- [jackpot beauties pictures](https://hair.allwomenstalk.com/tips-for-natural-hair-all-black-beauties-will-love/)
 - [how to keep legs smoother longer after shaving](https://skincare.allwomenstalk.com/tricks-to-shaving-your-legs-less-often/)
-- [color spray for roots](https://hair.allwomenstalk.com/heres-how-to-cover-up-grey-roots-if-you-want-to-go-longer-between-colorings/)
+- [rainbow hair faded](https://hair.allwomenstalk.com/youre-fed-up-of-your-rainbow-hair-now-what/)
 - [fine hair fix](https://hair.allwomenstalk.com/how-to-get-fab-second-day-hair-for-girls-with-fine-hair/)
+- [jackpot beauties pictures](https://hair.allwomenstalk.com/tips-for-natural-hair-all-black-beauties-will-love/)
+- [messy hair gif](https://hair.allwomenstalk.com/the-struggles-of-long-hair-can-you-relate/)
+- [color spray for roots](https://hair.allwomenstalk.com/heres-how-to-cover-up-grey-roots-if-you-want-to-go-longer-between-colorings/)
+- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
+- [2 braids women](https://hair.allwomenstalk.com/read-this-if-you-want-to-be-better-at-braids/)
 - [paris color le stylo amour](https://hair.allwomenstalk.com/tricks-only-girls-with-gorge-hair-know/)
+- [freckle above lip](https://beauty.allwomenstalk.com/natural-ways-to-remove-the-hair-above-your-lip/)
 - [Your Guide to Bangs](https://allwomenstalk.com/your-guide-to-bangs/)
 - [Break out of Your Hair Rut with This Fauxhawk Tuto...](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
 

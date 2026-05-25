@@ -140,16 +140,16 @@ See a trend? It's all about the braids right now! Which of these looks will you 
 
 ## Related Posts
 
-- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
 - [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
-- [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
-- [how to do glitter roots](https://hair.allwomenstalk.com/youll-want-to-rock-these-gorgeous-glitter-roots/)
 - [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
+- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
 - [hair up styles casual](https://hair.allwomenstalk.com/casual-yet-classy-updos-to-wear-to-thanksgiving-dinner/)
 - [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
-- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
 - [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
-- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
+- [how to do glitter roots](https://hair.allwomenstalk.com/youll-want-to-rock-these-gorgeous-glitter-roots/)
+- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
+- [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
 - [7 Trendiest Short Haircuts ...](https://allwomenstalk.com/7-trendiest-short-haircuts/)
 

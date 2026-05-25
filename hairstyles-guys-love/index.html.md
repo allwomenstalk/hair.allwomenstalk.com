@@ -106,15 +106,15 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
 - [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
-- [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
 - [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
-- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
-- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
 - [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
+- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
+- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
+- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
 - [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
+- [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
 - [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)

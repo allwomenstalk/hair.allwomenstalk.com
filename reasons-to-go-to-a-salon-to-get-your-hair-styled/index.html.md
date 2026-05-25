@@ -42,16 +42,16 @@ Being able to style your own hair like a pro is a skill that will definitely com
 
 ## Related Posts
 
-- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
-- [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
-- [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
 - [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
-- [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
+- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
 - [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
-- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
 - [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
+- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
+- [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
 - [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
+- [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
+- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
+- [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 - [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
 

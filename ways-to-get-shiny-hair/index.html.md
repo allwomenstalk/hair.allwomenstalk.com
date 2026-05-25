@@ -42,16 +42,16 @@ I think I’ve shown you can leave the expensive product on the shelf and still 
 
 ## Related Posts
 
-- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
+- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
+- [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
+- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
+- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
+- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
 - [alter ego hair growth drops reviews](https://hair.allwomenstalk.com/professional-spa-treatments-you-can-do-on-your-hair-at-home/)
 - [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
-- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
-- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
-- [how to grow your hair faster at home](https://hair.allwomenstalk.com/home-remedies-thatll-help-your-hair-grow-fast/)
 - [dove leave in conditioner](https://hair.allwomenstalk.com/cheap-drugstore-shampoos-and-conditioners/)
-- [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
-- [redken color extend shampoo amazon](https://hair.allwomenstalk.com/these-products-will-extend-the-life-of-your-hair-color/)
 - [loreal paris color stylo primped previous](https://hair.allwomenstalk.com/skip-the-salon-and-use-these-hair-dye-products/)
+- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
 - [8 Incredibly Amazing Ways to Get Lovely Shiny Hair...](https://hair.allwomenstalk.com/incredibly-amazing-ways-to-get-lovely-shiny-hair/)
 - [7 Gorgeously Stunning Hair Styles to Look Younger ...](https://hair.allwomenstalk.com/gorgeously-stunning-hair-styles-to-look-younger/)
 

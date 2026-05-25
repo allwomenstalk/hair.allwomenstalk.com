@@ -56,16 +56,16 @@ These’re 7 high-end hair tools worth the price. What high-end hair tools do yo
 
 ## Related Posts
 
-- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
-- [tangly hair after shower](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
+- [how to overcome frizzy hair](https://hair.allwomenstalk.com/home-remedies-for-frizzy-hair/)
 - [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
 - [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
-- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
-- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
 - [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
-- [how to overcome frizzy hair](https://hair.allwomenstalk.com/home-remedies-for-frizzy-hair/)
-- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
+- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
 - [bucket hair style](https://hair.allwomenstalk.com/the-ultimate-bucket-list-for-your-hair/)
+- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
+- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
+- [mix baking soda with shampoo](https://hair.allwomenstalk.com/how-to-use-baking-soda-shampoo-for-gorgeous-locks/)
+- [tangly hair after shower](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Must-Have Hair Products for Winter Hair ...](https://hair.allwomenstalk.com/must-have-hair-products-for-winter-hair/)
 

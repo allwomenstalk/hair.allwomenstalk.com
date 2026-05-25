@@ -42,14 +42,14 @@ Are you considering a drastic haircut? Have you had a drastic haircut in the pas
 
 ## Related Posts
 
-- [how to get softer eyebrows](https://beauty.allwomenstalk.com/easy-ways-to-care-for-your-eyebrows/)
-- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
-- [hair videos tutorials](https://hair.allwomenstalk.com/insanely-helpful-tutorials-for-styling-and-caring-for-curly-hair/)
-- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
 - [dark pink hair on black girl](https://hair.allwomenstalk.com/reasons-to-become-a-natural-hair-henna-head/)
-- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
+- [how to get softer eyebrows](https://beauty.allwomenstalk.com/easy-ways-to-care-for-your-eyebrows/)
 - [what to do when having a bad hair day](https://hair.allwomenstalk.com/ways-to-handle-a-bad-hair-day/)
+- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
 - [what size curling iron do most salons use](https://hair.allwomenstalk.com/secrets-to-long-lasting-curls/)
+- [hair videos tutorials](https://hair.allwomenstalk.com/insanely-helpful-tutorials-for-styling-and-caring-for-curly-hair/)
+- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
+- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
 - [why does my hair curl in the rain](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
 - [protein treatment before or after relaxer](https://hair.allwomenstalk.com/tips-to-care-for-relaxed-hair/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)

@@ -42,12 +42,12 @@ What other hair color tips can you share? What color is your hair?
 
 ## Related Posts
 
-- [unmanageable hair](https://hair.allwomenstalk.com/tips-to-control-unmanageable-hair/)
-- [how to prevent lice](https://hair.allwomenstalk.com/ways-to-prevent-head-lice/)
 - [Stop Doing These Things That Make Your Hair Greasy...](https://hair.allwomenstalk.com/things-that-make-your-hair-greasy/)
-- [10 Tips to Help You Avoid Daily Hair Washing for L...](https://hair.allwomenstalk.com/tips-to-help-you-avoid-daily-hair-washing-for-lazy-girls/)
-- [6 Reasons Why  Your Hair is Dry and Unmanageable ....](https://hair.allwomenstalk.com/reasons-why-your-hair-is-dry/)
 - [The Most Common Hair Mistakes when Blow Drying and...](https://hair.allwomenstalk.com/most-common-hair-mistakes-when-blow-drying/)
+- [6 Reasons Why  Your Hair is Dry and Unmanageable ....](https://hair.allwomenstalk.com/reasons-why-your-hair-is-dry/)
+- [10 Tips to Help You Avoid Daily Hair Washing for L...](https://hair.allwomenstalk.com/tips-to-help-you-avoid-daily-hair-washing-for-lazy-girls/)
+- [how to prevent lice](https://hair.allwomenstalk.com/ways-to-prevent-head-lice/)
+- [unmanageable hair](https://hair.allwomenstalk.com/tips-to-control-unmanageable-hair/)
 - [hairafter salon](https://hair.allwomenstalk.com/tips-and-tricks-for-when-you-dont-like-your-hair-after-visiting-the-salon/)
 - [Try These Super Simple and Easy Hacks for Common H...](https://hair.allwomenstalk.com/try-these-super-simple-and-easy-hacks-for-common-hair-problems/)
 - [Basic Hair Things Every Girl Should Know How to do...](https://hair.allwomenstalk.com/basic-hair-things-every-girl-should-know-how-to-do/)

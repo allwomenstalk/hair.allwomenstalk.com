@@ -57,15 +57,15 @@ It took me a while to come to terms with being a curly girl. After all, when you
 ## Related Posts
 
 - [boho hair jewellery](https://beauty.allwomenstalk.com/fun-hair-accessories-to-make-you-smile-all-day-long/)
-- [punky pixie cut](https://hair.allwomenstalk.com/perfectly-precious-pixie-cuts/)
-- [4 braids with bun](https://hair.allwomenstalk.com/hip-hairstyles-for-the-beach/)
-- [short choppy womens haircuts](https://hair.allwomenstalk.com/enchanting-choppy-short-haircuts/)
-- [dark hair auburn highlights waterfall braids](https://hair.allwomenstalk.com/photos-for-summer-hair-inspiration/)
-- [granny plait hairstyle](https://hair.allwomenstalk.com/gorgeous-braids-youve-got-to-learn-now/)
-- [waves hairstyles for ladies](https://wedding.allwomenstalk.com/low-maintenance-hairstyles-for-summertime-weddings/)
 - [good short hairstyles](https://hair.allwomenstalk.com/adorable-short-haircuts/)
-- [cute going out hair](https://hair.allwomenstalk.com/great-and-easy-hairstyles-for-shopping/)
+- [granny plait hairstyle](https://hair.allwomenstalk.com/gorgeous-braids-youve-got-to-learn-now/)
+- [4 braids with bun](https://hair.allwomenstalk.com/hip-hairstyles-for-the-beach/)
 - [hair style recommender app](https://apps.allwomenstalk.com/fantastic-apps-for-choosing-the-best-hairstyle/)
+- [waves hairstyles for ladies](https://wedding.allwomenstalk.com/low-maintenance-hairstyles-for-summertime-weddings/)
+- [punky pixie cut](https://hair.allwomenstalk.com/perfectly-precious-pixie-cuts/)
+- [dark hair auburn highlights waterfall braids](https://hair.allwomenstalk.com/photos-for-summer-hair-inspiration/)
+- [cute going out hair](https://hair.allwomenstalk.com/great-and-easy-hairstyles-for-shopping/)
+- [short choppy womens haircuts](https://hair.allwomenstalk.com/enchanting-choppy-short-haircuts/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

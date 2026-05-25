@@ -48,16 +48,16 @@ Top Photo Credit: [Katelyn Fay](https://www.flickr.com/photos/ktktphotography/33
 
 ## Related Posts
 
-- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
-- [how to cope with bad haircut](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
-- [how to braid fishtail on your own hair](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
-- [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
-- [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
-- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
-- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
-- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
-- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
 - [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
+- [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
+- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
+- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
+- [how to cope with bad haircut](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
+- [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
+- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
+- [how to braid fishtail on your own hair](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
+- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 

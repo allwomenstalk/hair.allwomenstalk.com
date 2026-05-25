@@ -42,16 +42,16 @@ How do you care for your curls? Please give me some great tips I can use on my c
 
 ## Related Posts
 
-- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
-- [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)
-- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
-- [what color should i dye my hair personality quiz](https://hair.allwomenstalk.com/reasons-to-dye-your-hair-a-crazy-color-at-least-once/)
-- [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
-- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
-- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
 - [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
-- [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
+- [what color should i dye my hair personality quiz](https://hair.allwomenstalk.com/reasons-to-dye-your-hair-a-crazy-color-at-least-once/)
+- [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)
+- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
 - [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
+- [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
+- [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
+- [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
+- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
+- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 

@@ -56,16 +56,16 @@ Do you have a favorite online resource for your curly hair purchases? What is yo
 
 ## Related Posts
 
-- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
-- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
-- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
+- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
 - [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
-- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
-- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
-- [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
 - [best leave in conditioner for soft hair](https://hair.allwomenstalk.com/best-leave-in-conditioners-for-soft-hair/)
 - [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
-- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
+- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
+- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
+- [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
+- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
+- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
+- [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 - [7 Amazingly Simple Hair Care Tips for Curly Hair ....](https://hair.allwomenstalk.com/amazingly-simple-hair-care-tips-for-curly-hair/)
 

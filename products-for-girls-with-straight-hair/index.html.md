@@ -68,16 +68,16 @@ These are some of my favorite products for girls with straight hair. I always re
 
 ## Related Posts
 
-- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
-- [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
+- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
 - [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
-- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
-- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
+- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
+- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
 - [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
 - [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
-- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
+- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
+- [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
+- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
 - [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
-- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
 - [9 Best Hair Straighteners to Invest in ...](https://hair.allwomenstalk.com/best-hair-straighteners-to-invest-in/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 

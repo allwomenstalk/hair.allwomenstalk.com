@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16517627)
 
 ## Related Posts
 
-- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
-- [straight hair curly](https://hair.allwomenstalk.com/tips-to-help-you-curl-pin-straight-hair/)
 - [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
-- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
 - [how to wear your hair on a rainy day](https://hair.allwomenstalk.com/hair-tips-for-rainy-days/)
-- [hairstyle for swimming](https://hair.allwomenstalk.com/excellent-ways-to-protect-your-hair-when-in-the-pool/)
 - [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
-- [hairstyles for combination hair](https://hair.allwomenstalk.com/pro-tips-for-combination-hair/)
-- [riche stylo avant azure](https://hair.allwomenstalk.com/different-ways-to-create-curls-sans-heat/)
+- [straight hair curly](https://hair.allwomenstalk.com/tips-to-help-you-curl-pin-straight-hair/)
 - [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
+- [riche stylo avant azure](https://hair.allwomenstalk.com/different-ways-to-create-curls-sans-heat/)
+- [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
+- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
+- [hairstyle for swimming](https://hair.allwomenstalk.com/excellent-ways-to-protect-your-hair-when-in-the-pool/)
+- [hairstyles for combination hair](https://hair.allwomenstalk.com/pro-tips-for-combination-hair/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [8 Tips for Being Nice to Your Hair ...](https://hair.allwomenstalk.com/tips-for-being-nice-to-your-hair/)
 

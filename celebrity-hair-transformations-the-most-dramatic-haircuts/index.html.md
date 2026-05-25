@@ -92,16 +92,16 @@ Who do you think had the most dramatic transformation?
 
 ## Related Posts
 
-- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
-- [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
-- [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
-- [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
+- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
+- [curls n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
 - [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
 - [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
+- [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
+- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
 - [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
-- [curls n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
-- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
 - [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
+- [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
+- [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [8 Sexiest Badass Celebrity Hair Styles ...](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 

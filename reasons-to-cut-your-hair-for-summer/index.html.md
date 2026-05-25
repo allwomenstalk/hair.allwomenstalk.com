@@ -42,16 +42,16 @@ Cutting your hair is a big decision to make, but sometimes it just needs to be d
 
 ## Related Posts
 
-- [10 hairstyles that knock 10 years off your age](https://hair.allwomenstalk.com/styles-to-keep-your-hair-off-your-face-in-the-heat/)
-- [hairstyles to hide regrowth](https://hair.allwomenstalk.com/quick-ways-to-hide-your-roots/)
-- [drastic hair change](https://hair.allwomenstalk.com/tips-to-remember-before-changing-your-hair-drastically/)
-- [how to break up with hair stylist](https://hair.allwomenstalk.com/reasons-to-break-up-with-your-hair-stylist-and-not-feel-bad-about-it/)
-- [beach hair tips](https://hair.allwomenstalk.com/tips-for-the-perfect-beach-hair/)
 - [why does second day hair look better](https://hair.allwomenstalk.com/reasons-why-dirty-hair-is-better/)
+- [drastic hair change](https://hair.allwomenstalk.com/tips-to-remember-before-changing-your-hair-drastically/)
 - [tattoo ingrown hair](https://beauty.allwomenstalk.com/ways-to-get-rid-of-ingrown-hair-once-and-for-all/)
-- [after beach hair](https://hair.allwomenstalk.com/easy-ways-to-rejuvenate-your-hair-after-a-long-day-at-the-beach/)
+- [how to break up with hair stylist](https://hair.allwomenstalk.com/reasons-to-break-up-with-your-hair-stylist-and-not-feel-bad-about-it/)
+- [hairstyles to hide regrowth](https://hair.allwomenstalk.com/quick-ways-to-hide-your-roots/)
 - [hair changing texture](https://hair.allwomenstalk.com/reasons-why-hair-texture-changes/)
+- [after beach hair](https://hair.allwomenstalk.com/easy-ways-to-rejuvenate-your-hair-after-a-long-day-at-the-beach/)
+- [beach hair tips](https://hair.allwomenstalk.com/tips-for-the-perfect-beach-hair/)
 - [hair questions to ask on instagram](https://hair.allwomenstalk.com/questions-you-must-ask-your-new-hairstylist-before-she-gets-started/)
+- [10 hairstyles that knock 10 years off your age](https://hair.allwomenstalk.com/styles-to-keep-your-hair-off-your-face-in-the-heat/)
 - [7 Reasons I Envy Curly Hair ...](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
 - [10 Reasons You Should See Your Hairdresser](https://allwomenstalk.com/10-reasons-you-should-see-your-hairdresser/)
 

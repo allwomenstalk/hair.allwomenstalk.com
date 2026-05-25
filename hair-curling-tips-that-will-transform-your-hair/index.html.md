@@ -42,16 +42,16 @@ I’ve been trying these tips with a variety of styles, and they’ve worked for
 
 ## Related Posts
 
-- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
-- [what to ask when getting a haircut](https://hair.allwomenstalk.com/questions-to-ask-yourself-before-getting-a-drastic-haircut/)
 - [what to do when having a bad hair day](https://hair.allwomenstalk.com/ways-to-handle-a-bad-hair-day/)
-- [growing 4a hair after big chop](https://hair.allwomenstalk.com/tips-on-caring-for-your-natural-hair-after-the-big-chop/)
-- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
-- [how to get softer eyebrows](https://beauty.allwomenstalk.com/easy-ways-to-care-for-your-eyebrows/)
 - [hair videos tutorials](https://hair.allwomenstalk.com/insanely-helpful-tutorials-for-styling-and-caring-for-curly-hair/)
-- [dark pink hair on black girl](https://hair.allwomenstalk.com/reasons-to-become-a-natural-hair-henna-head/)
+- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
+- [how to get softer eyebrows](https://beauty.allwomenstalk.com/easy-ways-to-care-for-your-eyebrows/)
+- [growing 4a hair after big chop](https://hair.allwomenstalk.com/tips-on-caring-for-your-natural-hair-after-the-big-chop/)
 - [what size curling iron do most salons use](https://hair.allwomenstalk.com/secrets-to-long-lasting-curls/)
+- [what to ask when getting a haircut](https://hair.allwomenstalk.com/questions-to-ask-yourself-before-getting-a-drastic-haircut/)
 - [protein treatment before or after relaxer](https://hair.allwomenstalk.com/tips-to-care-for-relaxed-hair/)
+- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
+- [dark pink hair on black girl](https://hair.allwomenstalk.com/reasons-to-become-a-natural-hair-henna-head/)
 - [8 Tips for Curling Your Hair ...](https://hair.allwomenstalk.com/8-tips-for-curling-your-hair/)
 - [7 Tips on Creating Romantic Curls ...](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 

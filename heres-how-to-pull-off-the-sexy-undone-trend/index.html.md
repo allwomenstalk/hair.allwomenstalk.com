@@ -42,16 +42,16 @@ Do you like the undone trend? I have to say that I guess I was cool before it wa
 
 ## Related Posts
 
-- [what should i wear to school girl](https://love.allwomenstalk.com/how-to-create-an-outfit-thatll-get-your-crushs-attention/)
-- [different ways to wear a button down](https://fashion.allwomenstalk.com/ways-to-wear-a-button-down-like-a-style-maven/)
+- [trend yellow](https://fashion.allwomenstalk.com/get-noticed-bright-yellow-fashion-trend-and-how-to-wear-it/)
 - [peplum lace top](https://fashion.allwomenstalk.com/gorgeous-ways-to-wear-the-peplum-top-this-spring/)
 - [dress slogan](https://fashion.allwomenstalk.com/ways-to-wear-your-little-black-dress/)
-- [summer combat boots outfit](https://shoes.allwomenstalk.com/get-your-sexy-on-how-to-rock-combat-boots/)
-- [how to wear crop top plus size](https://fashion.allwomenstalk.com/how-to-pull-off-the-crop-top-look-for-any-body-type/)
-- [preppy activities](https://fashion.allwomenstalk.com/flaunt-your-preppy-side-with-these-outfit-ideas/)
+- [different ways to wear a button down](https://fashion.allwomenstalk.com/ways-to-wear-a-button-down-like-a-style-maven/)
 - [tater dress](https://food.allwomenstalk.com/heres-how-to-dress-up-your-tater-tots/)
-- [trend yellow](https://fashion.allwomenstalk.com/get-noticed-bright-yellow-fashion-trend-and-how-to-wear-it/)
+- [preppy activities](https://fashion.allwomenstalk.com/flaunt-your-preppy-side-with-these-outfit-ideas/)
+- [what should i wear to school girl](https://love.allwomenstalk.com/how-to-create-an-outfit-thatll-get-your-crushs-attention/)
+- [how to wear crop top plus size](https://fashion.allwomenstalk.com/how-to-pull-off-the-crop-top-look-for-any-body-type/)
 - [back of plain white t shirt](https://fashion.allwomenstalk.com/back-to-basics-why-you-need-a-plain-white-t-shirt-and-how-to-wear-it/)
+- [summer combat boots outfit](https://shoes.allwomenstalk.com/get-your-sexy-on-how-to-rock-combat-boots/)
 - [How to Wear Fall Fashions Top Trends](https://allwomenstalk.com/how-to-wear-fall-fashions-top-trends/)
 - [Get laced up with This New Runway Trend ...](https://fashion.allwomenstalk.com/get-laced-up-with-this-new-runway-trend/)
 

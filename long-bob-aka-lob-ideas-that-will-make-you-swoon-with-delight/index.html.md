@@ -120,16 +120,16 @@ What do you think about the lob trend? Will you be trying it this year?
 
 ## Related Posts
 
-- [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
-- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
-- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
-- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
-- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
-- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
-- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
-- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
 - [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
 - [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
+- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
+- [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
+- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
+- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
+- [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
+- [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
+- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
+- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
 - [10 Things You Can do with Bobby Pins ...](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
 - [10 More Crafty Mirror Makeovers ...](https://lifestyle.allwomenstalk.com/more-crafty-mirror-makeovers/)
 

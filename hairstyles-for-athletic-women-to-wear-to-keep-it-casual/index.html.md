@@ -42,16 +42,16 @@ Now you'll be able to make your hair look nice while still keeping it cool and c
 
 ## Related Posts
 
-- [blonde to rose gold hair](https://hair.allwomenstalk.com/rose-gold-hair-that-would-look-hot-on-any-blond/)
 - [girls silver hair](https://hair.allwomenstalk.com/grey-hair-inspo-for-girls-who-want-to-try-something-different/)
-- [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
-- [cute girls 17 years old](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair/)
 - [cute 17 girls](https://hair.allwomenstalk.com/super-cute-hairstyles-for-girls-who-are-growing-out-their-bangs/)
+- [cute girls 17 years old](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair/)
 - [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
-- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
-- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
-- [girl with a bun drawing](https://hair.allwomenstalk.com/awesome-looks-for-girls-who-want-to-try-a-double-bun/)
+- [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
 - [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
+- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
+- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
+- [girl with a bun drawing](https://hair.allwomenstalk.com/awesome-looks-for-girls-who-want-to-try-a-double-bun/)
+- [blonde to rose gold hair](https://hair.allwomenstalk.com/rose-gold-hair-that-would-look-hot-on-any-blond/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 

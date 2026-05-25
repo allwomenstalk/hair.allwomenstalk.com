@@ -56,16 +56,16 @@ Now that you know all of my curly hairstyles to try for the fall, what are some 
 
 ## Related Posts
 
-- [gotta be hair products](https://hair.allwomenstalk.com/winter-hair-color-tips-and-trends-youve-gotta-read/)
-- [in the twentieth century which beauty trend did ce...](https://hair.allwomenstalk.com/most-iconic-hairstyles-of-all-time/)
-- [hairstyles for frizzy hair for school](https://hair.allwomenstalk.com/back-to-school-hairstyles-to-look-stylish-this-year/)
-- [amy winehouse hairstyles](https://hair.allwomenstalk.com/worst-hairstyles-ever-seen-on-a-head-of-a-celebrity/)
 - [heat free hairstyles](https://hair.allwomenstalk.com/easy-heat-free-hairstyles-you-need-to-try-now/)
-- [striking hair color](https://hair.allwomenstalk.com/feisty-and-unique-hair-colors-for-your-inner-rebel/)
-- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
+- [in the twentieth century which beauty trend did ce...](https://hair.allwomenstalk.com/most-iconic-hairstyles-of-all-time/)
 - [easy styles for curly hair](https://hair.allwomenstalk.com/easy-styles-for-curly-hair-that-are-great-for-any-occasion/)
-- [pixie cut challenge](https://hair.allwomenstalk.com/stylish-suggestions-on-styling-a-pixie-cut/)
+- [amy winehouse hairstyles](https://hair.allwomenstalk.com/worst-hairstyles-ever-seen-on-a-head-of-a-celebrity/)
+- [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
 - [riche le smoky with a twist](https://hair.allwomenstalk.com/super-stylish-retro-hairstyles-with-a-modern-twist-to-try/)
+- [striking hair color](https://hair.allwomenstalk.com/feisty-and-unique-hair-colors-for-your-inner-rebel/)
+- [pixie cut challenge](https://hair.allwomenstalk.com/stylish-suggestions-on-styling-a-pixie-cut/)
+- [gotta be hair products](https://hair.allwomenstalk.com/winter-hair-color-tips-and-trends-youve-gotta-read/)
+- [hairstyles for frizzy hair for school](https://hair.allwomenstalk.com/back-to-school-hairstyles-to-look-stylish-this-year/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 

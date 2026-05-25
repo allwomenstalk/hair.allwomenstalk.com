@@ -56,15 +56,15 @@ Changing what we eat and how we eat it can really make a big difference in how w
 
 ## Related Posts
 
-- [sweet snack alternatives](https://food.allwomenstalk.com/naturally-sweet-snacks-that-are-deliciously-healthy-for-you/)
 - [food that will keep you full for a long time](https://food.allwomenstalk.com/yummy-foods-that-keep-you-full-for-long-periods-of-time/)
-- [food drive items](https://food.allwomenstalk.com/non-negotiable-items-to-fill-your-pantry-with-to-eat-healthy-around-the-clock/)
-- [condiments good for you](https://food.allwomenstalk.com/of-the-healthiest-condiments-to-add-to-your-meals/)
-- [what are blueberries high in](https://food.allwomenstalk.com/delicious-and-healthy-foods-that-contain-blueberries/)
-- [do fresh mushrooms have maggots](https://food.allwomenstalk.com/more-things-you-might-not-know-about-your-food/)
-- [does salmon make you smarter](https://food.allwomenstalk.com/beauty-foods-that-just-might-make-you-smarter-too/)
 - [100 raw organic grass fed whey protein powder](https://fitness.allwomenstalk.com/whey-protein-powders-that-are-lean-and-clean/)
+- [food drive items](https://food.allwomenstalk.com/non-negotiable-items-to-fill-your-pantry-with-to-eat-healthy-around-the-clock/)
+- [sweet snack alternatives](https://food.allwomenstalk.com/naturally-sweet-snacks-that-are-deliciously-healthy-for-you/)
 - [what foods make you calm](https://food.allwomenstalk.com/foods-that-lower-anxiety/)
+- [condiments good for you](https://food.allwomenstalk.com/of-the-healthiest-condiments-to-add-to-your-meals/)
+- [does salmon make you smarter](https://food.allwomenstalk.com/beauty-foods-that-just-might-make-you-smarter-too/)
+- [do fresh mushrooms have maggots](https://food.allwomenstalk.com/more-things-you-might-not-know-about-your-food/)
+- [what are blueberries high in](https://food.allwomenstalk.com/delicious-and-healthy-foods-that-contain-blueberries/)
 - [silk unsweetened almond milk](https://food.allwomenstalk.com/fabulous-vegan-ingredients-to-put-in-your-next-smoothie/)
 - [7 Healthiest Foods for Losing Weight ...](https://weightloss.allwomenstalk.com/healthiest-foods-for-losing-weight/)
 - [7 Superfoods to Add to Your Diet ...](https://allwomenstalk.com/superfoods-to-add-to-your-diet/)

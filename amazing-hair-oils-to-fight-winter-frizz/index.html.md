@@ -62,16 +62,16 @@ I’m definitely going to trial using hair oils more. I just love how glossy my 
 
 ## Related Posts
 
-- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
-- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
-- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
-- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
 - [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
+- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
 - [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
 - [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
+- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Best Oily Hair Treatments ...](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
 

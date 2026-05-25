@@ -48,16 +48,16 @@ Top Image Source: [riffraffblog.com](http://riffraffblog.com/2011/02/hey-there.h
 
 ## Related Posts
 
-- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
-- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
-- [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
-- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
-- [what kind of hair is most attractive](https://hair.allwomenstalk.com/hairstyles-guys-love/)
-- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
 - [oktoberfest hair braids](https://hair.allwomenstalk.com/coolest-hassle-free-hairstyles-for-moms/)
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
-- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
+- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
 - [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
+- [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
+- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
+- [what kind of hair is most attractive](https://hair.allwomenstalk.com/hairstyles-guys-love/)
+- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
+- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
+- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
 - [8 Wild Things to do with Your Hair ...](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 - [7 Great Tutorials on Wedding Hairstyles ...](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
 

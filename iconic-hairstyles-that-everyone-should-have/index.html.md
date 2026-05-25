@@ -76,16 +76,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/3229932229901122
 
 ## Related Posts
 
-- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
-- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
-- [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
 - [holidays hairstyles](https://hair.allwomenstalk.com/hot-holiday-hairstyles/)
-- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
-- [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
-- [kool aid dye dark hair](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
 - [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
-- [different ways to style your hair](https://hair.allwomenstalk.com/quick-and-easy-ways-to-style-your-hair/)
+- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
+- [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
+- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
+- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
 - [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
+- [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
+- [different ways to style your hair](https://hair.allwomenstalk.com/quick-and-easy-ways-to-style-your-hair/)
+- [kool aid dye dark hair](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

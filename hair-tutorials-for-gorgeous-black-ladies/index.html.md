@@ -82,16 +82,16 @@ What's your favorite hairstyle?
 
 ## Related Posts
 
-- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
-- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
-- [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
 - [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
+- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
 - [wedding guest headbands](https://wedding.allwomenstalk.com/gorgeous-hair-inspirations-for-your-wedding-day/)
 - [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
-- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
+- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
+- [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
 - [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
-- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
+- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
+- [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
 - [7 Gorgeous Hair Tutorials ...](https://hair.allwomenstalk.com/gorgeous-hair-tutorials/)
 - [8 Marvelous Makeup Tips for African American Skin ...](https://beauty.allwomenstalk.com/marvelous-makeup-tips-for-african-american-skin/)
 

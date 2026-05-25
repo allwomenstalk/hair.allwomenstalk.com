@@ -187,16 +187,16 @@ When's your next visit to the salon. Any pictures here you will taking along to 
 
 ## Related Posts
 
-- [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
-- [volume long hair cut](https://hair.allwomenstalk.com/hairstyles-for-thin-hair-to-add-volume-and-texture/)
-- [super sleek hair](https://hair.allwomenstalk.com/hacks-for-super-straight-hair-style/)
-- [hide fringe](https://hair.allwomenstalk.com/signs-bangs-will-look-amazing-on-you/)
 - [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
-- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
-- [hair romance](https://hair.allwomenstalk.com/romantic-hairdos-to-wow-your-date-on-valentines-day-and-beyond/)
-- [hair styles for short hair wedding](https://hair.allwomenstalk.com/beautiful-wedding-styles-for-short-natural-hair-you-will-love/)
+- [hide fringe](https://hair.allwomenstalk.com/signs-bangs-will-look-amazing-on-you/)
 - [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
+- [hair romance](https://hair.allwomenstalk.com/romantic-hairdos-to-wow-your-date-on-valentines-day-and-beyond/)
+- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
+- [volume long hair cut](https://hair.allwomenstalk.com/hairstyles-for-thin-hair-to-add-volume-and-texture/)
+- [hair styles for short hair wedding](https://hair.allwomenstalk.com/beautiful-wedding-styles-for-short-natural-hair-you-will-love/)
+- [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
 - [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
+- [super sleek hair](https://hair.allwomenstalk.com/hacks-for-super-straight-hair-style/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

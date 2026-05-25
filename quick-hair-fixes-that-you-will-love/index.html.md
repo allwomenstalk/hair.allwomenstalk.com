@@ -70,14 +70,14 @@ Especially if you're a woman on the move, there's not much time in the day to de
 
 - [7 Hair Dyeing Video Tutorials to Help You Master I...](https://hair.allwomenstalk.com/hair-dyeing-video-tutorials-to-help-you-master-it/)
 - [7 Ways to Repair Damaged Hair Caused by Bleaching ...](https://hair.allwomenstalk.com/ways-to-repair-damaged-hair-caused-by-bleaching/)
-- [loreal color riche le smoky pearly pink](https://hair.allwomenstalk.com/things-to-note-when-dyeing-your-hair-for-the-first-time/)
-- [7 Summer Hair Problems and What to do about Them ....](https://hair.allwomenstalk.com/summer-hair-problems-and-what-to-do-about-them/)
-- [7 Helpful Tips for Healthy Hair That Shines ...](https://hair.allwomenstalk.com/helpful-tips-for-healthy-hair-that-shines/)
 - [7 Ways to Reduce Frizz  Have Drama Free Hair ...](https://hair.allwomenstalk.com/ways-to-reduce-frizz-have-drama-free-hair/)
 - [7 Ways to Conceal Hair Loss ...](https://hair.allwomenstalk.com/ways-to-conceal-hair-loss/)
 - [7 Worst Things You do to Your Hair Every Day ...](https://hair.allwomenstalk.com/worst-things-you-do-to-your-hair-every-day/)
-- [7 Ways to Keep Your Hair Healthy when Youre Pregna...](https://hair.allwomenstalk.com/ways-to-keep-your-hair-healthy-when-youre-pregnant/)
 - [dreadful hair](https://hair.allwomenstalk.com/dreadful-hair-mistakes-you-need-to-avoid/)
+- [loreal color riche le smoky pearly pink](https://hair.allwomenstalk.com/things-to-note-when-dyeing-your-hair-for-the-first-time/)
+- [7 Helpful Tips for Healthy Hair That Shines ...](https://hair.allwomenstalk.com/helpful-tips-for-healthy-hair-that-shines/)
+- [7 Summer Hair Problems and What to do about Them ....](https://hair.allwomenstalk.com/summer-hair-problems-and-what-to-do-about-them/)
+- [7 Ways to Keep Your Hair Healthy when Youre Pregna...](https://hair.allwomenstalk.com/ways-to-keep-your-hair-healthy-when-youre-pregnant/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

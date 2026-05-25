@@ -56,16 +56,16 @@ New hairstyles for teens are always being invented and it’s fun to stay on top
 
 ## Related Posts
 
-- [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
-- [sporty hairstyle](https://hair.allwomenstalk.com/hairstyles-to-rock-with-sporty-outfits/)
-- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
-- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
-- [fall hair colors 2023](https://hair.allwomenstalk.com/stylish-hair-color-ideas-to-try/)
+- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
+- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
 - [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
 - [side swept fishtail braid](https://hair.allwomenstalk.com/different-ways-to-braid-your-hair/)
-- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
-- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
+- [fall hair colors 2023](https://hair.allwomenstalk.com/stylish-hair-color-ideas-to-try/)
 - [paris color riche le smoky timeless spark](https://hair.allwomenstalk.com/hairstyles-that-are-easiest-to-transition-from/)
+- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
+- [sporty hairstyle](https://hair.allwomenstalk.com/hairstyles-to-rock-with-sporty-outfits/)
+- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
+- [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 

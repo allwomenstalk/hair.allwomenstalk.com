@@ -92,15 +92,15 @@ So my friends in the awkward bang-phase, what looks are you favorite? What other
 
 ## Related Posts
 
-- [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
+- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
 - [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
 - [great gatsby hair for long hair](https://hair.allwomenstalk.com/habits-that-all-women-with-amazing-hair-have/)
-- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
 - [cute girls 17 years old](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair/)
-- [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
-- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
-- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
+- [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
 - [80s hair tutorial for short hair](https://hair.allwomenstalk.com/hair-tutorials-for-women-who-wish-they-had-shorter-hair/)
+- [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
+- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
+- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
 - [girls updo](https://hair.allwomenstalk.com/hair-inspo-for-those-who-need-a-breathtaking-undo-now/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Interesting Ways to Style Your Bangs ...](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)

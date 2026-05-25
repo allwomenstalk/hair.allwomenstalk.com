@@ -58,16 +58,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/205062219/)
 
 ## Related Posts
 
+- [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 - [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
-- [wedding hair tutorials half up](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
-- [hairstyle with scarf](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
 - [hairstyle for fall](https://hair.allwomenstalk.com/ways-to-wear-your-hair-this-fall/)
-- [overgrown bangs](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
-- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
-- [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
 - [chic hairstyles that dont require heat or styling ...](https://hair.allwomenstalk.com/fabulous-and-easy-hairstyles-that-dont-require-any-heat/)
 - [accessories rules](https://hair.allwomenstalk.com/8-rules-for-hair-accessories/)
-- [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
+- [overgrown bangs](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
+- [wedding hair tutorials half up](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
+- [hairstyle with scarf](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
+- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
+- [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

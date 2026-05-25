@@ -232,15 +232,15 @@ If this list for homemade hair products doesn’t address your particular need, 
 
 ## Related Posts
 
-- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
-- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
-- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
-- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
-- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
 - [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
+- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
+- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
 - [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
+- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
 - [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
+- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
 - [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
+- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
 - [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Organic Hair Products ...](https://hair.allwomenstalk.com/organic-hair-products/)

@@ -42,16 +42,16 @@ Who else has curly hair? What are some of your curly hair secrets that you can s
 
 ## Related Posts
 
-- [baseball hat with bangs](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-a-hat/)
-- [long hair in ponytail](https://hair.allwomenstalk.com/you-must-try-these-ponytail-hacks-today-or-maybe-tomorrow/)
-- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
-- [chinahair4u](https://hair.allwomenstalk.com/hairstyles-for-super-long-hair-think-rapunzel/)
-- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
-- [hollywood hair and makeup](https://hair.allwomenstalk.com/old-hollywood-hair-tutorials-for-those-glam-vibes/)
-- [paris color stylo primped](https://hair.allwomenstalk.com/these-heatless-hairstyles-are-more-than-worth-it/)
-- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
-- [hairstyles for thin hair girls](https://hair.allwomenstalk.com/sexy-styles-for-anyone-with-fine-hair/)
 - [cute hairstyles that dont take long](https://hair.allwomenstalk.com/hairstyles-that-wont-get-in-the-way-during-makeout-sessions/)
+- [hairstyles for thin hair girls](https://hair.allwomenstalk.com/sexy-styles-for-anyone-with-fine-hair/)
+- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
+- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
+- [paris color stylo primped](https://hair.allwomenstalk.com/these-heatless-hairstyles-are-more-than-worth-it/)
+- [long hair in ponytail](https://hair.allwomenstalk.com/you-must-try-these-ponytail-hacks-today-or-maybe-tomorrow/)
+- [baseball hat with bangs](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-a-hat/)
+- [chinahair4u](https://hair.allwomenstalk.com/hairstyles-for-super-long-hair-think-rapunzel/)
+- [hollywood hair and makeup](https://hair.allwomenstalk.com/old-hollywood-hair-tutorials-for-those-glam-vibes/)
+- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

@@ -188,16 +188,16 @@ What do you think of these hairstyles? What's your favorite way to wear a Dutch 
 
 ## Related Posts
 
-- [down hairdos](https://hair.allwomenstalk.com/the-hottest-half-uphalf-down-hairdos-around/)
-- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
-- [fun ways to add color to your hair](https://hair.allwomenstalk.com/subtle-but-stylish-ways-to-add-color-to-your-hair/)
-- [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
-- [braids and headband](https://hair.allwomenstalk.com/these-easy-headband-braids-are-so-cute-for-spring/)
-- [elegant black ladies](https://hair.allwomenstalk.com/elegant-hairstyles-for-beautiful-black-women-to-wear-to-weddings/)
 - [ultimate hairstyle try-on](https://apps.allwomenstalk.com/hair-apps-to-get-you-out-of-a-style-rut/)
-- [cute festival hairstyles](https://hair.allwomenstalk.com/festival-friendly-hairstyles-you-can-rock-out-with/)
+- [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
 - [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
 - [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
+- [elegant black ladies](https://hair.allwomenstalk.com/elegant-hairstyles-for-beautiful-black-women-to-wear-to-weddings/)
+- [cute festival hairstyles](https://hair.allwomenstalk.com/festival-friendly-hairstyles-you-can-rock-out-with/)
+- [braids and headband](https://hair.allwomenstalk.com/these-easy-headband-braids-are-so-cute-for-spring/)
+- [fun ways to add color to your hair](https://hair.allwomenstalk.com/subtle-but-stylish-ways-to-add-color-to-your-hair/)
+- [down hairdos](https://hair.allwomenstalk.com/the-hottest-half-uphalf-down-hairdos-around/)
+- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
 - [12 Fab  Easy Bun Hairstyles ...](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
 - [13 Fun Braided Hairstyles to Try ...](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 

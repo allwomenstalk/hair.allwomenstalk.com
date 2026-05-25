@@ -80,16 +80,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20196912)
 
 ## Related Posts
 
-- [tips for smooth and silky hair](https://hair.allwomenstalk.com/fantastic-tips-for-silky-smooth-hair/)
-- [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
-- [hair crunching](https://hair.allwomenstalk.com/ways-to-tell-your-hair-has-been-damaged/)
 - [how to give the best blowout](https://hair.allwomenstalk.com/easy-steps-to-achieve-the-perfect-blowout/)
-- [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
-- [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
+- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [tips for smooth and silky hair](https://hair.allwomenstalk.com/fantastic-tips-for-silky-smooth-hair/)
+- [hair crunching](https://hair.allwomenstalk.com/ways-to-tell-your-hair-has-been-damaged/)
 - [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
 - [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
-- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
+- [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
+- [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [8 Celebrity Hairstyles You Should Steal ...](https://allwomenstalk.com/8-celebrity-hairstyles-you-should-steal/)
 

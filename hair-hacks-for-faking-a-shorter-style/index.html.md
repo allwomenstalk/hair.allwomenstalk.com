@@ -42,16 +42,16 @@ Have you ever thought about fake a shorter cut instead of actually getting a sho
 
 ## Related Posts
 
-- [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
-- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
-- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
 - [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
-- [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
 - [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
+- [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
+- [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
 - [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
+- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
+- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 

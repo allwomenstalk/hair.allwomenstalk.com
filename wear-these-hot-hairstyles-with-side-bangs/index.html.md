@@ -42,16 +42,16 @@ If you have side bangs, then you should try all of these cute hairstyles! If you
 
 ## Related Posts
 
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
-- [braid inspiration](https://hair.allwomenstalk.com/instagram-braid-inspiration-thatll-turn-you-into-the-queen-of-insta/)
-- [folded ponytail](https://hair.allwomenstalk.com/quick-hairstyles-for-late-mornings/)
-- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hairstyles-that-are-perfect-for-low-maintenance-girls/)
 - [hairstyles](https://hair.allwomenstalk.com/inspirational-hair-styles-for-girls-with-long-hair/)
-- [wedding guest headbands](https://wedding.allwomenstalk.com/gorgeous-hair-inspirations-for-your-wedding-day/)
 - [alternative to french braid](https://hair.allwomenstalk.com/these-hair-tutorials-will-make-braiding-easier-than-ever/)
-- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
+- [braid inspiration](https://hair.allwomenstalk.com/instagram-braid-inspiration-thatll-turn-you-into-the-queen-of-insta/)
+- [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
+- [folded ponytail](https://hair.allwomenstalk.com/quick-hairstyles-for-late-mornings/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
 - [tidy bun hairstyle](https://hair.allwomenstalk.com/gorgeous-buns-to-try/)
+- [wedding guest headbands](https://wedding.allwomenstalk.com/gorgeous-hair-inspirations-for-your-wedding-day/)
+- [girls designer head wear](https://fashion.allwomenstalk.com/gorgeous-headbands-for-girls-who-want-to-look-more-ladylike/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hairstyles-that-are-perfect-for-low-maintenance-girls/)
 - [7 Interesting Ways to Style Your Bangs ...](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
 - [7 Different Styles of Bangs ...](https://allwomenstalk.com/7-different-styles-of-bangs/)
 

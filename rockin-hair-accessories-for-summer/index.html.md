@@ -56,16 +56,16 @@ What’s your favorite summer hairdo? Do you love the accessories I’ve mention
 
 ## Related Posts
 
-- [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
-- [can you wear leather dress in the summer](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leather-this-summer/)
-- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
-- [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
-- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
-- [fashion dos and donts](https://fashion.allwomenstalk.com/summer-fashion-dos-and-donts/)
-- [casual concert outfit](https://streetstyle.allwomenstalk.com/street-style-outfits-for-your-next-summer-concert/)
 - [warm weather dresses](https://fashion.allwomenstalk.com/essential-summer-dresses-to-embrace-the-warm-weather-in/)
-- [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
+- [can you wear leather dress in the summer](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leather-this-summer/)
+- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
+- [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
+- [casual concert outfit](https://streetstyle.allwomenstalk.com/street-style-outfits-for-your-next-summer-concert/)
 - [preppy taylor swift pics](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-this-summer/)
+- [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
+- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
+- [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
+- [fashion dos and donts](https://fashion.allwomenstalk.com/summer-fashion-dos-and-donts/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 

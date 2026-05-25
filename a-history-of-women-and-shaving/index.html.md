@@ -22,16 +22,16 @@ So women had to cover up in the old ages. They also had to sneak the razors of m
 
 ## Related Posts
 
-- [Commitments to Make on International Womens Day 20...](https://inspiration.allwomenstalk.com/commitments-to-make-on-international-womens-day/)
-- [Lets Celebrate Women  Its International Womens Day...](https://inspiration.allwomenstalk.com/lets-celebrate-women-its-international-womens-day-today/)
-- [Strong Women Have Always Been a Vital Component of...](https://bilbr.com/strong-women-have-always-been-a-vital-component-of-film-and-theyre-not-going-anywhere/)
-- [3 Excellent Reasons to Invest in Female Startups](https://allwomenstalk.com/reasons-to-invest-in-female-startups/)
-- [To the Women We Hurt ...](https://love.allwomenstalk.com/an-open-letter-to-women-on-behalf-of-men-everywhere/)
-- [High Paying Occupations for Women ...](https://money.allwomenstalk.com/high-paying-occupations-for-women/)
-- [Why More Women Are Getting into Real Estate Invest...](https://allwomenstalk.com/more-women-are-getting-into-real-estate-investment/)
-- [Women Doing What They Gotta do ...](https://parenting.allwomenstalk.com/women-doing-what-they-gotta-do/)
 - [the future of wealth is female](https://allwomenstalk.com/the-future-of-finance-is-female/)
+- [Commitments to Make on International Womens Day 20...](https://inspiration.allwomenstalk.com/commitments-to-make-on-international-womens-day/)
+- [To the Women We Hurt ...](https://love.allwomenstalk.com/an-open-letter-to-women-on-behalf-of-men-everywhere/)
+- [3 Excellent Reasons to Invest in Female Startups](https://allwomenstalk.com/reasons-to-invest-in-female-startups/)
+- [Lets Celebrate Women  Its International Womens Day...](https://inspiration.allwomenstalk.com/lets-celebrate-women-its-international-womens-day-today/)
 - [5 Women That Totally Changed Medicine ...](https://inspiration.allwomenstalk.com/women-that-changed-medicine/)
+- [High Paying Occupations for Women ...](https://money.allwomenstalk.com/high-paying-occupations-for-women/)
+- [Women Doing What They Gotta do ...](https://parenting.allwomenstalk.com/women-doing-what-they-gotta-do/)
+- [Why More Women Are Getting into Real Estate Invest...](https://allwomenstalk.com/more-women-are-getting-into-real-estate-investment/)
+- [Strong Women Have Always Been a Vital Component of...](https://bilbr.com/strong-women-have-always-been-a-vital-component-of-film-and-theyre-not-going-anywhere/)
 - [A Good Shave is Hard to Find ...](https://allwomenstalk.com/a-good-shave-is-hard-to-find-3/)
 - [Before They Had Stylists ...](https://allwomenstalk.com/before-they-had-stylists/)
 

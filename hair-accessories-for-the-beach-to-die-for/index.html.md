@@ -78,16 +78,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11156183)
 
 ## Related Posts
 
-- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
-- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
-- [movie characters with two braids](https://hair.allwomenstalk.com/movie-inspired-braided-hairstyles-to-try/)
-- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
 - [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
-- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
-- [paris color smoky eye neon skirt](https://hair.allwomenstalk.com/amazing-hair-trends-to-try/)
 - [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
 - [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
+- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
+- [paris color smoky eye neon skirt](https://hair.allwomenstalk.com/amazing-hair-trends-to-try/)
+- [movie characters with two braids](https://hair.allwomenstalk.com/movie-inspired-braided-hairstyles-to-try/)
+- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
+- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
 - [beachy braids](https://hair.allwomenstalk.com/cute-versions-of-a-beachy-wave-style/)
+- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [9 Amazing Hairpieces to Wear to Parties ...](https://hair.allwomenstalk.com/amazing-hairpieces-to-wear-to-parties/)
 

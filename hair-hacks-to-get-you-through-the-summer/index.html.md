@@ -42,16 +42,16 @@ How do you keep your hair looking fabulous in the summertime? Which of these tip
 
 ## Related Posts
 
-- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
-- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
-- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
 - [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
-- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
-- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
+- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
 - [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
-- [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
-- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
+- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
 - [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
+- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
+- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
+- [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
+- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
+- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Fat Loss Tips for Summer ...](https://allwomenstalk.com/7-fat-loss-tips-for-summer/)
 

@@ -88,16 +88,16 @@ Top Image Source: _frozenfashions.wordpress.com_
 
 ## Related Posts
 
-- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
-- [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
-- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
-- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
-- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
-- [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
 - [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
+- [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
 - [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
 - [how to make thick hair lay flat](https://hair.allwomenstalk.com/tips-on-how-to-deal-with-thick-hair/)
+- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
+- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
+- [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
+- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
 - [7 Essential Tips on How to Choose the Best Haircut...](https://hair.allwomenstalk.com/essential-tips-on-how-to-choose-the-best-haircut/)
 - [7 Universal Tips on How to Style Long Hair ...](https://hair.allwomenstalk.com/universal-tips-on-how-to-style-long-hair/)
 

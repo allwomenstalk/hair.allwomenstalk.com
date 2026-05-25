@@ -72,16 +72,16 @@ Top Image Source: [livejournal.com](https://ohnotheydidnt.livejournal.com/724891
 
 ## Related Posts
 
-- [must have natural hair products](https://hair.allwomenstalk.com/must-have-natural-hair-care-products-for-gorgeous-hair/)
 - [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
-- [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
-- [amazing haircare](https://hair.allwomenstalk.com/amazing-hair-care-products-youve-got-to-try/)
-- [natural hair detangler home remedy](https://hair.allwomenstalk.com/homemade-hair-remedies-for-shiny-hair/)
-- [styling tools](https://hair.allwomenstalk.com/hair-styling-tools-finally-explained/)
+- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
+- [kegunaan kondisioner](https://hair.allwomenstalk.com/uses-of-hair-conditioner/)
 - [best natural hair treatment](https://hair.allwomenstalk.com/all-natural-hair-treatments/)
 - [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
-- [kegunaan kondisioner](https://hair.allwomenstalk.com/uses-of-hair-conditioner/)
-- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
+- [amazing haircare](https://hair.allwomenstalk.com/amazing-hair-care-products-youve-got-to-try/)
+- [natural hair detangler home remedy](https://hair.allwomenstalk.com/homemade-hair-remedies-for-shiny-hair/)
+- [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
+- [styling tools](https://hair.allwomenstalk.com/hair-styling-tools-finally-explained/)
+- [must have natural hair products](https://hair.allwomenstalk.com/must-have-natural-hair-care-products-for-gorgeous-hair/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [7 Hair-Care Hints for Blondes ...](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
 

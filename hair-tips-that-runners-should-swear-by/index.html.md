@@ -56,16 +56,16 @@ Do you like to run for exercise? What do you do with your hair while you’re po
 
 ## Related Posts
 
-- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
-- [how to part hair into 4 sections](https://hair.allwomenstalk.com/the-locks-list-your-ultimate-guide-to-every-hair-hack-you-could-want/)
 - [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
-- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
-- [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
 - [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
 - [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
+- [how to part hair into 4 sections](https://hair.allwomenstalk.com/the-locks-list-your-ultimate-guide-to-every-hair-hack-you-could-want/)
+- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
+- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
+- [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
 - [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
-- [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
 - [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
+- [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [20 Best Kept Hair Secrets ...](https://allwomenstalk.com/20-best-kept-hair-secrets/)
 

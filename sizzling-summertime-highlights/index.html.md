@@ -44,16 +44,16 @@ Top Photo Credit: [yearofthegurl](https://www.flickr.com/photos/yearofthegurl/43
 
 ## Related Posts
 
-- [So Labor Days over Summers Gone and the GUY NO...](https://allwomenstalk.com/so-labor-days-over-summers-gone-and-the-guy-no/)
+- [summer treatments](https://allwomenstalk.com/7-beauty-treatments-for-summer/)
+- [what to do on summer nights](https://lifestyle.allwomenstalk.com/ways-to-enjoy-your-summer-nights-2/)
 - [6 Items I Keep in My Beach Bag ...](https://lifestyle.allwomenstalk.com/items-i-keep-in-my-beach-bag/)
+- [things to do to keep cool](https://lifestyle.allwomenstalk.com/summer-activities-to-keep-cool/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/poolside-pieces/)
 - [best summer snacks](https://allwomenstalk.com/top-8-summer-snacks/)
 - [tanning season](https://allwomenstalk.com/tanning-season/)
-- [summer treatments](https://allwomenstalk.com/7-beauty-treatments-for-summer/)
+- [So Labor Days over Summers Gone and the GUY NO...](https://allwomenstalk.com/so-labor-days-over-summers-gone-and-the-guy-no/)
 - [oprahs favorite tequila](https://allwomenstalk.com/oprahs-favorite-summer-things/)
-- [what to do on summer nights](https://lifestyle.allwomenstalk.com/ways-to-enjoy-your-summer-nights-2/)
-- [things to do to keep cool](https://lifestyle.allwomenstalk.com/summer-activities-to-keep-cool/)
 - [simple summer safety tips](https://allwomenstalk.com/7-summer-safety-tips/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/poolside-pieces/)
 - [8 Things to do This Summer ...](https://allwomenstalk.com/8-things-to-do-this-summer/)
 - [7 Great Summer Beers ...](https://allwomenstalk.com/7-great-summer-beers/)
 

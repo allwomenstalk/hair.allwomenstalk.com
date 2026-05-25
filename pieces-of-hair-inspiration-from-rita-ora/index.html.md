@@ -132,16 +132,16 @@ Source: [The VMAs Beauty Looks You've](https://www.refinery29.com/en-us/2014/08/
 
 ## Related Posts
 
-- [long hair edgy](https://hair.allwomenstalk.com/badass-hairstyles-thatll-make-you-feel-unstoppable/)
-- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
-- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
-- [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
 - [holiday updo](https://hair.allwomenstalk.com/these-easy-holiday-hairstyles-are-everything-youve-ever-wanted/)
-- [how to do glitter roots](https://hair.allwomenstalk.com/youll-want-to-rock-these-gorgeous-glitter-roots/)
-- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
-- [hair up styles casual](https://hair.allwomenstalk.com/casual-yet-classy-updos-to-wear-to-thanksgiving-dinner/)
+- [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
 - [twist rope braid](https://hair.allwomenstalk.com/a-step-by-step-guide-to-creating-a-gorgeous-rope-braid/)
 - [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
+- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [how to do glitter roots](https://hair.allwomenstalk.com/youll-want-to-rock-these-gorgeous-glitter-roots/)
+- [long hair edgy](https://hair.allwomenstalk.com/badass-hairstyles-thatll-make-you-feel-unstoppable/)
+- [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
+- [hair up styles casual](https://hair.allwomenstalk.com/casual-yet-classy-updos-to-wear-to-thanksgiving-dinner/)
+- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
 - [27 Incredible Hair Looks by Katy Perry ...](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
 - [Lets Get All Kinds of Inspo from Rihannas Hair ove...](https://hair.allwomenstalk.com/lets-get-all-kinds-of-inspo-from-rihannas-hair-over-the-years/)
 

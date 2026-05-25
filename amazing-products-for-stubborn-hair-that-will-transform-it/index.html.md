@@ -56,16 +56,16 @@ All of us deal with stubborn hair at some point. Most of us want hair that someo
 
 ## Related Posts
 
-- [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
-- [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
-- [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
-- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
-- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
 - [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
-- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
+- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
 - [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
+- [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
+- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Organic Hair Products ...](https://hair.allwomenstalk.com/organic-hair-products/)
 

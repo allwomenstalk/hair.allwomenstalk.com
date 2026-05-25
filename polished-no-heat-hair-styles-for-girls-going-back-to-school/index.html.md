@@ -42,16 +42,16 @@ No heat styles are so amazing! 🙌🏻 I think my favorite part is that it spar
 
 ## Related Posts
 
-- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
 - [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
-- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
-- [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
-- [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
-- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
-- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
-- [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
 - [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
+- [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
+- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
+- [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
+- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
+- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
+- [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
 - [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
+- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 - [11 Fabulous and Easy Hairstyles That Dont Require ...](https://hair.allwomenstalk.com/fabulous-and-easy-hairstyles-that-dont-require-any-heat/)
 

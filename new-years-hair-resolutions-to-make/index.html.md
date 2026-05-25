@@ -118,16 +118,16 @@ This article was written in collaboration with editors Eliza Martinez and Lisa W
 
 ## Related Posts
 
-- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
-- [different ways to style your hair](https://hair.allwomenstalk.com/quick-and-easy-ways-to-style-your-hair/)
-- [kool aid dye dark hair](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
-- [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
-- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
-- [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
-- [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
-- [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
-- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
 - [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
+- [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
+- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
+- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
+- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
+- [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
+- [different ways to style your hair](https://hair.allwomenstalk.com/quick-and-easy-ways-to-style-your-hair/)
+- [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
+- [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
+- [kool aid dye dark hair](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

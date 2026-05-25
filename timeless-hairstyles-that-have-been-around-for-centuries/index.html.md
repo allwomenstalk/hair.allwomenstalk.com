@@ -56,16 +56,16 @@ Which of these timeless hairstyles do you love the most? I think I love them all
 
 ## Related Posts
 
-- [sweeping bangs long hair](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-so-hot-right-now/)
-- [hiking hair styles](https://hair.allwomenstalk.com/got-to-have-hairstyles-for-girls-with-long-hair/)
 - [simple easy easter hairstyles](https://hair.allwomenstalk.com/look-hot-during-the-holidays-how-should-you-style-your-hair-this-easter/)
-- [long bon](https://hair.allwomenstalk.com/sick-of-having-long-hair-check-out-these-long-bob-inspos-now/)
-- [anne hathaway waterfall bangs](https://hair.allwomenstalk.com/these-long-hair-inspos-will-make-you-love-your-locks/)
-- [how often should i wash my short hair](https://hair.allwomenstalk.com/call-your-stylist-short-hair-is-officially-more-manageable-than-long-hair/)
-- [hairstyles for grade 8 grad](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
-- [tatie glam shop](https://hair.allwomenstalk.com/hair-trend-beach-waves-inspos-you-must-copy-this-spring/)
+- [hiking hair styles](https://hair.allwomenstalk.com/got-to-have-hairstyles-for-girls-with-long-hair/)
 - [retro hair](https://hair.allwomenstalk.com/every-woman-should-have-these-types-of-retro-hair-accessories/)
+- [how often should i wash my short hair](https://hair.allwomenstalk.com/call-your-stylist-short-hair-is-officially-more-manageable-than-long-hair/)
+- [long bon](https://hair.allwomenstalk.com/sick-of-having-long-hair-check-out-these-long-bob-inspos-now/)
+- [hairstyles for grade 8 grad](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
+- [anne hathaway waterfall bangs](https://hair.allwomenstalk.com/these-long-hair-inspos-will-make-you-love-your-locks/)
+- [tatie glam shop](https://hair.allwomenstalk.com/hair-trend-beach-waves-inspos-you-must-copy-this-spring/)
 - [sexy hair ideas](https://hair.allwomenstalk.com/look-sexy-during-your-work-out-session-with-these-hairstyles/)
+- [sweeping bangs long hair](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-so-hot-right-now/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 

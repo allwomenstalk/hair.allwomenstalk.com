@@ -80,16 +80,16 @@ Relaxed hair is so, so beautiful. I think that ethnic hair is under appreciated 
 
 ## Related Posts
 
-- [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
-- [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
 - [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
-- [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
-- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
-- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
-- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
 - [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
+- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
+- [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
+- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
+- [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
+- [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 

@@ -32,16 +32,16 @@ Many people already have naturally curly hair, but have you ever wanted to see h
 
 ## Related Posts
 
-- [hairstyles to make face look smaller](https://hair.allwomenstalk.com/hairstyles-for-a-slimmer-face/)
-- [short bob bridal hair](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [Awesome Hair Apps to Get You out of a Style Rut .....](https://apps.allwomenstalk.com/hair-apps-to-get-you-out-of-a-style-rut-2/)
-- [From Drab to Fab - New Year Hair Makeover Ideas to...](https://allwomenstalk.com/new-year-hair-makeover-ideas/)
-- [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [Stunningly Simple Ways to Style Fall Hair ...](https://hair.allwomenstalk.com/simple-ways-to-style-hair-for-fall/)
+- [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [wedding hairdos](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [The Best Hairstyle for Your Face Shape ...](https://hair.allwomenstalk.com/the-best-hairstyle-for-your-face-shape/)
-- [Cute and Simple Ways to Make Scrunchies Trendy Aga...](https://fashion.allwomenstalk.com/cute-and-simple-ways-to-make-scrunchies-trendy-again/)
 - [Perfect Hairstyles To Complement Lederhosen For Bo...](https://allwomenstalk.com/hairstyles-for-lederhosen/)
+- [hairstyles to make face look smaller](https://hair.allwomenstalk.com/hairstyles-for-a-slimmer-face/)
+- [From Drab to Fab - New Year Hair Makeover Ideas to...](https://allwomenstalk.com/new-year-hair-makeover-ideas/)
+- [short bob bridal hair](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
+- [Cute and Simple Ways to Make Scrunchies Trendy Aga...](https://fashion.allwomenstalk.com/cute-and-simple-ways-to-make-scrunchies-trendy-again/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 

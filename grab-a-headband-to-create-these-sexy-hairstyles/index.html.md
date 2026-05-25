@@ -42,16 +42,16 @@ All you need is a headband and a little bit of time in order to make yourself lo
 
 ## Related Posts
 
+- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
+- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
 - [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
-- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
-- [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
 - [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
 - [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
-- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
-- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
 - [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
-- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
-- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
+- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
+- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
+- [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
+- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
 - [5 Tips for Wearing Headbands. This Seasons Hottest...](https://allwomenstalk.com/5-tips-for-wearing-headbands-this-seasons-hottest-accessory/)
 - [7 Must Have Hair Accessories for Girls ...](https://allwomenstalk.com/7-must-have-hair-accessories-for-girls/)
 

@@ -48,16 +48,16 @@ Top Photo Credit: [Sosbyn](https://www.flickr.com/photos/sosbyn/5567209976/)
 
 ## Related Posts
 
-- [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
-- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
-- [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
-- [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
 - [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
-- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
+- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
+- [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
+- [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
+- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
 - [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
-- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
-- [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
+- [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
+- [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
+- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [8 Steps to Beautiful Bed Head Hair ...](https://hair.allwomenstalk.com/8-steps-to-beautiful-bed-head-hair/)
 - [7 Steps to a Chic Chignon ...](https://hair.allwomenstalk.com/7-steps-to-a-chic-chignon/)
 

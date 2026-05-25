@@ -48,16 +48,16 @@ So, ladies, now you don’t have to spend the extra time taking a shower after y
 
 ## Related Posts
 
-- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
-- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
+- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
 - [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
+- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
+- [what does over processed hair look like](https://hair.allwomenstalk.com/foolproof-ways-to-care-for-over-processed-hair/)
+- [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
 - [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
-- [girls gone styled](https://hair.allwomenstalk.com/reasons-to-go-to-a-salon-to-get-your-hair-styled/)
+- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
 - [styling tips for short hair](https://hair.allwomenstalk.com/tips-for-managing-short-hair/)
 - [loreal paris color le stylo silver couture](https://hair.allwomenstalk.com/cons-of-short-hair/)
-- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
-- [what does over processed hair look like](https://hair.allwomenstalk.com/foolproof-ways-to-care-for-over-processed-hair/)
+- [girls gone styled](https://hair.allwomenstalk.com/reasons-to-go-to-a-salon-to-get-your-hair-styled/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [7 Ways to Make Your Hair Stay Fresh Longer ...](https://hair.allwomenstalk.com/ways-to-make-your-hair-stay-fresh-longer/)
 
