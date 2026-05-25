@@ -20,14 +20,14 @@ Are you looking for a big change? If so, here we have some different shades of t
 
 ## Related Posts
 
-- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
-- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
-- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
 - [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
-- [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
 - [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
+- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
+- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [10 Favorite Trends from the 90s We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
+- [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
 - [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
 - [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
 - [Fall 2008 Beauty Trend Gray and Purple Eyes ...](https://allwomenstalk.com/fall-beauty-trend-gray-and-purple-eyes/)

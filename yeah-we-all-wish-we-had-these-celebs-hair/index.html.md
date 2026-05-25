@@ -126,16 +126,16 @@ Sure, I'd like her voice (who wouldn't?) but I'd also love her new hairstyle, sl
 
 ## Related Posts
 
-- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
 - [how old was dakota culkin when she died](https://celebs.allwomenstalk.com/child-stars-then-and-now/)
+- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
+- [crying celebs](https://music.allwomenstalk.com/precious-celebs-breaking-down-crying-while-singing/)
+- [ryan reynolds crush](https://funny.allwomenstalk.com/everyone-who-has-a-crush-on-ryan-reynolds-needs-to-see-these-tweets/)
+- [best couples in films](https://celebs.allwomenstalk.com/famous-power-couples-from-movies-every-romantic-must-know/)
+- [david hyde pierce net worth](https://celebs.allwomenstalk.com/gay-actors-who-aced-their-straight-roles/)
+- [eminem alf](https://celebs.allwomenstalk.com/celebrity-tbt-photos-youre-going-to-flip-over/)
+- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
 - [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
 - [non binary celebrity](https://celebs.allwomenstalk.com/these-gender-fluid-celebs-are-just-plain-sexy/)
-- [best couples in films](https://celebs.allwomenstalk.com/famous-power-couples-from-movies-every-romantic-must-know/)
-- [ryan reynolds crush](https://funny.allwomenstalk.com/everyone-who-has-a-crush-on-ryan-reynolds-needs-to-see-these-tweets/)
-- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
-- [eminem alf](https://celebs.allwomenstalk.com/celebrity-tbt-photos-youre-going-to-flip-over/)
-- [david hyde pierce net worth](https://celebs.allwomenstalk.com/gay-actors-who-aced-their-straight-roles/)
-- [crying celebs](https://music.allwomenstalk.com/precious-celebs-breaking-down-crying-while-singing/)
 - [Smile like a Celebrity](https://allwomenstalk.com/smile-like-a-celebrity/)
 - [No Bad Hair Day: Which Products do Celebs Use to M...](https://allwomenstalk.com/which-products-do-celebs-use-to-maintain-their-manes/)
 

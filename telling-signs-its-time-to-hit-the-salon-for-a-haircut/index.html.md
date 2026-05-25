@@ -42,16 +42,16 @@ Put your salon on speed dial and use it often ^_^
 
 ## Related Posts
 
-- [Obvious Signs You Need a New  Career Path ...](https://money.allwomenstalk.com/signs-its-time-to-change-your-career/)
-- [5 Signs You Might Be  Having a Heart Attack ...](https://health.allwomenstalk.com/signs-of-a-heart-attack/)
 - [7 Signs You Might Be Eating Too Much Sugar ...](https://diet.allwomenstalk.com/signs-you-might-be-eating-too-much-sugar/)
-- [warning bad mood](https://health.allwomenstalk.com/warning-signs-your-bad-mood-may-actually-be-depression/)
-- [Warning Signs Youre Depressed for Girls Who Feel I...](https://health.allwomenstalk.com/signs-youre-depressed/)
 - [8 Warning Signs 20-somethings Need to Watch for wh...](https://health.allwomenstalk.com/warning-signs-20-somethings-need-to-watch-for-when-it-comes-to-their-health/)
-- [english tea gif](https://lifestyle.allwomenstalk.com/signs-you-absolutely-love-fall/)
-- [Warning Signs Youre Suffering from Dating Fatigue ...](https://love.allwomenstalk.com/signs-youre-suffering-from-dating-fatigue/)
-- [Telltale  Signs You May Have an Anxiety Disorder ....](https://mindfulness.allwomenstalk.com/signs-you-may-have-an-anxiety-disorder/)
+- [Warning Signs Youre Depressed for Girls Who Feel I...](https://health.allwomenstalk.com/signs-youre-depressed/)
+- [warning bad mood](https://health.allwomenstalk.com/warning-signs-your-bad-mood-may-actually-be-depression/)
 - [unusual signs of dehydration](https://health.allwomenstalk.com/signs-youre-dehydrated/)
+- [5 Signs You Might Be  Having a Heart Attack ...](https://health.allwomenstalk.com/signs-of-a-heart-attack/)
+- [english tea gif](https://lifestyle.allwomenstalk.com/signs-you-absolutely-love-fall/)
+- [Telltale  Signs You May Have an Anxiety Disorder ....](https://mindfulness.allwomenstalk.com/signs-you-may-have-an-anxiety-disorder/)
+- [Warning Signs Youre Suffering from Dating Fatigue ...](https://love.allwomenstalk.com/signs-youre-suffering-from-dating-fatigue/)
+- [Obvious Signs You Need a New  Career Path ...](https://money.allwomenstalk.com/signs-its-time-to-change-your-career/)
 - [7 Signs Youre a Fashion Junkie ...](https://allwomenstalk.com/7-signs-youre-a-fashion-junkie/)
 - [7 Signs That You Wear Too Much Makeup ...](https://makeup.allwomenstalk.com/signs-that-you-wear-too-much-makeup/)
 

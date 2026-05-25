@@ -42,16 +42,16 @@ Would you ever risk dyeing your own hair? I actually think it’s pretty awesome
 
 ## Related Posts
 
-- [Foolproof Tricks for Getting Silky Smooth Hair ...](https://hair.allwomenstalk.com/ways-to-get-silky-smooth-hair/)
-- [7 Tips on Getting Rid of Greasy Hair ...](https://hair.allwomenstalk.com/tips-on-getting-rid-of-greasy-hair/)
-- [7 Summer Hair Problems and What to do about Them ....](https://hair.allwomenstalk.com/summer-hair-problems-and-what-to-do-about-them/)
+- [Whats Your Hair Color Say about You ...](https://hair.allwomenstalk.com/whats-your-hair-color-say-about-you/)
 - [7 Ways to Reduce Frizz  Have Drama Free Hair ...](https://hair.allwomenstalk.com/ways-to-reduce-frizz-have-drama-free-hair/)
-- [7 Ways to Keep Your Hair Healthy when Youre Pregna...](https://hair.allwomenstalk.com/ways-to-keep-your-hair-healthy-when-youre-pregnant/)
 - [crop chop haircut](https://hair.allwomenstalk.com/reasons-to-take-the-plunge-and-get-a-short-haircut/)
-- [loreal color riche le smoky pearly pink](https://hair.allwomenstalk.com/things-to-note-when-dyeing-your-hair-for-the-first-time/)
 - [7 Reasons to Break up with Your Hairstylist ...](https://hair.allwomenstalk.com/reasons-to-break-up-with-your-hairstylist/)
 - [dreadful hair](https://hair.allwomenstalk.com/dreadful-hair-mistakes-you-need-to-avoid/)
-- [Whats Your Hair Color Say about You ...](https://hair.allwomenstalk.com/whats-your-hair-color-say-about-you/)
+- [7 Ways to Keep Your Hair Healthy when Youre Pregna...](https://hair.allwomenstalk.com/ways-to-keep-your-hair-healthy-when-youre-pregnant/)
+- [7 Tips on Getting Rid of Greasy Hair ...](https://hair.allwomenstalk.com/tips-on-getting-rid-of-greasy-hair/)
+- [loreal color riche le smoky pearly pink](https://hair.allwomenstalk.com/things-to-note-when-dyeing-your-hair-for-the-first-time/)
+- [Foolproof Tricks for Getting Silky Smooth Hair ...](https://hair.allwomenstalk.com/ways-to-get-silky-smooth-hair/)
+- [7 Summer Hair Problems and What to do about Them ....](https://hair.allwomenstalk.com/summer-hair-problems-and-what-to-do-about-them/)
 - [7 Tips to Dye Your Hair Darker ...](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 

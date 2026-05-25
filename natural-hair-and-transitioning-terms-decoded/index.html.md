@@ -66,16 +66,16 @@ These are just a few of the many natural hair and transitioning terms. As the co
 
 ## Related Posts
 
-- [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
 - [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
-- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
 - [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
-- [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
-- [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
-- [loreal paris color riche stylo smoky shadow rush](https://hair.allwomenstalk.com/things-you-need-to-remember-when-you-choose-a-drastic-hair-color-change/)
 - [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
-- [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
+- [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
 - [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
+- [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
+- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
+- [loreal paris color riche stylo smoky shadow rush](https://hair.allwomenstalk.com/things-you-need-to-remember-when-you-choose-a-drastic-hair-color-change/)
+- [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
+- [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

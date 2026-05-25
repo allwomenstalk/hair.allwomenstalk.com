@@ -42,16 +42,16 @@ What are your thoughts on Ombre hair dye? Yay or nay? I’d definitely go with y
 
 ## Related Posts
 
+- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
 - [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
+- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
+- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
+- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
 - [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
 - [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
-- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
-- [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
-- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
-- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
 - [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
-- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
-- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
+- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
+- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
 - [7 Reasons I Heart Highlights ...](https://hair.allwomenstalk.com/7-reasons-i-heart-highlights/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

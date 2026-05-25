@@ -56,16 +56,16 @@ I’m sure that I've went over a few of the worst hair trends that you didn't ev
 
 ## Related Posts
 
-- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
-- [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
-- [how to make long hair appear short](https://hair.allwomenstalk.com/hairstyles-that-make-long-hair-look-short/)
-- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
-- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
-- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
-- [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
 - [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
-- [male ombre long hair](https://hair.allwomenstalk.com/celebrity-hairstyles-we-love/)
 - [librarian hairstyles](https://hair.allwomenstalk.com/beautiful-and-stylish-hair-dos-to-give-you-a-whole-new-look/)
+- [how to make long hair appear short](https://hair.allwomenstalk.com/hairstyles-that-make-long-hair-look-short/)
+- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
+- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
+- [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
+- [male ombre long hair](https://hair.allwomenstalk.com/celebrity-hairstyles-we-love/)
+- [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
+- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
+- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

@@ -116,16 +116,16 @@ We spend a lot of money getting hair colored so we’ve got to do what we can to
 
 ## Related Posts
 
-- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
-- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
-- [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
-- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
 - [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
-- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
+- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
+- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
 - [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
-- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
-- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
+- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
 - [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
+- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
+- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
+- [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
+- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
 - [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 - [7 Most Intensive Hair Conditioners for Damaged Hai...](https://allwomenstalk.com/7-most-intensive-hair-conditioners-for-damaged-hair/)
 

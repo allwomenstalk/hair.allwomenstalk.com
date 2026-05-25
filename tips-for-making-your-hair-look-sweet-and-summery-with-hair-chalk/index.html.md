@@ -56,16 +56,16 @@ Summer is the perfect time to experiment with your hair. Why? Because there are 
 
 ## Related Posts
 
-- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
-- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
-- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
-- [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
-- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
-- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
-- [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
+- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
+- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
+- [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
+- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
+- [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
+- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
+- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 

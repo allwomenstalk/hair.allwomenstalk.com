@@ -100,16 +100,16 @@ No matter what your hair type, you can find a hair care product that will give y
 
 ## Related Posts
 
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
+- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
+- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
+- [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
 - [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
 - [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
-- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
-- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [8 Volumizing Mascaras ...](https://makeup.allwomenstalk.com/volumizing-mascaras/)
 - [7 Best Hairsprays That I Love ...](https://hair.allwomenstalk.com/best-hairsprays-that-i-love/)
 

@@ -56,16 +56,16 @@ Now that you've seen the hair trends for 2013, how will you refresh your own tre
 
 ## Related Posts
 
-- [eyeglass styles 2013](https://fashion.allwomenstalk.com/trends-in-eyewear-for-spring/)
-- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
+- [spring 2013 fashion trends](https://fashion.allwomenstalk.com/ways-to-wear-spring-trends-now/)
 - [2013 trends fashion](https://fashion.allwomenstalk.com/street-style-trends-for-spring/)
-- [jewellery trends](https://jewelry.allwomenstalk.com/jewellery-trends-for-spring/)
-- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
+- [spring 2013 fashion trends](https://shoes.allwomenstalk.com/shoe-trends-for-spring/)
 - [fall 2013 trends](https://beauty.allwomenstalk.com/fierce-fall-beauty-trends/)
 - [2013 trends fashion](https://fashion.allwomenstalk.com/key-fashion-trends-for/)
-- [spring 2013 fashion trends](https://fashion.allwomenstalk.com/ways-to-wear-spring-trends-now/)
-- [spring 2013 fashion trends](https://shoes.allwomenstalk.com/shoe-trends-for-spring/)
+- [emitaz height](https://streetstyle.allwomenstalk.com/inspirational-street-style-ideas-for-spring/)
 - [paris riche stylo smoky endless](https://makeup.allwomenstalk.com/spring-makeup-trends/)
+- [eyeglass styles 2013](https://fashion.allwomenstalk.com/trends-in-eyewear-for-spring/)
+- [latest fashion blogs](https://fashion.allwomenstalk.com/trends-that-fashion-bloggers-love/)
+- [jewellery trends](https://jewelry.allwomenstalk.com/jewellery-trends-for-spring/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

@@ -42,16 +42,16 @@ When you end up with a bad cut, it can make you want to weep. At best you feel d
 
 ## Related Posts
 
-- [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
-- [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
-- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
-- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
-- [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
 - [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
-- [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
-- [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
-- [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
 - [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
+- [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
+- [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
+- [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
+- [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
+- [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
+- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
+- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
+- [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
 - [7 Ways to Cope with a Bad Haircut ...](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
 - [Coping with a Bad Haircut ...](https://allwomenstalk.com/coping-with-a-bad-haircut/)
 

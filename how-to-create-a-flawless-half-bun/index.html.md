@@ -42,16 +42,16 @@ Have you ever done a half bun? What other tips for getting it just right can you
 
 ## Related Posts
 
-- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
-- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
 - [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
-- [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
-- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
 - [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
-- [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
-- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
-- [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
 - [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
+- [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
+- [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
+- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
+- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
+- [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
+- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
+- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
 - [8 Steps to Beautiful Bed Head Hair ...](https://hair.allwomenstalk.com/8-steps-to-beautiful-bed-head-hair/)
 - [8 Steps to Beautiful Curls ...](https://hair.allwomenstalk.com/steps-to-beautiful-curls/)
 

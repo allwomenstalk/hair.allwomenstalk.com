@@ -112,16 +112,16 @@ So there you have fab DIY fascinators to make. I hope that these inspire you to 
 
 ## Related Posts
 
-- [what to make out of a cereal box](https://lifestyle.allwomenstalk.com/creative-ways-to-use-your-cereal-boxes/)
 - [pinterest boards ideas](https://lifestyle.allwomenstalk.com/unique-pinterest-board-ideas/)
-- [how to make a skull](https://diy.allwomenstalk.com/cool-and-creative-diy-skull-craft-projects/)
-- [diy tree stand umbrella](https://lifestyle.allwomenstalk.com/diy-umbrella-stands-to-make/)
-- [diy mustache](https://lifestyle.allwomenstalk.com/cute-mustache-craft-projects/)
-- [make a notebook](https://lifestyle.allwomenstalk.com/more-diy-notebooks-to-make/)
-- [how to make birdhouses](https://lifestyle.allwomenstalk.com/diy-birdhouses-to-make/)
-- [easy clothing to make](https://lifestyle.allwomenstalk.com/easy-dressmaking-projects-for-your-little-girl/)
 - [repurpose patio umbrella](https://lifestyle.allwomenstalk.com/amazing-ways-to-repurpose-umbrellas/)
+- [diy mustache](https://lifestyle.allwomenstalk.com/cute-mustache-craft-projects/)
+- [how to make birdhouses](https://lifestyle.allwomenstalk.com/diy-birdhouses-to-make/)
+- [diy tree stand umbrella](https://lifestyle.allwomenstalk.com/diy-umbrella-stands-to-make/)
+- [how to make a skull](https://diy.allwomenstalk.com/cool-and-creative-diy-skull-craft-projects/)
+- [what to make out of a cereal box](https://lifestyle.allwomenstalk.com/creative-ways-to-use-your-cereal-boxes/)
+- [easy clothing to make](https://lifestyle.allwomenstalk.com/easy-dressmaking-projects-for-your-little-girl/)
 - [how to make tights](https://fashion.allwomenstalk.com/terrific-diy-tights/)
+- [make a notebook](https://lifestyle.allwomenstalk.com/more-diy-notebooks-to-make/)
 - [7 Fancy Feather Accessories ...](https://fashion.allwomenstalk.com/fancy-feather-accessories/)
 - [10 Beautiful Boho Accessories to Make ...](https://fashion.allwomenstalk.com/beautiful-boho-accessories-to-make/)
 

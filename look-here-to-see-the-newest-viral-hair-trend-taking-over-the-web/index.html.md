@@ -120,16 +120,16 @@ What was your favorite shine line style? Is this something you would do to your 
 
 ## Related Posts
 
-- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
-- [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
-- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
-- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
-- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
-- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
-- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
-- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
-- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
+- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
+- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
+- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
+- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
+- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
+- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
+- [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
+- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
 - [7 Hottest Hair Trends This Fall ...](https://allwomenstalk.com/7-hottest-hair-trends-this-fall/)
 

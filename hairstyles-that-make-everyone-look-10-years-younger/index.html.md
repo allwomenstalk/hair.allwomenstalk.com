@@ -92,16 +92,16 @@ Which one of these do you plan to try today? Let me know how it goes!
 
 ## Related Posts
 
-- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
 - [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
-- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
 - [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
+- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
+- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
 - [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
 - [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
 - [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
-- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 

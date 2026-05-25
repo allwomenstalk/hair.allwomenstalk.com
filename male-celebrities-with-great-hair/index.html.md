@@ -56,14 +56,14 @@ These men have really mastered the art of perfect hair. I love how each of these
 
 ## Related Posts
 
-- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
-- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
-- [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
-- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
 - [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
 - [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
 - [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
+- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
+- [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
+- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
 - [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
 - [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)

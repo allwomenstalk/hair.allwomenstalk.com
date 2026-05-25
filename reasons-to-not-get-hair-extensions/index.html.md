@@ -46,16 +46,16 @@ You may opt for extensions because you are too impatient for your own hair to gr
 
 ## Related Posts
 
-- [i put up walls to protect myself](https://inspiration.allwomenstalk.com/reasons-you-might-have-a-wall-around-your-heart/)
-- [how to overlook things](https://love.allwomenstalk.com/reasons-you-should-overlook-faults-in-your-partner/)
-- [womens another chance](https://love.allwomenstalk.com/reasons-why-you-should-give-him-another-chance/)
-- [is it ok not to want a baby](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-not-have-children/)
-- [reasons why people cheat](https://love.allwomenstalk.com/reasons-why-people-cheat-on-their-partners-even-when-everything-seems-perfect/)
 - [why you shouldn t compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-to-stop-comparing-yourself-to-others/)
-- [why are you jealous](https://inspiration.allwomenstalk.com/life-changing-reasons-why-you-shouldnt-be-jealous-and-comparative/)
+- [how to overlook things](https://love.allwomenstalk.com/reasons-you-should-overlook-faults-in-your-partner/)
+- [reasons why people cheat](https://love.allwomenstalk.com/reasons-why-people-cheat-on-their-partners-even-when-everything-seems-perfect/)
 - [does being nice make you weak](https://inspiration.allwomenstalk.com/wonderful-reasons-why-being-nice-is-not-a-weakness/)
+- [womens another chance](https://love.allwomenstalk.com/reasons-why-you-should-give-him-another-chance/)
 - [7 Reasons to Bite Your Tongue and Avoid Bashing Yo...](https://love.allwomenstalk.com/reasons-to-bite-your-tongue-and-avoid-bashing-your-ex/)
+- [i put up walls to protect myself](https://inspiration.allwomenstalk.com/reasons-you-might-have-a-wall-around-your-heart/)
 - [how to make someone a family member on facebook](https://lifestyle.allwomenstalk.com/reasons-why-you-shouldnt-add-close-family-members-on-facebook/)
+- [why are you jealous](https://inspiration.allwomenstalk.com/life-changing-reasons-why-you-shouldnt-be-jealous-and-comparative/)
+- [is it ok not to want a baby](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-not-have-children/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [7 Secrets for Pulling off Hair Extensions ...](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
 

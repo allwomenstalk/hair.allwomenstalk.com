@@ -81,15 +81,15 @@ All of these conditioners have gotten rave reviews from hair mavens for moisturi
 ## Related Posts
 
 - [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
-- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
 - [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
 - [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
 - [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
-- [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
+- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
 - [7 Wonderful Natural Oils Your Hair Will Love ...](https://hair.allwomenstalk.com/wonderful-natural-oils-your-hair-will-love/)
 - [13 Delightfully  Wonderful Homemade Hair Condition...](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
 

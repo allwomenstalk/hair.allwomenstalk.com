@@ -108,16 +108,16 @@ This would be so cute for the gym or running!
 
 ## Related Posts
 
-- [tasteful dress](https://fashion.allwomenstalk.com/tasteful-dress-trends-we-want-to-see-in/)
-- [christmas dcor](https://lifestyle.allwomenstalk.com/the-top-christmas-decor-trends-for/)
-- [paris riche stylo smoky neon](https://makeup.allwomenstalk.com/this-easy-eyeliner-trend-is-about-to-be-huge-this-year/)
-- [food and beverage trendspet food trends](https://food.allwomenstalk.com/these-food-trends-will-be-big-in/)
-- [sunday brunch outfits](https://fashion.allwomenstalk.com/conservative-trends-to-wear-to-your-sunday-brunch/)
 - [most popular styles of clothing](https://fashion.allwomenstalk.com/whats-the-most-popular-fashion-trend-in-your-state/)
+- [christmas dcor](https://lifestyle.allwomenstalk.com/the-top-christmas-decor-trends-for/)
 - [sexiest hair color](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-of/)
+- [food and beverage trendspet food trends](https://food.allwomenstalk.com/these-food-trends-will-be-big-in/)
 - [men hairstyle with clean shave](https://hair.allwomenstalk.com/the-craziest-beauty-trends-men-rocked-in/)
-- [pinterest ball](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-pinterest/)
 - [best music festival outfits](https://fashion.allwomenstalk.com/the-trendiest-outfits-to-wear-to-your-next-music-festival/)
+- [tasteful dress](https://fashion.allwomenstalk.com/tasteful-dress-trends-we-want-to-see-in/)
+- [sunday brunch outfits](https://fashion.allwomenstalk.com/conservative-trends-to-wear-to-your-sunday-brunch/)
+- [paris riche stylo smoky neon](https://makeup.allwomenstalk.com/this-easy-eyeliner-trend-is-about-to-be-huge-this-year/)
+- [pinterest ball](https://beauty.allwomenstalk.com/biggest-beauty-trends-of-according-to-pinterest/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 - [8 Hair Trends for the Fall 2011 ...](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
 

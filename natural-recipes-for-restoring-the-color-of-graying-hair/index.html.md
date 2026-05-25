@@ -65,16 +65,16 @@ Top Image Source: [bestygirlsclub.com](https://goo.gl/6g0Lrm)
 
 ## Related Posts
 
-- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
-- [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
-- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
-- [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
-- [hair care youtube](https://hair.allwomenstalk.com/best-youtube-channels-for-hair/)
 - [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
-- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
+- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
 - [facts about brown hair and blue eyes](https://hair.allwomenstalk.com/facts-you-should-know-about-keratin-treatments-for-your-hair/)
+- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
+- [hair care youtube](https://hair.allwomenstalk.com/best-youtube-channels-for-hair/)
+- [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
 - [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
+- [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
 - [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
+- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 - [8 Foods for Healthier Hair ...](https://hair.allwomenstalk.com/foods-for-healthier-hair/)
 

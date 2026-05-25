@@ -140,16 +140,16 @@ Which of these home remedies are you going to try first?
 
 ## Related Posts
 
-- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
-- [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
-- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
-- [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
-- [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
-- [biolage original scent](https://hair.allwomenstalk.com/shampoo-and-conditioner-duos-thatll-make-you-smell-delicious/)
 - [so gorgeous hair spray](https://hair.allwomenstalk.com/get-gorgeous-hair-with-these-products-under-7/)
-- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
-- [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
+- [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
+- [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
 - [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
+- [biolage original scent](https://hair.allwomenstalk.com/shampoo-and-conditioner-duos-thatll-make-you-smell-delicious/)
+- [loreal stylo smoky timeless blue spark](https://hair.allwomenstalk.com/sephora-is-launching-a-new-hair-care-line/)
+- [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
+- [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
+- [vidal sassoon hairspray](https://hair.allwomenstalk.com/you-should-own-every-one-of-these-hair-products/)
+- [shampoo for curly hair womens](https://hair.allwomenstalk.com/these-shampoos-are-perfect-for-curly-girls/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Ways to Get Shiny Hair Fast ...](https://hair.allwomenstalk.com/ways-to-get-shiny-hair-fast/)
 

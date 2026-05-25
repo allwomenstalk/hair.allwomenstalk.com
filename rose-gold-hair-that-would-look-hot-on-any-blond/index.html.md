@@ -46,14 +46,14 @@ Rose gold is a trend that can be seen everywhere from celebs all the way to Inst
 
 ## Related Posts
 
-- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
 - [girls silver hair](https://hair.allwomenstalk.com/grey-hair-inspo-for-girls-who-want-to-try-something-different/)
-- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
-- [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
-- [girl with a bun drawing](https://hair.allwomenstalk.com/awesome-looks-for-girls-who-want-to-try-a-double-bun/)
-- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
-- [cute 17 girls](https://hair.allwomenstalk.com/super-cute-hairstyles-for-girls-who-are-growing-out-their-bangs/)
 - [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
+- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
+- [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
+- [girl with a bun drawing](https://hair.allwomenstalk.com/awesome-looks-for-girls-who-want-to-try-a-double-bun/)
+- [cute 17 girls](https://hair.allwomenstalk.com/super-cute-hairstyles-for-girls-who-are-growing-out-their-bangs/)
+- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
+- [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
 - [cute girls 17 years old](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair/)
 - [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)

@@ -50,16 +50,16 @@ How often do you have bad hair days? How do you deal?
 
 ## Related Posts
 
-- [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
-- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
-- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
-- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
-- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
-- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
-- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
-- [rainbow ends hair](https://hair.allwomenstalk.com/tips-for-making-your-hair-look-sweet-and-summery-with-hair-chalk/)
 - [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
+- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
+- [rainbow ends hair](https://hair.allwomenstalk.com/tips-for-making-your-hair-look-sweet-and-summery-with-hair-chalk/)
+- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
+- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
+- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
+- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
+- [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
+- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 

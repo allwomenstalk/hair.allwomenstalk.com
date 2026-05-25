@@ -44,16 +44,16 @@ Top Photo Credit: [alibubba](https://www.flickr.com/photos/29813670@N07/53860693
 
 ## Related Posts
 
-- [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
-- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
-- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
-- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
-- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
+- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
+- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [how to cope with bad haircut](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
+- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
 - [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
+- [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 - [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Little Known Hair Care Tips That Work ...](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
 

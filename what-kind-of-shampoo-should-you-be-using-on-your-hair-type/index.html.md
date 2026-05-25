@@ -74,16 +74,16 @@ Once you've found the right shampoo you'll be so happy with how your hair looks!
 
 ## Related Posts
 
-- [how to style bangs growing out](https://hair.allwomenstalk.com/awesome-tips-for-styling-your-bangs/)
-- [how to keep straightened hair from frizzing in hum...](https://hair.allwomenstalk.com/here-is-how-you-can-have-pin-straight-hair-even-on-a-humid-day/)
 - [hair snarl](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-knotting/)
-- [how to straighten your hair without heat](https://hair.allwomenstalk.com/how-to-straighten-your-hair-without-heat/)
 - [bouncier hair](https://hair.allwomenstalk.com/heres-the-secret-to-making-your-hair-bouncier/)
-- [static hair fix](https://hair.allwomenstalk.com/say-goodbye-to-hair-static-with-these-tips/)
 - [jessies nails helsingborg](https://hair.allwomenstalk.com/heres-how-brazilian-women-treat-split-ends/)
-- [between washes hair products](https://hair.allwomenstalk.com/ways-to-go-longer-between-hair-washes/)
-- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
+- [how to style bangs growing out](https://hair.allwomenstalk.com/awesome-tips-for-styling-your-bangs/)
 - [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
+- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
+- [between washes hair products](https://hair.allwomenstalk.com/ways-to-go-longer-between-hair-washes/)
+- [how to keep straightened hair from frizzing in hum...](https://hair.allwomenstalk.com/here-is-how-you-can-have-pin-straight-hair-even-on-a-humid-day/)
+- [static hair fix](https://hair.allwomenstalk.com/say-goodbye-to-hair-static-with-these-tips/)
+- [how to straighten your hair without heat](https://hair.allwomenstalk.com/how-to-straighten-your-hair-without-heat/)
 - [Natural Hair Problem Solutions ...](https://allwomenstalk.com/natural-hair-problem-solutions/)
 - [You Will Be Shocked when You Hear This about Your ...](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
 

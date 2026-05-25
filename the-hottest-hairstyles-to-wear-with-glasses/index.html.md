@@ -140,16 +140,16 @@ Which one do you love the best?
 
 ## Related Posts
 
-- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
-- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
-- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
-- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
-- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
 - [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
-- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
-- [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
-- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
 - [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
+- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
+- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
+- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
+- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
+- [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

@@ -44,16 +44,16 @@ Top Image Source: [finderskeepersblog.com](https://goo.gl/cErPfx)
 
 ## Related Posts
 
-- [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
-- [warm compress for ingrown hair](https://beauty.allwomenstalk.com/useful-tips-for-ingrown-hairs/)
-- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
-- [best haircut for boys](https://hair.allwomenstalk.com/neat-tricks-for-dealing-with-a-bad-haircut/)
-- [- how to choose the right brush](https://hair.allwomenstalk.com/tips-for-choosing-the-right-hair-brush/)
+- [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
 - [does being short make you look younger](https://hair.allwomenstalk.com/hair-tweaks-to-make-you-look-younger/)
 - [can you make fine hair thicker](https://hair.allwomenstalk.com/tips-to-make-thin-hair-thicker/)
-- [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
-- [how to sock bun](https://hair.allwomenstalk.com/tips-for-creating-the-perfect-sock-bun/)
+- [- how to choose the right brush](https://hair.allwomenstalk.com/tips-for-choosing-the-right-hair-brush/)
+- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
+- [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
+- [best haircut for boys](https://hair.allwomenstalk.com/neat-tricks-for-dealing-with-a-bad-haircut/)
+- [warm compress for ingrown hair](https://beauty.allwomenstalk.com/useful-tips-for-ingrown-hairs/)
 - [fall hair tips](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-autumn/)
+- [how to sock bun](https://hair.allwomenstalk.com/tips-for-creating-the-perfect-sock-bun/)
 - [7 Tips on Permanent Waves ...](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
 - [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 

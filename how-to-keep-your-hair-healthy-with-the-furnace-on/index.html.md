@@ -42,16 +42,16 @@ Does your hair suffer the effects of running the furnace? What do you do to keep
 
 ## Related Posts
 
+- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
+- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
+- [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
+- [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
 - [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
 - [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
 - [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
-- [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
-- [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
-- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
 - [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
 - [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
-- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
-- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
+- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
 - [7 Top Tips for Healthy Hair ...](https://hair.allwomenstalk.com/top-tips-for-healthy-hair/)
 - [10 Ways to Beat the Frizz in the Heat ...](https://hair.allwomenstalk.com/ways-to-beat-the-frizz-in-the-heat/)
 

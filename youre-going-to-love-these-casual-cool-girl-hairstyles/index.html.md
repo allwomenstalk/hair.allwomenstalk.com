@@ -112,16 +112,16 @@ Which one is your favorite?
 
 ## Related Posts
 
-- [fun ways to add color to your hair](https://hair.allwomenstalk.com/subtle-but-stylish-ways-to-add-color-to-your-hair/)
 - [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
-- [elegant black ladies](https://hair.allwomenstalk.com/elegant-hairstyles-for-beautiful-black-women-to-wear-to-weddings/)
-- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
 - [cute festival hairstyles](https://hair.allwomenstalk.com/festival-friendly-hairstyles-you-can-rock-out-with/)
-- [braids and headband](https://hair.allwomenstalk.com/these-easy-headband-braids-are-so-cute-for-spring/)
+- [down hairdos](https://hair.allwomenstalk.com/the-hottest-half-uphalf-down-hairdos-around/)
+- [ultimate hairstyle try-on](https://apps.allwomenstalk.com/hair-apps-to-get-you-out-of-a-style-rut/)
+- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
 - [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
 - [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
-- [ultimate hairstyle try-on](https://apps.allwomenstalk.com/hair-apps-to-get-you-out-of-a-style-rut/)
-- [down hairdos](https://hair.allwomenstalk.com/the-hottest-half-uphalf-down-hairdos-around/)
+- [braids and headband](https://hair.allwomenstalk.com/these-easy-headband-braids-are-so-cute-for-spring/)
+- [elegant black ladies](https://hair.allwomenstalk.com/elegant-hairstyles-for-beautiful-black-women-to-wear-to-weddings/)
+- [fun ways to add color to your hair](https://hair.allwomenstalk.com/subtle-but-stylish-ways-to-add-color-to-your-hair/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [7 Awesome Braided Hairstyles That Youll Love ...](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
 

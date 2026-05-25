@@ -43,15 +43,15 @@ What else do you do to keep your crowning glory healthy?
 ## Related Posts
 
 - [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
-- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
-- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
-- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
-- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
-- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
 - [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
-- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
-- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
+- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
+- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
+- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
 - [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
+- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
+- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
+- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
+- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 

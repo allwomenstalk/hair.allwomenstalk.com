@@ -180,16 +180,16 @@ Source: [hair bows for dance teams](https://goo.gl/X3ooWV)
 
 ## Related Posts
 
-- [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
-- [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
-- [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
+- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
 - [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
-- [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
+- [top knot short hair](https://hair.allwomenstalk.com/effortless-hairstyles-for-the-beach-and-beyond/)
+- [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
+- [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
 - [haircuts with a fringe](https://hair.allwomenstalk.com/join-the-fringe-festival-with-these-styles-for-girls-with-bangs/)
 - [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
-- [top knot short hair](https://hair.allwomenstalk.com/effortless-hairstyles-for-the-beach-and-beyond/)
-- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
+- [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
 - [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
+- [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
 - [Gorgeous Ways to Dress up Your Ponytail ...](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
 - [How to Create Stunning Hairstyles Using Ribbons .....](https://hair.allwomenstalk.com/beautiful-hairstyles-with-ribbons/)
 

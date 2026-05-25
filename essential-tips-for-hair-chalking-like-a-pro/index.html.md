@@ -42,15 +42,15 @@ Your hair is going to look amazing! I can’t wait to hear what you guys think a
 
 ## Related Posts
 
-- [tresemme conditioner](https://hair.allwomenstalk.com/must-know-hair-conditioning-tips-for-fabulous-hair/)
 - [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
 - [hair shocking](https://hair.allwomenstalk.com/tips-for-getting-over-the-initial-shock-after-changing-your-hair-color/)
 - [i colored my hair too dark](https://hair.allwomenstalk.com/do-it-yourself-ways-to-fix-a-dye-job-gone-wrong/)
+- [loreal color le stylo smoky eye always pink](https://hair.allwomenstalk.com/tips-on-how-to-find-a-good-hairdresser/)
 - [how to do a ombre at home](https://hair.allwomenstalk.com/useful-tips-for-achieving-a-flawless-diy-ombre-on-dark-hair/)
 - [how to make your hair kinky](https://hair.allwomenstalk.com/ways-to-tame-your-kinky-curly/)
 - [natural beach wavy hair](https://hair.allwomenstalk.com/ways-to-get-beach-waves-without-going-to-the-beach/)
+- [tresemme conditioner](https://hair.allwomenstalk.com/must-know-hair-conditioning-tips-for-fabulous-hair/)
 - [hair pump](https://hair.allwomenstalk.com/ways-to-pump-up-fine-hair-and-give-it-volume/)
-- [loreal color le stylo smoky eye always pink](https://hair.allwomenstalk.com/tips-on-how-to-find-a-good-hairdresser/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [7 Tips for DIY Hair Dye ...](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)

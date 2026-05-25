@@ -50,16 +50,16 @@ Go ahead, give these **tips for frizzy hair a shot and** definitely let me know 
 
 ## Related Posts
 
-- [how to build volume in hair](https://hair.allwomenstalk.com/ways-to-create-fabulous-volume-in-your-hair/)
-- [7 Wicked Ways to Bag a Bargain Haircut ...](https://hair.allwomenstalk.com/wicked-ways-to-bag-a-bargain-haircut/)
-- [8 Ways to Update Your up-do ...](https://hair.allwomenstalk.com/ways-to-update-your-up-do/)
-- [repair fried hair](https://hair.allwomenstalk.com/ways-to-repair-sun-fried-tresses/)
-- [7 Recommendations for Reviving Dull Hair ...](https://hair.allwomenstalk.com/recommendations-for-reviving-dull-hair/)
-- [how to style your hair when growing it out](https://hair.allwomenstalk.com/styling-tips-for-growing-out-hair/)
 - [8 Ways to Reduce Undesired Hair Growth ...](https://hair.allwomenstalk.com/ways-to-reduce-undesired-hair-growth/)
 - [7 Top Tips for Healthy Hair ...](https://hair.allwomenstalk.com/top-tips-for-healthy-hair/)
-- [gi jane haircut](https://hair.allwomenstalk.com/amazing-hair-tips-for-working-out/)
 - [7 Must-Know Tips for a Perfect Dye Job ...](https://hair.allwomenstalk.com/must-know-tips-for-a-perfect-dye-job/)
+- [repair fried hair](https://hair.allwomenstalk.com/ways-to-repair-sun-fried-tresses/)
+- [7 Recommendations for Reviving Dull Hair ...](https://hair.allwomenstalk.com/recommendations-for-reviving-dull-hair/)
+- [how to build volume in hair](https://hair.allwomenstalk.com/ways-to-create-fabulous-volume-in-your-hair/)
+- [7 Wicked Ways to Bag a Bargain Haircut ...](https://hair.allwomenstalk.com/wicked-ways-to-bag-a-bargain-haircut/)
+- [gi jane haircut](https://hair.allwomenstalk.com/amazing-hair-tips-for-working-out/)
+- [how to style your hair when growing it out](https://hair.allwomenstalk.com/styling-tips-for-growing-out-hair/)
+- [8 Ways to Update Your up-do ...](https://hair.allwomenstalk.com/ways-to-update-your-up-do/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 

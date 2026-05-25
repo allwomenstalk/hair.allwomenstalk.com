@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21605514)
 
 ## Related Posts
 
-- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
+- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
 - [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
+- [how to protect hair in humid weather](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
+- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
+- [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
+- [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
+- [7 Ways to Handle Combination Hair ...](https://hair.allwomenstalk.com/7-ways-to-handle-combination-hair/)
+- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 - [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
 - [make your own dry shampoo](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
-- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
-- [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
-- [how to protect hair in humid weather](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
-- [7 Ways to Handle Combination Hair ...](https://hair.allwomenstalk.com/7-ways-to-handle-combination-hair/)
-- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
-- [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 

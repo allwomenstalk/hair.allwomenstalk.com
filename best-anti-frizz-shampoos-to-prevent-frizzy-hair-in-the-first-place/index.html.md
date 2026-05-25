@@ -118,16 +118,16 @@ If you suffer from frizz, what’s your favorite product? I like a handful of th
 
 ## Related Posts
 
-- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
 - [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
+- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
 - [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
 - [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
-- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [15 Best Shampoos for Dry Hair ...](https://allwomenstalk.com/10-best-shampoos-for-dry-hair/)
 

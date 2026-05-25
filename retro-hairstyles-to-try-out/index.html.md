@@ -62,14 +62,14 @@ There are plenty of retro hairstyle tutorials available on the internet if you w
 
 ## Related Posts
 
-- [glamrock hair style](https://hair.allwomenstalk.com/new-interesting-ways-to-style-your-layered-hair/)
-- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
-- [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
-- [what side do you wear a flower in your hair](https://hair.allwomenstalk.com/stylish-ways-to-wear-flowers-in-your-hair/)
-- [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
 - [sam villa hair tutorials](https://hair.allwomenstalk.com/video-tutorials-from-professional-hair-stylists/)
+- [what side do you wear a flower in your hair](https://hair.allwomenstalk.com/stylish-ways-to-wear-flowers-in-your-hair/)
 - [side swept braid wedding hair](https://wedding.allwomenstalk.com/braided-hairstyles-for-your-big-day/)
+- [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
+- [glamrock hair style](https://hair.allwomenstalk.com/new-interesting-ways-to-style-your-layered-hair/)
 - [sene hair](https://hair.allwomenstalk.com/amazing-tutorials-to-help-you-rock-scene-hair/)
+- [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
+- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
 - [oktoberfest hair braids](https://hair.allwomenstalk.com/coolest-hassle-free-hairstyles-for-moms/)
 - [what kind of hair is most attractive](https://hair.allwomenstalk.com/hairstyles-guys-love/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)

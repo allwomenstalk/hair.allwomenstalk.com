@@ -66,16 +66,16 @@ Okay, so are you ready to go get a pixie cut now? And maybe dye it blond, too? W
 
 ## Related Posts
 
-- [half up curly prom hair](https://hair.allwomenstalk.com/perfect-hairstyles-for-a-gorgeous-look-at-coachella/)
-- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
-- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
-- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
-- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
-- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
-- [lazy easy hairstyles for school](https://hair.allwomenstalk.com/most-awesomely-easy-hairstyles-any-lazy-girl-can-do-quickly/)
 - [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
+- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
+- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
+- [half up curly prom hair](https://hair.allwomenstalk.com/perfect-hairstyles-for-a-gorgeous-look-at-coachella/)
+- [lazy easy hairstyles for school](https://hair.allwomenstalk.com/most-awesomely-easy-hairstyles-any-lazy-girl-can-do-quickly/)
 - [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
+- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
+- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
 - [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
+- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
 - [8 Simply Stunning Short Hairstyles ...](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
 - [7 Stylish Suggestions on Styling a Pixie Cut ...](https://hair.allwomenstalk.com/stylish-suggestions-on-styling-a-pixie-cut/)
 

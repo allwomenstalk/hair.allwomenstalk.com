@@ -58,16 +58,16 @@ Sulfate-free shampoos don’t have to cost a lot in order to get the results you
 
 ## Related Posts
 
-- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
 - [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
-- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
-- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
-- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
-- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
-- [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
-- [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
+- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
 - [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
+- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [good oils to put in your hair](https://hair.allwomenstalk.com/useful-oils-to-use-in-your-hair-to-keep-it-healthy-and-gorgeous/)
+- [stubborn hair](https://hair.allwomenstalk.com/amazing-products-for-stubborn-hair-that-will-transform-it/)
+- [cocoa powder and baking soda dry shampoo](https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/)
+- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
+- [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [7 Best Hairstyling Products Ever ...](https://allwomenstalk.com/7-best-hairstyling-products-ever/)
 

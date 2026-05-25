@@ -54,16 +54,16 @@ I love using shampoos that add body because they give my locks more dimension. V
 
 ## Related Posts
 
-- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
-- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
-- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
-- [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
-- [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
-- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
 - [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
-- [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
-- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
 - [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
+- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
+- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
+- [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
+- [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
+- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
+- [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
+- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
+- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 

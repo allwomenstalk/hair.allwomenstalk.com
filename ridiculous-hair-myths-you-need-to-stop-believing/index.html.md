@@ -104,15 +104,15 @@ It’s a shame that these ridiculous hair myths are so vastly popular that every
 
 ## Related Posts
 
-- [what is hair chalk](https://hair.allwomenstalk.com/essential-tips-for-hair-chalking-like-a-pro/)
-- [natural beach wavy hair](https://hair.allwomenstalk.com/ways-to-get-beach-waves-without-going-to-the-beach/)
-- [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
-- [i colored my hair too dark](https://hair.allwomenstalk.com/do-it-yourself-ways-to-fix-a-dye-job-gone-wrong/)
-- [how to make your hair kinky](https://hair.allwomenstalk.com/ways-to-tame-your-kinky-curly/)
 - [hair pump](https://hair.allwomenstalk.com/ways-to-pump-up-fine-hair-and-give-it-volume/)
-- [how to do a ombre at home](https://hair.allwomenstalk.com/useful-tips-for-achieving-a-flawless-diy-ombre-on-dark-hair/)
+- [what is hair chalk](https://hair.allwomenstalk.com/essential-tips-for-hair-chalking-like-a-pro/)
+- [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
 - [hair shocking](https://hair.allwomenstalk.com/tips-for-getting-over-the-initial-shock-after-changing-your-hair-color/)
+- [i colored my hair too dark](https://hair.allwomenstalk.com/do-it-yourself-ways-to-fix-a-dye-job-gone-wrong/)
 - [loreal color le stylo smoky eye always pink](https://hair.allwomenstalk.com/tips-on-how-to-find-a-good-hairdresser/)
+- [natural beach wavy hair](https://hair.allwomenstalk.com/ways-to-get-beach-waves-without-going-to-the-beach/)
+- [how to do a ombre at home](https://hair.allwomenstalk.com/useful-tips-for-achieving-a-flawless-diy-ombre-on-dark-hair/)
+- [how to make your hair kinky](https://hair.allwomenstalk.com/ways-to-tame-your-kinky-curly/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [8 Unbelievably Atrocious Hair Tips You Should Say ...](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
 - [9 Amazing Hair Facts You Should Know ...](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)

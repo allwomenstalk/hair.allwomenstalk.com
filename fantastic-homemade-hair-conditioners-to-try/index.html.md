@@ -245,16 +245,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
-- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
-- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
-- [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
-- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
-- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
-- [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
 - [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
 - [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
+- [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
+- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
+- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
+- [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
 - [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
+- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
+- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 - [7 Awesome Hair Products to Try ...](https://allwomenstalk.com/7-awesome-hair-products-to-try/)
 

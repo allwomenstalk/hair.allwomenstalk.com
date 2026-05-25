@@ -114,16 +114,16 @@ Breathtaking.
 
 ## Related Posts
 
-- [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
-- [shaved side curly hair](https://hair.allwomenstalk.com/these-haircuts-will-make-you-look-fierce-af/)
-- [moon bangs](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-the-biggest-hair-trend-this-spring/)
-- [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
-- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
 - [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
-- [caribbean curls ig](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
-- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
-- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
+- [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
 - [spiral braids hairstyles](https://hair.allwomenstalk.com/sexy-braids-for-everyone-with-ethnic-hair/)
+- [shaved side curly hair](https://hair.allwomenstalk.com/these-haircuts-will-make-you-look-fierce-af/)
+- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
+- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
+- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
+- [caribbean curls ig](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
+- [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
+- [moon bangs](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-the-biggest-hair-trend-this-spring/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Stylish Ways to Wear Your Hair This Season ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
 

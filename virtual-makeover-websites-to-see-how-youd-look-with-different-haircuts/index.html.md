@@ -42,16 +42,16 @@ Your hair can make or break your look, which is why you want to make sure your p
 
 ## Related Posts
 
-- [simple easy easter hairstyles](https://hair.allwomenstalk.com/look-hot-during-the-holidays-how-should-you-style-your-hair-this-easter/)
 - [hairstyles for grade 8 grad](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
-- [hiking hair styles](https://hair.allwomenstalk.com/got-to-have-hairstyles-for-girls-with-long-hair/)
-- [cute hairstyles with bangs tumblr](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
-- [retro hair](https://hair.allwomenstalk.com/every-woman-should-have-these-types-of-retro-hair-accessories/)
-- [sweeping bangs long hair](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-so-hot-right-now/)
 - [anne hathaway waterfall bangs](https://hair.allwomenstalk.com/these-long-hair-inspos-will-make-you-love-your-locks/)
+- [retro hair](https://hair.allwomenstalk.com/every-woman-should-have-these-types-of-retro-hair-accessories/)
+- [cute hairstyles with bangs tumblr](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
+- [simple easy easter hairstyles](https://hair.allwomenstalk.com/look-hot-during-the-holidays-how-should-you-style-your-hair-this-easter/)
 - [lauren graham curly hair](https://hair.allwomenstalk.com/curly-hair-inspos-that-every-curly-girl-will-appreciate/)
 - [tatie glam shop](https://hair.allwomenstalk.com/hair-trend-beach-waves-inspos-you-must-copy-this-spring/)
+- [hiking hair styles](https://hair.allwomenstalk.com/got-to-have-hairstyles-for-girls-with-long-hair/)
 - [hairstyles that never go out of style](https://hair.allwomenstalk.com/timeless-hairstyles-that-have-been-around-for-centuries/)
+- [sweeping bangs long hair](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-so-hot-right-now/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 

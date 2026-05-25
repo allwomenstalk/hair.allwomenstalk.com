@@ -196,16 +196,16 @@ Source: [How To: 10 Easy Summer](https://www.self.com/gallery/easy-summer-hair-s
 
 ## Related Posts
 
-- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
-- [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
 - [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
-- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
-- [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
-- [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
-- [top knot short hair](https://hair.allwomenstalk.com/effortless-hairstyles-for-the-beach-and-beyond/)
 - [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
+- [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
+- [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
+- [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
 - [haircuts with a fringe](https://hair.allwomenstalk.com/join-the-fringe-festival-with-these-styles-for-girls-with-bangs/)
+- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
+- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
 - [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
+- [top knot short hair](https://hair.allwomenstalk.com/effortless-hairstyles-for-the-beach-and-beyond/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

@@ -140,16 +140,16 @@ Which of these styles do you like best? Let me know how it goes!
 
 ## Related Posts
 
-- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
-- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
-- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
 - [hair up styles casual](https://hair.allwomenstalk.com/casual-yet-classy-updos-to-wear-to-thanksgiving-dinner/)
 - [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
-- [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
 - [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
+- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
 - [hair tattoo art](https://hair.allwomenstalk.com/you-havent-lived-until-youve-tried-these-hair-tattoos/)
+- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [cheekbones woman](https://hair.allwomenstalk.com/sexy-hairstyles-that-will-bring-out-your-cheekbones/)
+- [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
 - [cute hairstyles for picture day](https://hair.allwomenstalk.com/hair-hacks-for-5-minute-styles/)
-- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [4 Bridal Hairstyles That Work for Everyone ...](https://wedding.allwomenstalk.com/bridal-hairstyles-that-work-for-everyone/)
 

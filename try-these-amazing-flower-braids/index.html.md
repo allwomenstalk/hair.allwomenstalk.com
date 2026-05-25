@@ -96,16 +96,16 @@ Braids have been big for a while now - thanks Elsa and Katniss! - but the new tw
 
 ## Related Posts
 
-- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
-- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
-- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
-- [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
-- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
-- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
 - [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
 - [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
 - [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
+- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
+- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
 - [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
+- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
+- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
 - [13 Fun Braided Hairstyles to Try ...](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [Gorgeous Ways to Dress up Your Ponytail ...](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
 

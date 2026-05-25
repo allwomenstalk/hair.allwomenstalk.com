@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11028495)
 
 ## Related Posts
 
-- [color my quest](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
-- [9 Tips for More Hair Volume ...](https://hair.allwomenstalk.com/tips-for-more-hair-volume/)
-- [super sensitive scalp](https://hair.allwomenstalk.com/tips-for-dealing-with-a-very-sensitive-scalp/)
-- [bad hair good groove 5](https://hair.allwomenstalk.com/emergency-hair-fixes/)
 - [8 Steps to Beautiful Curls ...](https://hair.allwomenstalk.com/steps-to-beautiful-curls/)
-- [nice tips](https://hair.allwomenstalk.com/tips-for-being-nice-to-your-hair/)
-- [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
-- [gold tones in hair](https://hair.allwomenstalk.com/how-to-get-blonde-hair-7-ways-to-fight-yellow-tones/)
+- [color my quest](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
 - [how to get the shiniest hair](https://hair.allwomenstalk.com/ways-to-get-shiny-hair-fast/)
+- [9 Tips for More Hair Volume ...](https://hair.allwomenstalk.com/tips-for-more-hair-volume/)
+- [bad hair good groove 5](https://hair.allwomenstalk.com/emergency-hair-fixes/)
+- [super sensitive scalp](https://hair.allwomenstalk.com/tips-for-dealing-with-a-very-sensitive-scalp/)
+- [gold tones in hair](https://hair.allwomenstalk.com/how-to-get-blonde-hair-7-ways-to-fight-yellow-tones/)
+- [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
+- [nice tips](https://hair.allwomenstalk.com/tips-for-being-nice-to-your-hair/)
 - [8 Ways to Deal with Dry Hair ...](https://hair.allwomenstalk.com/8-ways-to-deal-with-dry-hair/)
 - [8 Tips for Curling Your Hair ...](https://hair.allwomenstalk.com/8-tips-for-curling-your-hair/)
 

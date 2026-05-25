@@ -50,16 +50,16 @@ So rather than looking for a miracle shampoo to solve your hair problems, consid
 
 ## Related Posts
 
-- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
-- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
-- [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
-- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
-- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
 - [what happens if you use conditioner before shampoo](https://hair.allwomenstalk.com/should-you-actually-use-conditioner-before-shampoo/)
+- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
+- [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
+- [rco dupes](https://hair.allwomenstalk.com/dupes-for-your-favorite-high-end-hair-products/)
+- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
 - [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
+- [zodiac hair chart](https://hair.allwomenstalk.com/incredibly-useful-hair-charts-thatll-change-your-life/)
+- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
 - [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
 - [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
-- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 

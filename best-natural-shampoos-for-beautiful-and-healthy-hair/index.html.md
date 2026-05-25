@@ -94,16 +94,16 @@ Natural shampoos are quite impressive for being so gentle. Many people have had 
 
 ## Related Posts
 
+- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
 - [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
 - [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
-- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
 - [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
-- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
+- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
 - [12 Products for Beautiful Hair ...](https://allwomenstalk.com/best-products-for-beautiful-hair/)
 - [15 Best Shampoos for Dry Hair ...](https://allwomenstalk.com/10-best-shampoos-for-dry-hair/)
 

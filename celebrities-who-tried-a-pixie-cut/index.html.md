@@ -68,16 +68,16 @@ What’s your favorite celebrity pixie cut? Would you ever try one out? Let me k
 
 ## Related Posts
 
-- [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
-- [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
-- [jessica lucas body](https://celebs.allwomenstalk.com/ridiculously-talented-canadian-stars-to-watch-out-for/)
-- [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
-- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
-- [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
-- [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
-- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
 - [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
+- [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
+- [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
+- [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
 - [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
+- [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
+- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
+- [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
+- [jessica lucas body](https://celebs.allwomenstalk.com/ridiculously-talented-canadian-stars-to-watch-out-for/)
+- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 

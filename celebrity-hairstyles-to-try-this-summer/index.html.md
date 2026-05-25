@@ -56,16 +56,16 @@ There you go, seven different celebrity hairstyles to try out this summer. Wheth
 
 ## Related Posts
 
-- [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
-- [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
-- [male ombre long hair](https://hair.allwomenstalk.com/celebrity-hairstyles-we-love/)
-- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
 - [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
 - [librarian hairstyles](https://hair.allwomenstalk.com/beautiful-and-stylish-hair-dos-to-give-you-a-whole-new-look/)
-- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
-- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
-- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
+- [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
+- [male ombre long hair](https://hair.allwomenstalk.com/celebrity-hairstyles-we-love/)
 - [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
+- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
+- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
+- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
+- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
+- [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 

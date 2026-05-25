@@ -96,16 +96,16 @@ It's almost Halloween girlies and it's time to take your hair to the next level.
 
 ## Related Posts
 
-- [halloween themed bar drinks](https://food.allwomenstalk.com/alcoholic-drinks-fit-for-halloween/)
 - [movies like casper meets wendy](https://movies.allwomenstalk.com/halloween-movies-that-wont-give-you-sleepless-nights/)
-- [costumes in your closet](https://fashion.allwomenstalk.com/make-these-halloween-costumes-with-items-you-already-have-in-your-closet/)
-- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
-- [crush halloween costume](https://love.allwomenstalk.com/how-to-handle-a-halloween-party-with-your-crush/)
-- [cute halloween face paint ideas](https://makeup.allwomenstalk.com/face-painting-ideas-that-will-take-your-costume-to-a-whole-new-level/)
+- [halloween themed bar drinks](https://food.allwomenstalk.com/alcoholic-drinks-fit-for-halloween/)
 - [pumpkin spice pringles](https://lifestyle.allwomenstalk.com/perfectly-ordinary-items-that-have-been-pumpkin-spiced-to-death/)
-- [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
 - [teenagers trick or treating](https://lifestyle.allwomenstalk.com/alternatives-to-trick-or-treating-for-teens/)
+- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
+- [costumes in your closet](https://fashion.allwomenstalk.com/make-these-halloween-costumes-with-items-you-already-have-in-your-closet/)
+- [crush halloween costume](https://love.allwomenstalk.com/how-to-handle-a-halloween-party-with-your-crush/)
+- [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
 - [decoration halloween cupcake](https://food.allwomenstalk.com/the-spookiest-way-to-decorate-your-halloween-cupcakes/)
+- [cute halloween face paint ideas](https://makeup.allwomenstalk.com/face-painting-ideas-that-will-take-your-costume-to-a-whole-new-level/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 - [9 Amazing Hairpieces to Wear to Parties ...](https://hair.allwomenstalk.com/amazing-hairpieces-to-wear-to-parties/)
 

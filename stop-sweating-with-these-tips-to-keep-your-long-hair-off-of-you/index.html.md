@@ -42,16 +42,16 @@ Can you feel yourself feeling cooling off now? Which look are you dying to try? 
 
 ## Related Posts
 
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
 - [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
-- [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
+- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
 - [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
-- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
+- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
 - [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
 - [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
-- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
-- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
+- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
+- [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
 - [Its Raining Its Pouring: How to Keep Your Hair Loo...](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
 - [Heres How to Protect Your Hair from the Scorching ...](https://hair.allwomenstalk.com/heres-how-to-protect-your-hair-from-the-scorching-hot-sun/)
 

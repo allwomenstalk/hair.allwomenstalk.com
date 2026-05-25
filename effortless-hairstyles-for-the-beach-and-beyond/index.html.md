@@ -162,16 +162,16 @@ Did you spot a hairstyle you'd like to try? I'm really into the braided looks my
 
 ## Related Posts
 
-- [after shower hairstyles](https://hair.allwomenstalk.com/hairstyles-to-use-when-you-dont-have-time-to-shower/)
-- [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
-- [how to wear a headband with a bun](https://hair.allwomenstalk.com/fun-and-flirty-headband-hairstyles-for-summer/)
-- [different bangs for different face shapes](https://hair.allwomenstalk.com/what-are-the-best-bangs-for-your-face-shape/)
-- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
-- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
-- [long hairstyles for interview](https://hair.allwomenstalk.com/interview-hairstyles-to-create-a-great-first-impression/)
 - [rihanna grey hair](https://hair.allwomenstalk.com/lets-get-all-kinds-of-inspo-from-rihannas-hair-over-the-years/)
-- [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
 - [deep side part](https://hair.allwomenstalk.com/change-your-look-just-by-parting-your-hair/)
+- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
+- [how to wear a headband with a bun](https://hair.allwomenstalk.com/fun-and-flirty-headband-hairstyles-for-summer/)
+- [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
+- [different bangs for different face shapes](https://hair.allwomenstalk.com/what-are-the-best-bangs-for-your-face-shape/)
+- [after shower hairstyles](https://hair.allwomenstalk.com/hairstyles-to-use-when-you-dont-have-time-to-shower/)
+- [long hairstyles for interview](https://hair.allwomenstalk.com/interview-hairstyles-to-create-a-great-first-impression/)
+- [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
+- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
 - [Easy Summer Hair Style ...](https://allwomenstalk.com/easy-summer-hair-style/)
 - [7 Cute Beach Hair Looks ...](https://allwomenstalk.com/7-cute-beach-hair-looks/)
 

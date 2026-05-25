@@ -134,16 +134,16 @@ _ 4 easy steps to revamp_
 
 ## Related Posts
 
-- [baseball hat with bangs](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-a-hat/)
-- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
-- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
-- [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
-- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
-- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
 - [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
-- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
+- [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
+- [baseball hat with bangs](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-a-hat/)
 - [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
+- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
 - [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
+- [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
+- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
+- [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
+- [extremely long hair](https://hair.allwomenstalk.com/hairstyles-that-will-hide-those-nasty-roots/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [7 New Ponytail Styles to Try This Season ...](https://hair.allwomenstalk.com/new-ponytail-styles-to-try-this-season/)
 

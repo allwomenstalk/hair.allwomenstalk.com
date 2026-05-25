@@ -118,16 +118,16 @@ Do you have a hair tip that a hair professional has shared with you? Please do s
 
 ## Related Posts
 
-- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
-- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
-- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
 - [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
-- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
-- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [elegant hair brushes](https://hair.allwomenstalk.com/top-notch-hair-brushes-that-will-blow-you-away/)
-- [drugstore hair products](https://hair.allwomenstalk.com/drugstore-hair-care-products-for-hot-hair-on-a-budget/)
 - [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
+- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [sexy healthy hair](https://hair.allwomenstalk.com/diy-healthy-hair-recipes/)
+- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
+- [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
+- [drugstore hair products](https://hair.allwomenstalk.com/drugstore-hair-care-products-for-hot-hair-on-a-budget/)
+- [shampoo effect](https://hair.allwomenstalk.com/shampoo-ingredients-you-should-know-about/)
+- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 

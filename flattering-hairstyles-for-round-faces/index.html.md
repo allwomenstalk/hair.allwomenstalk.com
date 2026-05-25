@@ -210,14 +210,14 @@ This is one of my favorite long styles for round faces. this would tempt me into
 
 ## Related Posts
 
-- [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
-- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
-- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
-- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
-- [hair romance](https://hair.allwomenstalk.com/romantic-hairdos-to-wow-your-date-on-valentines-day-and-beyond/)
 - [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
-- [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
+- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
+- [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
+- [hair romance](https://hair.allwomenstalk.com/romantic-hairdos-to-wow-your-date-on-valentines-day-and-beyond/)
 - [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
+- [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
+- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
+- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
 - [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
 - [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
 - [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)

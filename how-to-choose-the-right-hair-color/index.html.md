@@ -50,14 +50,14 @@ When you are finished, take a bunch of selfies to post on social media and feel 
 
 ## Related Posts
 
-- [hairstyle while sleeping](https://hair.allwomenstalk.com/how-to-get-the-hair-of-your-dreams-while-you-sleep/)
-- [how to treat sun damaged hair](https://hair.allwomenstalk.com/how-to-repair-sun-damaged-hair/)
-- [rainbow tips hair](https://hair.allwomenstalk.com/ways-to-keep-your-rainbow-hair-vibrant/)
-- [thicker beauties](https://hair.allwomenstalk.com/ways-to-get-thicker-hair/)
 - [how to choose perfect hair color](https://hair.allwomenstalk.com/how-to-understand-your-skin-tone-to-choose-your-perfect-hair-color/)
-- [dyed fringe hair](https://hair.allwomenstalk.com/how-to-manage-your-bangs-when-its-crazy-hot/)
 - [how to get stronger thicker hair](https://hair.allwomenstalk.com/tips-for-thicker-and-stronger-hair/)
 - [shedding eyebrows](https://hair.allwomenstalk.com/possible-causes-of-hair-shedding/)
+- [rainbow tips hair](https://hair.allwomenstalk.com/ways-to-keep-your-rainbow-hair-vibrant/)
+- [hairstyle while sleeping](https://hair.allwomenstalk.com/how-to-get-the-hair-of-your-dreams-while-you-sleep/)
+- [thicker beauties](https://hair.allwomenstalk.com/ways-to-get-thicker-hair/)
+- [dyed fringe hair](https://hair.allwomenstalk.com/how-to-manage-your-bangs-when-its-crazy-hot/)
+- [how to treat sun damaged hair](https://hair.allwomenstalk.com/how-to-repair-sun-damaged-hair/)
 - [great clips bad haircut policy](https://hair.allwomenstalk.com/how-to-ensure-you-never-have-a-bad-haircut/)
 - [ready for selfie](https://hair.allwomenstalk.com/how-to-keep-your-hair-selfie-ready/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)

@@ -70,16 +70,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11290647)
 
 ## Related Posts
 
-- [easy 5 minute hairstyles for short hair](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
-- [ponytail updos](https://hair.allwomenstalk.com/new-ponytail-styles-to-try-this-season/)
-- [butterfly braids tutorial](https://hair.allwomenstalk.com/youtube-tutorials-on-braids/)
-- [hair colouring ideas](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
 - [boho hairstyle](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 - [how to style hair everyday](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
-- [dark or light hair to look younger](https://hair.allwomenstalk.com/gorgeously-stunning-hair-styles-to-look-younger/)
-- [super longhair](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
+- [hair colouring ideas](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
+- [butterfly braids tutorial](https://hair.allwomenstalk.com/youtube-tutorials-on-braids/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
+- [super longhair](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
+- [ponytail updos](https://hair.allwomenstalk.com/new-ponytail-styles-to-try-this-season/)
 - [color le stylo hollywood icon](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
+- [easy 5 minute hairstyles for short hair](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
+- [dark or light hair to look younger](https://hair.allwomenstalk.com/gorgeously-stunning-hair-styles-to-look-younger/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 

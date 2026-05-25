@@ -74,16 +74,16 @@ I hope you think these are cute bobby pins and clips, too. Of course, everyone h
 
 ## Related Posts
 
-- [love waits purity ring](https://jewelry.allwomenstalk.com/7-sweet-purity-rings/)
-- [best tiffany bracelet](https://jewelry.allwomenstalk.com/tiffany-necklaces-to-wear-every-day/)
-- [punching knuckle rings](https://jewelry.allwomenstalk.com/7-rings-that-will-pack-a-punch/)
-- [topshop headband](https://hair.allwomenstalk.com/7-on-trend-headbands/)
-- [big name jewelry brands](https://jewelry.allwomenstalk.com/top-7-jewelry-brands/)
-- [cute outfits for the fair](https://jewelry.allwomenstalk.com/7-cute-marc-jacobs-earrings/)
-- [tiffanys anniversary ring](https://jewelry.allwomenstalk.com/8-gorgeous-tiffany-celebration-rings/)
-- [heirloom sapphire engagement rings](https://jewelry.allwomenstalk.com/7-beautiful-sapphire-engagement-rings/)
 - [7 Stunning Chandelier Earrings ...](https://jewelry.allwomenstalk.com/stunning-chandelier-earrings/)
+- [love waits purity ring](https://jewelry.allwomenstalk.com/7-sweet-purity-rings/)
+- [punching knuckle rings](https://jewelry.allwomenstalk.com/7-rings-that-will-pack-a-punch/)
+- [big name jewelry brands](https://jewelry.allwomenstalk.com/top-7-jewelry-brands/)
 - [pretty promise ring](https://jewelry.allwomenstalk.com/7-pretty-promise-rings/)
+- [heirloom sapphire engagement rings](https://jewelry.allwomenstalk.com/7-beautiful-sapphire-engagement-rings/)
+- [topshop headband](https://hair.allwomenstalk.com/7-on-trend-headbands/)
+- [tiffanys anniversary ring](https://jewelry.allwomenstalk.com/8-gorgeous-tiffany-celebration-rings/)
+- [cute outfits for the fair](https://jewelry.allwomenstalk.com/7-cute-marc-jacobs-earrings/)
+- [best tiffany bracelet](https://jewelry.allwomenstalk.com/tiffany-necklaces-to-wear-every-day/)
 - [7 Beautiful Barrettes ...](https://hair.allwomenstalk.com/7-beautiful-barrettes/)
 - [10 Happenin Headbands ...](https://hair.allwomenstalk.com/happenin-headbands/)
 

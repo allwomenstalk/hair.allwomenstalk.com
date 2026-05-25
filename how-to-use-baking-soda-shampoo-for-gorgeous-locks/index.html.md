@@ -43,15 +43,15 @@ Have you ever tried baking soda shampoo? Do you think you will? What other tips 
 ## Related Posts
 
 - [best protection for hair in the sun](https://hair.allwomenstalk.com/products-to-protect-your-hair-from-the-sun/)
-- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
-- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
 - [lenor indulge gold](https://hair.allwomenstalk.com/ways-to-get-shiny-hair/)
-- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
-- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
-- [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
-- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
-- [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
 - [rainbow hair touch](https://hair.allwomenstalk.com/products-that-will-keep-your-rainbow-hair-healthy/)
+- [worthy essential](https://hair.allwomenstalk.com/how-can-you-get-luscious-locks-with-essential-oils/)
+- [cheap flat irons](https://hair.allwomenstalk.com/the-best-flat-irons-for-your-hair/)
+- [can you use argan oil as lube](https://hair.allwomenstalk.com/not-happy-with-your-hair-argan-oil-can-help/)
+- [avoid shampoo ingredients](https://hair.allwomenstalk.com/bad-hair-these-shampoo-ingredients-are-the-reason/)
+- [oily hair but dry ends](https://hair.allwomenstalk.com/ways-to-turn-your-oily-hair-into-silky-hair/)
+- [remedies for dry hair](https://hair.allwomenstalk.com/home-remedies-for-dry-and-damaged-hair/)
+- [true hair products](https://hair.allwomenstalk.com/tried-and-true-ways-to-find-the-best-hair-products/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [8 Incredibly Amazing Ways to Get Lovely Shiny Hair...](https://hair.allwomenstalk.com/incredibly-amazing-ways-to-get-lovely-shiny-hair/)
 

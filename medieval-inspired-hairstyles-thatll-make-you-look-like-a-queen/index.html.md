@@ -42,16 +42,16 @@ The ladies in the medieval period knew what they were doing. They didn't wear th
 
 ## Related Posts
 
-- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
-- [hair goal](https://hair.allwomenstalk.com/long-hair-goals-for/)
-- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
-- [bee melvnin hair real](https://hair.allwomenstalk.com/up-your-color-game-with-northern-lights-hair/)
-- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
-- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
-- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
-- [pinned back bangs](https://hair.allwomenstalk.com/hairstyles-that-prove-how-fabulous-bobby-pins-really-are/)
-- [low pigtail buns](https://hair.allwomenstalk.com/hairstyles-men-love-to-see-us-wear/)
 - [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [pinned back bangs](https://hair.allwomenstalk.com/hairstyles-that-prove-how-fabulous-bobby-pins-really-are/)
+- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
+- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [low pigtail buns](https://hair.allwomenstalk.com/hairstyles-men-love-to-see-us-wear/)
+- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
+- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
+- [bee melvnin hair real](https://hair.allwomenstalk.com/up-your-color-game-with-northern-lights-hair/)
+- [hair goal](https://hair.allwomenstalk.com/long-hair-goals-for/)
+- [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
 - [4 Sexy Hairstyles to Create on Your Wedding Day .....](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 

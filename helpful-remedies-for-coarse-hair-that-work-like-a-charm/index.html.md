@@ -56,16 +56,16 @@ I am not the guru on curly or coarse hair. To be honest I've only had my natural
 
 ## Related Posts
 
-- [chi touch screen blow dryer](https://hair.allwomenstalk.com/amazing-blow-dryers-for-a-bodacious-blowout/)
-- [7 Products for Damaged Hair to Try ...](https://hair.allwomenstalk.com/products-for-damaged-hair-to-try/)
-- [7 Products for Bad Hair Days to Always Keep Handy ...](https://hair.allwomenstalk.com/products-for-bad-hair-days-to-always-keep-handy/)
-- [7 Best Dry Shampoos for when You Have No Time ...](https://hair.allwomenstalk.com/best-dry-shampoos-for-when-you-have-no-time/)
 - [7 Hair Treatments That Can Damage Your Hair ...](https://hair.allwomenstalk.com/hair-treatments-that-can-damage-your-hair/)
-- [7 Amazing Conditioners for Natural Hair That You W...](https://hair.allwomenstalk.com/amazing-conditioners-for-natural-hair-that-you-will-love/)
-- [7 Reasons to Splurge on Your Hair Care Appliances ...](https://hair.allwomenstalk.com/reasons-to-splurge-on-your-hair-care-appliances/)
 - [7 Amazing Leave-in Conditioners Your Hair Will Lov...](https://hair.allwomenstalk.com/amazing-leave-in-conditioners-your-hair-will-love/)
 - [nutritional deficiency that causes hair loss](https://hair.allwomenstalk.com/common-nutritional-deficiencies-that-cause-hair-loss/)
+- [7 Amazing Conditioners for Natural Hair That You W...](https://hair.allwomenstalk.com/amazing-conditioners-for-natural-hair-that-you-will-love/)
+- [7 Reasons to Splurge on Your Hair Care Appliances ...](https://hair.allwomenstalk.com/reasons-to-splurge-on-your-hair-care-appliances/)
 - [jf hair co](https://hair.allwomenstalk.com/affordable-products-for-curly-hair-that-cost-6-or-less/)
+- [chi touch screen blow dryer](https://hair.allwomenstalk.com/amazing-blow-dryers-for-a-bodacious-blowout/)
+- [7 Products for Bad Hair Days to Always Keep Handy ...](https://hair.allwomenstalk.com/products-for-bad-hair-days-to-always-keep-handy/)
+- [7 Best Dry Shampoos for when You Have No Time ...](https://hair.allwomenstalk.com/best-dry-shampoos-for-when-you-have-no-time/)
+- [7 Products for Damaged Hair to Try ...](https://hair.allwomenstalk.com/products-for-damaged-hair-to-try/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [7 Ways to Remedy a Dry Scalp ...](https://hair.allwomenstalk.com/ways-to-remedy-a-dry-scalp/)
 

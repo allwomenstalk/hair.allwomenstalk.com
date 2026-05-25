@@ -128,16 +128,16 @@ This article was written in collaboration with Holly Riordan.
 
 ## Related Posts
 
-- [mask for thin hair](https://hair.allwomenstalk.com/diy-hair-masks-for-thin-lifeless-hair/)
-- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
-- [avocado mayonnaise hair conditioner](https://beauty.allwomenstalk.com/hair-treatments-for-damaged-hair/)
-- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
-- [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
-- [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
-- [revelations salon](https://hair.allwomenstalk.com/revelations-about-what-damages-hair/)
-- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
 - [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
 - [chi hair oil](https://hair.allwomenstalk.com/highly-praised-products-for-relaxed-hair/)
+- [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
+- [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
+- [mask for thin hair](https://hair.allwomenstalk.com/diy-hair-masks-for-thin-lifeless-hair/)
+- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
+- [revelations salon](https://hair.allwomenstalk.com/revelations-about-what-damages-hair/)
+- [avocado mayonnaise hair conditioner](https://beauty.allwomenstalk.com/hair-treatments-for-damaged-hair/)
+- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
+- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
 - [11 Best Home-Made Hair Masks ...](https://allwomenstalk.com/7-best-home-made-hair-masks/)
 - [19 Fantastic Natural Homemade Shampoos ...](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
 

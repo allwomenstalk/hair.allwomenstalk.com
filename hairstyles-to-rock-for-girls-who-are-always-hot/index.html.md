@@ -56,16 +56,16 @@ What are some hairstyles you like to rock when you get hot?
 
 ## Related Posts
 
-- [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
-- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
-- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
-- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
-- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
-- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
 - [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
+- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
+- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
+- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
+- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
+- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
 - [The 20 Hottest Hair Trends for Trendy Girls ...](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
 - [Fabulous Hairstyles for Girls Who Want to Look Gor...](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 

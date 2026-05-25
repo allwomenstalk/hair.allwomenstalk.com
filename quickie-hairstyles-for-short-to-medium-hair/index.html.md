@@ -42,16 +42,16 @@ See? There are lots of amazing cute hairstyles for [short hair](https://hair.all
 
 ## Related Posts
 
+- [holidays hairstyles](https://hair.allwomenstalk.com/hot-holiday-hairstyles/)
 - [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
 - [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
-- [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
-- [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
-- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
 - [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
-- [holidays hairstyles](https://hair.allwomenstalk.com/hot-holiday-hairstyles/)
-- [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
-- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
+- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
+- [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
 - [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
+- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
+- [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
+- [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

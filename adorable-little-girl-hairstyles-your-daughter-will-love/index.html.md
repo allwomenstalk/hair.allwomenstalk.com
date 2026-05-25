@@ -193,16 +193,16 @@ Do you have a little girl whose hair you get to do? What are some other easy sty
 
 ## Related Posts
 
-- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
-- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
-- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
 - [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
-- [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
-- [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
 - [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
-- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
+- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
+- [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
+- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
 - [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
 - [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
+- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
+- [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
+- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [7 Great Blogs on Hairstyles for Little Girls ...](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
 

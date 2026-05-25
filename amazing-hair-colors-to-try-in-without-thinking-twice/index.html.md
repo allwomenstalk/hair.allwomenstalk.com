@@ -57,15 +57,15 @@ Changing your hair color is an easy and fun way to reinvent yourself in 2014. Th
 ## Related Posts
 
 - [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
-- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
-- [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
-- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
 - [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
-- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
-- [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
 - [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
-- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
+- [hairstyles for a festival](https://hair.allwomenstalk.com/adorable-hairstyles-for-music-festivals-that-anyone-can-rock/)
+- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
+- [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
 - [rockstar hairstyle men](https://hair.allwomenstalk.com/awesome-mens-hairstyles-that-we-adore/)
+- [hairstyles for bad hair day](https://hair.allwomenstalk.com/simple-hairstyles-for-bad-hair-days/)
+- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
+- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 

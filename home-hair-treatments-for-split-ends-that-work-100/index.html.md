@@ -105,15 +105,15 @@ There are a lot of home hair treatments for split ends you can do, and they'll a
 ## Related Posts
 
 - [best hair product for frizz and humidity](https://hair.allwomenstalk.com/best-humidity-hair-products-to-keep-your-hair-in-check/)
-- [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
-- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
-- [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
-- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
-- [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
-- [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
-- [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 - [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
+- [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
+- [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
+- [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
+- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
+- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
+- [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
+- [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [15 Positively Effective Ways to Make Your Hair Gro...](https://hair.allwomenstalk.com/positively-effective-ways-to-make-your-hair-grow-faster/)
 

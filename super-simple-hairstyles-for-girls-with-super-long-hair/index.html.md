@@ -46,16 +46,16 @@ Today's your lucky day, because we have not one but two romantic hairstyles for 
 
 ## Related Posts
 
-- [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
 - [shine line hair color](https://hair.allwomenstalk.com/look-here-to-see-the-newest-viral-hair-trend-taking-over-the-web/)
-- [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
-- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
-- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
-- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
-- [unicorn braid tutorial](https://hair.allwomenstalk.com/hair-inspirations-for-girls-ready-to-mix-up-their-style/)
-- [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
-- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
 - [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
+- [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
+- [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
+- [bob season hair](https://hair.allwomenstalk.com/gorgeous-long-bob-inspos-for-girls-needing-a-change-this-season/)
+- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
+- [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
+- [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
+- [unicorn braid tutorial](https://hair.allwomenstalk.com/hair-inspirations-for-girls-ready-to-mix-up-their-style/)
+- [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [17 Gorgeous Hairstyles for Lazy Girls ...](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
 

@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21758643)
 
 ## Related Posts
 
-- [trish mcevoy brush cleaner](https://allwomenstalk.com/brush-on/)
-- [International Hair Emergency ...](https://allwomenstalk.com/international-hair-emergency/)
-- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
-- [relaxer hair care](https://allwomenstalk.com/relaxer-hair-care-tips-from-the-pro/)
-- [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
 - [10 Definite Donts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
 - [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
-- [hair grabs](https://allwomenstalk.com/reader-question-what-to-do-when-hair-color-grabs/)
+- [International Hair Emergency ...](https://allwomenstalk.com/international-hair-emergency/)
+- [trish mcevoy brush cleaner](https://allwomenstalk.com/brush-on/)
 - [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [hair grabs](https://allwomenstalk.com/reader-question-what-to-do-when-hair-color-grabs/)
+- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
 - [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
+- [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
+- [relaxer hair care](https://allwomenstalk.com/relaxer-hair-care-tips-from-the-pro/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 of the Best at-Home Hair Care Tips ...](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 

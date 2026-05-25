@@ -58,15 +58,15 @@ Having oily hair doesn’t mean you have to invest in a bunch of expensive hair 
 
 ## Related Posts
 
-- [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
-- [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
-- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
 - [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
-- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
-- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
-- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
-- [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
 - [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
+- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
+- [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
+- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
+- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
+- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
+- [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
+- [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
 - [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [7 Ways to Remedy a Dry Scalp ...](https://hair.allwomenstalk.com/ways-to-remedy-a-dry-scalp/)

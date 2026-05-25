@@ -42,16 +42,16 @@ How do you save money on haircare?
 
 ## Related Posts
 
-- [how to add string to hair](https://hair.allwomenstalk.com/non-dye-ways-to-add-color-to-your-hair/)
-- [intitle:how to thinning hair](https://hair.allwomenstalk.com/heres-how-to-avoid-hat-hair/)
-- [how to fix dry hair after dying](https://hair.allwomenstalk.com/heres-how-to-keep-your-dyed-hair-hydrated/)
-- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
-- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
 - [wet cut hair](https://hair.allwomenstalk.com/should-you-ask-for-a-dry-cut-at-the-salon/)
-- [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
 - [knives chau haircut](https://hair.allwomenstalk.com/i-bet-you-do-these-things-after-a-haircut/)
+- [intitle:how to thinning hair](https://hair.allwomenstalk.com/heres-how-to-avoid-hat-hair/)
+- [how to add string to hair](https://hair.allwomenstalk.com/non-dye-ways-to-add-color-to-your-hair/)
+- [baking soda hair detox](https://hair.allwomenstalk.com/get-healthier-hair-by-following-these-steps-for-a-scalp-detox/)
 - [how to style transitioning hair after washing](https://hair.allwomenstalk.com/how-to-wash-and-detangle-your-fragile-transitioning-hair/)
+- [timon hair](https://hair.allwomenstalk.com/how-to-make-the-most-of-fine-hair/)
+- [easy hair hacks](https://hair.allwomenstalk.com/are-you-a-lazy-girl-here-are-some-easy-hair-hacks-that-you-will-love/)
 - [how to stop bangs from parting in the middle](https://hair.allwomenstalk.com/how-to-grow-your-bangs-out-in-a-month/)
+- [how to fix dry hair after dying](https://hair.allwomenstalk.com/heres-how-to-keep-your-dyed-hair-hydrated/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

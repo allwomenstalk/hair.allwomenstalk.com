@@ -86,14 +86,14 @@ Would you wear your hair in any of these styles, or do you think the past should
 
 ## Related Posts
 
-- [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
-- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
+- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
+- [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
+- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
 - [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
 - [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
 - [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
 - [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)

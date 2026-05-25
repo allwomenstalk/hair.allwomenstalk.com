@@ -56,16 +56,16 @@ Are you a brunette beauty? What do you do to take care of your brown/black hair?
 
 ## Related Posts
 
-- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
-- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
-- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
-- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
-- [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
-- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
-- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
-- [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
 - [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
 - [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
+- [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
+- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
+- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
+- [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
+- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
+- [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
+- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
 - [Top 14 Makeup Tips for Redheads ...](https://makeup.allwomenstalk.com/top-makeup-tips-for-redheads/)
 - [8 Makeup Tricks for Brunettes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-brunettes/)
 

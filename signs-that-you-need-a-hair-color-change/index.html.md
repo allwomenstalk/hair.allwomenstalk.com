@@ -70,16 +70,16 @@ This post was written in collaboration with editor Lisa Washington
 
 ## Related Posts
 
-- [im a 90s chick](https://lifestyle.allwomenstalk.com/sure-signs-that-youre-a-90s-chick/)
-- [signs of being a workaholic](https://lifestyle.allwomenstalk.com/obvious-signs-you-are-a-workaholic/)
+- [best modern dancers](https://lifestyle.allwomenstalk.com/ways-you-know-youre-a-dancer/)
 - [i need time for myself](https://lifestyle.allwomenstalk.com/signs-you-need-some-alone-time-that-you-should-give-in-to/)
 - [signs your work crush likes you](https://love.allwomenstalk.com/signs-youre-developing-an-office-crush-and-how-to-avoid-it/)
-- [signs your addicted to your phone](https://lifestyle.allwomenstalk.com/tell-tale-signs-that-youre-addicted-to-you-phone/)
-- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
-- [best modern dancers](https://lifestyle.allwomenstalk.com/ways-you-know-youre-a-dancer/)
-- [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
-- [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
 - [signs of shopping addiction](https://money.allwomenstalk.com/ways-to-tell-if-you-have-a-shopping-addiction/)
+- [im a 90s chick](https://lifestyle.allwomenstalk.com/sure-signs-that-youre-a-90s-chick/)
+- [signs of being a workaholic](https://lifestyle.allwomenstalk.com/obvious-signs-you-are-a-workaholic/)
+- [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
+- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
+- [signs your addicted to your phone](https://lifestyle.allwomenstalk.com/tell-tale-signs-that-youre-addicted-to-you-phone/)
+- [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
 - [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

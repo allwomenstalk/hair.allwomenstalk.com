@@ -44,16 +44,16 @@ Top Photo Credit: [Shandi-lee](https://www.flickr.com/photos/shandilee/511591103
 
 ## Related Posts
 
-- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
-- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
+- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
 - [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
+- [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
+- [10 Definite Donts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
+- [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
 - [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
 - [International Hair Emergency ...](https://allwomenstalk.com/international-hair-emergency/)
-- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
-- [10 Definite Donts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
 - [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
-- [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
-- [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
 - [7 Alternatives to Chemical-Based Shampoo ...](https://beauty.allwomenstalk.com/alternatives-to-chemical-based-shampoo/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 

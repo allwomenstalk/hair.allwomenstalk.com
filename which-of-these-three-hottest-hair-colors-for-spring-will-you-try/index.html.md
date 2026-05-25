@@ -218,16 +218,16 @@ Source: [De hipste kleuren van 2015](http://www.kapselsvoorhaar.nl?ref=allwomens
 
 ## Related Posts
 
-- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
-- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
-- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
-- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
-- [updos for shoulder length hair easy](https://hair.allwomenstalk.com/summer-hair-keep-your-cool-with-these-updos/)
 - [braid games](https://hair.allwomenstalk.com/fuel-your-braid-obsession-game-of-thrones-inspired-hairstyles/)
 - [cabello 4c corto](https://hair.allwomenstalk.com/easy-styles-for-short-kinky-hair/)
-- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
-- [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
 - [nose hair braids](https://hair.allwomenstalk.com/chic-boho-hair-styles-your-hair-wants-now/)
+- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
+- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
+- [clothes for women with short hair](https://hair.allwomenstalk.com/hair-inspiration-super-ways-to-dress-up-short-hair/)
+- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
+- [updos for shoulder length hair easy](https://hair.allwomenstalk.com/summer-hair-keep-your-cool-with-these-updos/)
+- [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
+- [silver hair outfits](https://hair.allwomenstalk.com/granny-glam-a-foolproof-guide-to-mastering-the-grey-hair-trend/)
 - [A Quick Guide to the Best Hairstyles for Spring](https://allwomenstalk.com/a-quick-guide-to-the-best-hairstyles-for-spring/)
 - [9 Stylish Spring Haircuts for You to Try ...](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
 

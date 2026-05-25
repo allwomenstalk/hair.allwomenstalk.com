@@ -98,16 +98,16 @@ When it comes to hair accessories, we're going back to the classics this year. J
 
 ## Related Posts
 
-- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
-- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
-- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
-- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
-- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
-- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
 - [is a loose bun bad for hair](https://hair.allwomenstalk.com/having-a-bad-hair-day-try-this-high-messy-bun/)
-- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
-- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
 - [headbands kohls](https://hair.allwomenstalk.com/headbands-to-keep-your-hair-in-place-all-day-long/)
+- [bedhead hairstyles](https://hair.allwomenstalk.com/rejoice-because-bed-head-is-the-hottest-new-hair-trend/)
+- [long hair lob](https://hair.allwomenstalk.com/how-women-with-long-hair-can-fake-a-lob/)
+- [caramel blonde lob](https://hair.allwomenstalk.com/long-bob-aka-lob-ideas-that-will-make-you-swoon-with-delight/)
+- [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
+- [younger looking hairstyles](https://hair.allwomenstalk.com/hairstyles-that-make-everyone-look-10-years-younger/)
+- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
+- [gossip girl hairstyles](https://hair.allwomenstalk.com/you-can-still-get-hair-inspiration-from-gossip-girl-in/)
+- [ready made hair buns](https://hair.allwomenstalk.com/messy-bun-inspiration-from-instagram-queens/)
 - [Beauty Trend Hair Extensions ...](https://allwomenstalk.com/beauty-trend-hair-extensions/)
 - [8 Worst Hairstyle Trends Ever ...](https://allwomenstalk.com/8-worst-hairstyle-trends-ever/)
 

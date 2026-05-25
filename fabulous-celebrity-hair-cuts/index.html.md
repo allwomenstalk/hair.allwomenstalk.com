@@ -136,15 +136,15 @@ Top Image Source: [images4.fanpop.com](http://images4.fanpop.com/image/photos/16
 
 ## Related Posts
 
-- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
-- [round shaped face](https://hair.allwomenstalk.com/lovely-hairstyles-ideal-for-round-shaped-faces/)
-- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
-- [oval shape face hairstyle](https://hair.allwomenstalk.com/awesome-hairstyles-for-oval-shaped-faces/)
-- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
-- [hair color to look younger before and after](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
-- [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
-- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 - [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
+- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
+- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
+- [hair color to look younger before and after](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
+- [oval shape face hairstyle](https://hair.allwomenstalk.com/awesome-hairstyles-for-oval-shaped-faces/)
+- [round shaped face](https://hair.allwomenstalk.com/lovely-hairstyles-ideal-for-round-shaped-faces/)
+- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
+- [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
 - [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [4 Fun Celebrity Haircuts This Week ...](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)

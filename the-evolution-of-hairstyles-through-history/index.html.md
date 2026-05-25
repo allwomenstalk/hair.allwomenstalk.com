@@ -151,15 +151,15 @@ Anything goes! Women wear their hair any which way with styles and colors changi
 ## Related Posts
 
 - [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
-- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
-- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
-- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
-- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
 - [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
-- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
+- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
 - [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
+- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
+- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
+- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
+- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
+- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

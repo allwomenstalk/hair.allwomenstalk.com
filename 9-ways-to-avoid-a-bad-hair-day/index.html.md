@@ -52,16 +52,16 @@ Top Photo Credit: [Pickled Tink](https://www.flickr.com/photos/pickledtink/22718
 
 ## Related Posts
 
-- [marcia brady brushing hair 100 times](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
-- [loreal stylo smoky azure](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
-- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
-- [baddiestvonly](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
-- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 - [8 Ways to Deal with Dry Hair ...](https://hair.allwomenstalk.com/8-ways-to-deal-with-dry-hair/)
-- [how to braid fishtail on your own hair](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
+- [loreal stylo smoky azure](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
+- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 - [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
-- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
+- [marcia brady brushing hair 100 times](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
 - [simplehair](https://hair.allwomenstalk.com/amazingly-simple-hair-care-tips-for-curly-hair/)
+- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
+- [baddiestvonly](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
+- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
+- [how to braid fishtail on your own hair](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
 - [7 Quick Fixes for a Bad Hair Day ...](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [12 Best Tips for a Bad Hair Day ...](https://allwomenstalk.com/12-best-tips-for-a-bad-hair-day/)
 

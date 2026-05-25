@@ -74,16 +74,16 @@ Do you think you'll ever take the plunge and become a fiery redhead?!
 
 ## Related Posts
 
-- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
-- [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
-- [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
 - [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
-- [what degree does brooke shields have](https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/)
-- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
-- [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
-- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
+- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
 - [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
+- [what degree does brooke shields have](https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
+- [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
+- [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
+- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
+- [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
+- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
 - [9 Celebrities with Trend-Setting Hair to Copy Happ...](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
 - [7 Celebrities Totally Rocking the Hot Pink Trend ....](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
 

@@ -56,16 +56,16 @@ Something about summer time always inspires me to try a new hair style or color.
 
 ## Related Posts
 
-- [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
-- [easy updo wavy hair](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
-- [riche smoky bottomless](https://hair.allwomenstalk.com/trendy-styles-for-long-hair/)
-- [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
-- [romper hairstyles](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
-- [short hairstyles me](https://hair.allwomenstalk.com/adorable-short-hairstyles-to-keep-you-cool-in-the-summer/)
-- [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
-- [fabulous hairstyles](https://hair.allwomenstalk.com/quick-fabulous-hairstyles-that-take-less-than-10-minutes/)
 - [front cut hairstyle](https://hair.allwomenstalk.com/easy-breezy-summer-hairstyles/)
 - [side swept fishtail braid](https://hair.allwomenstalk.com/different-ways-to-braid-your-hair/)
+- [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
+- [fabulous hairstyles](https://hair.allwomenstalk.com/quick-fabulous-hairstyles-that-take-less-than-10-minutes/)
+- [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
+- [riche smoky bottomless](https://hair.allwomenstalk.com/trendy-styles-for-long-hair/)
+- [short hairstyles me](https://hair.allwomenstalk.com/adorable-short-hairstyles-to-keep-you-cool-in-the-summer/)
+- [romper hairstyles](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
+- [easy updo wavy hair](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
+- [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 

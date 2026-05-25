@@ -42,15 +42,15 @@ Would you like to add some more short hair styling tips? Go ahead, don’t be sh
 
 ## Related Posts
 
+- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
+- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
+- [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
 - [girls gone styled](https://hair.allwomenstalk.com/reasons-to-go-to-a-salon-to-get-your-hair-styled/)
 - [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [how often should i wash my locs](https://hair.allwomenstalk.com/tips-for-caring-for-dreadlocks/)
-- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
 - [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
-- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
-- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
-- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
 - [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
+- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
+- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
 - [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)

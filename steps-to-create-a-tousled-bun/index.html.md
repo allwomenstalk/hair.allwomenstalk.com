@@ -48,16 +48,16 @@ Top Photo Credit: [Sosbyn](https://www.flickr.com/photos/sosbyn/5567209976/)
 
 ## Related Posts
 
-- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
-- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
 - [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
-- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
-- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
-- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
-- [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
+- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
+- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
+- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
+- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
+- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
 - [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
+- [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
 - [8 Steps to Beautiful Bed Head Hair ...](https://hair.allwomenstalk.com/8-steps-to-beautiful-bed-head-hair/)
 - [7 Steps to a Chic Chignon ...](https://hair.allwomenstalk.com/7-steps-to-a-chic-chignon/)
 

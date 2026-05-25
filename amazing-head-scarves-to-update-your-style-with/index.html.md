@@ -80,16 +80,16 @@ Top Image Source: [Second-Hand Vintage](http://second-handvintage.blogspot.com/2
 
 ## Related Posts
 
-- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
-- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
-- [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [paris color stylo avant azure](https://hair.allwomenstalk.com/retro-hairstyles-to-try-out/)
 - [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
+- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
+- [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
+- [paris color stylo avant azure](https://hair.allwomenstalk.com/retro-hairstyles-to-try-out/)
 - [8 Ways to Wear Your Hair This Fall ...](https://hair.allwomenstalk.com/ways-to-wear-your-hair-this-fall/)
 - [8 Stylish Fashion Statement Necklaces ...](https://jewelry.allwomenstalk.com/stylish-fashion-statement-necklaces/)
 

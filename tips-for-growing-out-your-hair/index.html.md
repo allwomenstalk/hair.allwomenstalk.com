@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22083401)
 
 ## Related Posts
 
-- [bad hair products](https://hair.allwomenstalk.com/ways-to-tell-that-your-hair-hates-a-product/)
 - [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
-- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
-- [2a hair styles](https://hair.allwomenstalk.com/styling-tips-for-unruly-hair/)
 - [diy highlighting hair](https://hair.allwomenstalk.com/tips-on-diy-highlighting/)
+- [2a hair styles](https://hair.allwomenstalk.com/styling-tips-for-unruly-hair/)
+- [bad hair products](https://hair.allwomenstalk.com/ways-to-tell-that-your-hair-hates-a-product/)
 - [allwomenstalk](https://hair.allwomenstalk.com/tips-for-perfect-curls-without-heat/)
-- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
+- [hair care myths and facts](https://hair.allwomenstalk.com/popular-hair-care-myths/)
 - [hair cutting tips](https://hair.allwomenstalk.com/tips-for-cutting-your-own-hair/)
 - [matching hair dye](https://hair.allwomenstalk.com/tips-for-matching-hair-color-with-skin-tone/)
-- [hair care myths and facts](https://hair.allwomenstalk.com/popular-hair-care-myths/)
+- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
+- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

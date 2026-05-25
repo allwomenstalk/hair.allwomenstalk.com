@@ -56,14 +56,14 @@ Want to know who else made the list? Justin Timberlake’s blonde perm came in a
 
 ## Related Posts
 
-- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
 - [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
-- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
 - [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
-- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
 - [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
-- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
+- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
+- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
+- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
 - [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
+- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
 - [paris color riche le smoky timeless spark](https://hair.allwomenstalk.com/hairstyles-that-are-easiest-to-transition-from/)
 - [layered 80s hair](https://hair.allwomenstalk.com/great-ways-to-wear-layered-hair/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)

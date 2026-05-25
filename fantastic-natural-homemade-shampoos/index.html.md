@@ -240,16 +240,16 @@ Go ahead, ladies, give a natural shampoo a shot! Do have in mind that hair needs
 
 ## Related Posts
 
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
-- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
-- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
+- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
 - [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
+- [sage grey hair before after](https://hair.allwomenstalk.com/natural-recipes-for-restoring-the-color-of-graying-hair/)
 - [living proof thinning hair](https://hair.allwomenstalk.com/very-best-products-for-thin-hair/)
 - [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
-- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
+- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
+- [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
 - [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
-- [sage grey hair before after](https://hair.allwomenstalk.com/natural-recipes-for-restoring-the-color-of-graying-hair/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 - [11 Best Home-Made Hair Masks ...](https://allwomenstalk.com/7-best-home-made-hair-masks/)
 

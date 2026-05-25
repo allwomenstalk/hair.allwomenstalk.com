@@ -66,16 +66,16 @@ Now I need to get some of these goodies and try a few of these styles! Which lob
 
 ## Related Posts
 
-- [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
 - [genius hairstyle](https://hair.allwomenstalk.com/absolute-genius-hairstyles-for-women-with-natural-hair/)
-- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
-- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
 - [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
+- [curlys hair](https://hair.allwomenstalk.com/praiseworthy-tutorials-for-styling-curly-hair/)
+- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
+- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
+- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [pin hair back on one side](https://hair.allwomenstalk.com/hairstyles-that-will-have-you-thanking-your-bobby-pins/)
 - [ariana grande low ponytail](https://hair.allwomenstalk.com/endless-options-for-ponytails-to-have-a-new-look-every-day/)
-- [hairstyles that attract guys](https://hair.allwomenstalk.com/drool-worthy-hairstyles-guys-love-to-see-on-girls/)
-- [girls party hair styles](https://hair.allwomenstalk.com/instagram-inspired-holiday-party-hairstyles/)
-- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [8 Iconic Bob Hairstyles ...](https://hair.allwomenstalk.com/iconic-bob-hairstyles/)
 - [7 Gorgeous Sideswept Styles That You Should Try Th...](https://hair.allwomenstalk.com/gorgeous-sideswept-styles-that-you-should-try-this-season/)
 

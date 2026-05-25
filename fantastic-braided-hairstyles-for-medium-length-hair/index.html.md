@@ -68,16 +68,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
+- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
+- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
 - [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
+- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
+- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
+- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
 - [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
 - [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
 - [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
-- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
-- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
-- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
-- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
-- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
-- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
 - [7 Cute Short Curly Hairstyles ...](https://hair.allwomenstalk.com/cute-short-curly-hairstyles/)
 - [7 Elegant Hairstyles for Short Hair ...](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
 

@@ -52,16 +52,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/15233421)
 
 ## Related Posts
 
-- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
-- [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
-- [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
-- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
-- [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
-- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 - [my hair gets greasy overnight](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
+- [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
+- [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
+- [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [make your own dry shampoo](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
+- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
+- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
+- [cool things to do with your hair](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

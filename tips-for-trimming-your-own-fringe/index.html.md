@@ -64,16 +64,16 @@ Top Photo Credit: [Sean Rogers1](https://www.flickr.com/photos/rogerss1/35544647
 
 ## Related Posts
 
-- [International Hair Emergency ...](https://allwomenstalk.com/international-hair-emergency/)
-- [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
-- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
-- [hair grabs](https://allwomenstalk.com/reader-question-what-to-do-when-hair-color-grabs/)
-- [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
-- [10 Definite Donts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
-- [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
-- [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
 - [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
+- [International Hair Emergency ...](https://allwomenstalk.com/international-hair-emergency/)
+- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
 - [trish mcevoy brush cleaner](https://allwomenstalk.com/brush-on/)
+- [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
+- [hair grabs](https://allwomenstalk.com/reader-question-what-to-do-when-hair-color-grabs/)
+- [Bad Hair Day Helpers on the Way](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
+- [10 Definite Donts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
+- [10 dos of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 

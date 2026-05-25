@@ -106,16 +106,16 @@ Top Photo Credit: [David Michael Fine Portraits](https://www.flickr.com/photos/d
 
 ## Related Posts
 
-- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
-- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
-- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
-- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
-- [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
-- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
-- [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
 - [tousled chignon](https://hair.allwomenstalk.com/steps-to-create-a-tousled-bun/)
-- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
+- [how to make my hair darker](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
+- [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
+- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
+- [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
+- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
+- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
+- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
+- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

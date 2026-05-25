@@ -112,16 +112,16 @@ Do you love this look? Where will you go once it's done?
 
 ## Related Posts
 
-- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
-- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
-- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
-- [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
-- [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
-- [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
-- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
-- [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
 - [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
+- [shoulder length side bangs haircut](https://hair.allwomenstalk.com/wear-these-hot-hairstyles-with-side-bangs/)
 - [gorgeous locks](https://hair.allwomenstalk.com/hacks-that-will-give-you-the-best-hair-hands-down/)
+- [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
+- [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
+- [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
+- [how to do twist out on short hair](https://hair.allwomenstalk.com/try-these-twist-out-hairstyles-when-you-want-something-new/)
+- [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
+- [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
+- [prom hair 2016](https://hair.allwomenstalk.com/the-hottest-hairstyles-for-prom-in/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

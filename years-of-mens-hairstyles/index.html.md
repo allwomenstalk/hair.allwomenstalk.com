@@ -16,16 +16,16 @@ Some old fashioned hairstyles should stay in the past, but others should be brou
 
 ## Related Posts
 
-- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
+- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
+- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
+- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
+- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
+- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
 - [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
 - [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
-- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
-- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
-- [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
-- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
-- [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
+- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

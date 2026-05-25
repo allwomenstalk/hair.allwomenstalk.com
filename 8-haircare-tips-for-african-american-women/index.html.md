@@ -48,15 +48,15 @@ Top Photo Credit: [sourskittled](https://www.flickr.com/photos/sourskittled/4617
 
 ## Related Posts
 
-- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
-- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
-- [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
-- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
 - [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
+- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
+- [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
 - [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
-- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
+- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
+- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)

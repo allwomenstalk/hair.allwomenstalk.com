@@ -136,16 +136,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
 - [what kind of hair is most attractive](https://hair.allwomenstalk.com/hairstyles-guys-love/)
-- [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
 - [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
-- [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
 - [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
 - [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
-- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
 - [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
+- [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
+- [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

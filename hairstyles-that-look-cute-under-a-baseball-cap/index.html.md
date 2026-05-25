@@ -68,16 +68,16 @@ Don't hesitate to wear your favorite baseball cap, because you can pull it off. 
 
 ## Related Posts
 
-- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
 - [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
-- [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
-- [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
-- [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
 - [lazy natural hairstyles](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
+- [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
+- [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
+- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
+- [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
 - [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
 - [fascinator hairstyles](https://hair.allwomenstalk.com/hairstyles-that-go-great-with-a-beanie-hat/)
-- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
 - [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
+- [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Ponytails That Look Adorable ...](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
 

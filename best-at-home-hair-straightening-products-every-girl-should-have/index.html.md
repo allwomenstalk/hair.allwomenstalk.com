@@ -102,16 +102,16 @@ I love my straight iron as much as the next girl, but sometimes, I need a little
 
 ## Related Posts
 
-- [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
-- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
 - [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
+- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
+- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
 - [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
-- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
-- [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
-- [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
-- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
+- [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [9 Best Hair Straighteners to Invest in ...](https://hair.allwomenstalk.com/best-hair-straighteners-to-invest-in/)
 

@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/25426427)
 
 ## Related Posts
 
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
 - [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
-- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
+- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
+- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
+- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
 - [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
 - [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
-- [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
-- [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
-- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
-- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
 - [5 Things to Help Plants Grow Better ...](https://gardening.allwomenstalk.com/5-things-to-help-plants-grow-better/)
 - [7 Signs of Healthy Hair ...](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
 

@@ -45,15 +45,15 @@ Top Photo Credit: [laurenlemon](https://www.flickr.com/photos/renolauren/3398253
 ## Related Posts
 
 - [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
-- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
-- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
-- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
-- [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
-- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
-- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
-- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
 - [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
+- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
+- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
+- [hat that doesnt mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
+- [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
+- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
 - [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
+- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Ways to Care for Chemically Treated Hair ...](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 

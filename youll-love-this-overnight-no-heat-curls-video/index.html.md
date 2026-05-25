@@ -34,16 +34,16 @@ Awesome, right?
 
 ## Related Posts
 
-- [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
 - [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
 - [french vs dutch plait](https://hair.allwomenstalk.com/adorable-ways-to-wear-a-dutch-braid/)
-- [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
 - [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
-- [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
+- [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
 - [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
+- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
+- [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
 - [olivia palermo teeth](https://hair.allwomenstalk.com/steal-these-celeb-hair-stylist-secrets-to-look-your-sexiest/)
 - [braid envy](https://hair.allwomenstalk.com/these-photos-are-bound-to-give-you-major-braid-envy/)
-- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
+- [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
 - [7 Tips on Creating Romantic Curls ...](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 

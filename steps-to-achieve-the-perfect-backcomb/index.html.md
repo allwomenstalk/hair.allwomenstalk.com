@@ -42,13 +42,13 @@ These tips have served me well when I’m backcombing my hair. Following these s
 
 ## Related Posts
 
-- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
-- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
-- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
-- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
-- [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
 - [haircut for women long hair](https://hair.allwomenstalk.com/reasons-why-you-shouldnt-get-layers-in-your-hair/)
+- [my hair extensions are dry and frizzy](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-so-you-always-look-your-best/)
 - [how to get rid of unwanted hair for good](https://beauty.allwomenstalk.com/awesome-ways-to-get-rid-of-unwanted-hair/)
+- [natural ways to detangle hair](https://hair.allwomenstalk.com/ways-to-detangle-your-hair-easily/)
+- [can you freeze diced onion](https://hair.allwomenstalk.com/ways-a-vitamin-deficiency-affects-your-hair/)
+- [color hair 7](https://hair.allwomenstalk.com/things-to-consider-before-coloring-your-hair/)
+- [simple curls](https://hair.allwomenstalk.com/ultra-easy-things-to-do-for-curly-hair/)
 - [what color should i dye my hair personality quiz](https://hair.allwomenstalk.com/reasons-to-dye-your-hair-a-crazy-color-at-least-once/)
 - [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
 - [should i dry my hair in the sun](https://hair.allwomenstalk.com/fabulous-tricks-to-keep-your-hair-from-drying-out-in-the-sun/)

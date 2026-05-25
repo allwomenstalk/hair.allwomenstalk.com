@@ -56,16 +56,16 @@ If you're looking for a new hairdo, look to your favorite stars for inspiration.
 
 ## Related Posts
 
-- [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
-- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
 - [ian somerhalder cheekbones](https://movies.allwomenstalk.com/of-the-hottest-men-on-tv-right-now/)
-- [nicole richies biological parents](https://celebs.allwomenstalk.com/celebrities-who-were-adopted-that-you-probably-didnt-know-of/)
-- [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
-- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
-- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
+- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
 - [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
 - [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
+- [nicole richies biological parents](https://celebs.allwomenstalk.com/celebrities-who-were-adopted-that-you-probably-didnt-know-of/)
+- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
+- [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
 - [laguna beach food](https://celebs.allwomenstalk.com/laguna-beach-celebrities-and-where-they-are-now/)
+- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
+- [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 

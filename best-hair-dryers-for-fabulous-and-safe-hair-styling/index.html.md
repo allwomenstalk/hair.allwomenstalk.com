@@ -118,15 +118,15 @@ Drying your hair can be such a pain, especially if you’re in a hurry. Take awa
 
 ## Related Posts
 
-- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
+- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
+- [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
 - [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
+- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
+- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
 - [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
-- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
 - [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
 - [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
-- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
-- [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
-- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
+- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
 - [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
 - [9 Best Hair Straighteners to Invest in ...](https://hair.allwomenstalk.com/best-hair-straighteners-to-invest-in/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)

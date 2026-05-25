@@ -50,16 +50,16 @@ I freely admit I do make some of these hair care mistakes on occasion, as my sty
 
 ## Related Posts
 
-- [hair sock](https://hair.allwomenstalk.com/extra-tips-for-a-perfect-sock-bun/)
-- [change your hair colour](https://hair.allwomenstalk.com/tips-for-changing-your-hair-color-safely/)
 - [epilate vs shave](https://skincare.allwomenstalk.com/hair-removal-dos-and-donts/)
-- [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
 - [easy ways to change your hair](https://hair.allwomenstalk.com/tips-for-dramatically-changing-your-hair-color/)
-- [uses of hair dryer](https://lifestyle.allwomenstalk.com/surprising-uses-for-a-hair-dryer/)
+- [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
+- [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
 - [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
 - [do it yourself blonde highlights](https://hair.allwomenstalk.com/tips-for-doing-your-own-highlights/)
+- [hair sock](https://hair.allwomenstalk.com/extra-tips-for-a-perfect-sock-bun/)
 - [a picture of a perm](https://hair.allwomenstalk.com/things-you-need-to-know-about-perms/)
-- [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
+- [uses of hair dryer](https://lifestyle.allwomenstalk.com/surprising-uses-for-a-hair-dryer/)
+- [change your hair colour](https://hair.allwomenstalk.com/tips-for-changing-your-hair-color-safely/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 
