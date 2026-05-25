@@ -3,7 +3,7 @@ title: "7 Strange Hair Trends That Are Only for the Brave ..."
 description: "Shine-Drenched Hair; The “looks like You Cut It” Bob; The Boyish Punk HairDo; The Bleached Factor; Colored Mohawk; More ..."
 url: "https://hair.allwomenstalk.com/strange-hair-trends-that-are-only-for-the-brave/"
 category: "hair"
-last_updated: "2026-05-21"
+last_updated: "2026-05-25"
 ---
 
 # 7 Strange Hair Trends That Are Only for the Brave ...
@@ -38,7 +38,7 @@ Imagine you’re running low on your latest hair color and have nothing but a bo
 
 ![Colored Mohawk](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/hair/2013/08/5_colored-mohawk_600x861.jpg)
 
-This fashion trend is catching on quick in this year’s 2013 [fall hair](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/) trends, and I’m still left baffled trying to figure out why. Honestly, I have no idea why anyone would want to try this style, but if you really want to make a high fashion statement, Vogue Magazine is calling this one of the top hair trends to pull off this fall. For those of you willing to go outside your comfort zone in the name of fashion, this hairstyle is definitely for you!
+This fashion trend is catching on quick in this year’s 2013 fall hair trends, and I’m still left baffled trying to figure out why. Honestly, I have no idea why anyone would want to try this style, but if you really want to make a high fashion statement, Vogue Magazine is calling this one of the top hair trends to pull off this fall. For those of you willing to go outside your comfort zone in the name of fashion, this hairstyle is definitely for you!
 
 ## 6. Colored Braid
 
@@ -56,16 +56,16 @@ I guess I’m simple at heart, and maybe behind in the world of fashion, but wha
 
 ## Related Posts
 
-- [7th birthday hairstyle](https://hair.allwomenstalk.com/wonderful-reasons-to-change-your-hairstyle-thatll-make-you-visit-your-stylist-right-away/)
+- [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
+- [festival hairstyle](https://hair.allwomenstalk.com/adorable-hairstyles-for-a-music-festival-thatll-make-you-stand-out/)
 - [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
 - [updo for hair](https://hair.allwomenstalk.com/easy-updos-that-you-can-do-in-under-5-minutes/)
+- [7th birthday hairstyle](https://hair.allwomenstalk.com/wonderful-reasons-to-change-your-hairstyle-thatll-make-you-visit-your-stylist-right-away/)
+- [side swept ponytail hairstyles](https://hair.allwomenstalk.com/gorgeous-sideswept-styles-that-you-should-try-this-season/)
 - [classic short pixie cut](https://hair.allwomenstalk.com/celebrity-pixie-cuts-that-are-perfect-all-year-round/)
 - [side braid wavy hair](https://hair.allwomenstalk.com/gorgeous-braids-for-curly-hair-perfect-for-the-sweltering-summer/)
-- [festival hairstyle](https://hair.allwomenstalk.com/adorable-hairstyles-for-a-music-festival-thatll-make-you-stand-out/)
 - [signs its time for a haircut](https://hair.allwomenstalk.com/signs-its-time-for-a-hair-makeover/)
 - [katy perry bangs](https://hair.allwomenstalk.com/greatest-katy-perry-hairstyles-of-all-time/)
-- [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
-- [side swept ponytail hairstyles](https://hair.allwomenstalk.com/gorgeous-sideswept-styles-that-you-should-try-this-season/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

@@ -3,7 +3,7 @@ title: "8 Iconic Bob Hairstyles ..."
 description: "The Coco Chanel; The Anna Wintour; The Gwyneth Paltrow; The Louise Brooks; The Vidal Sassoon; More ..."
 url: "https://hair.allwomenstalk.com/iconic-bob-hairstyles/"
 category: "hair"
-last_updated: "2026-05-21"
+last_updated: "2026-05-25"
 ---
 
 # 8 Iconic Bob Hairstyles ...
@@ -26,7 +26,7 @@ Anna Wintour is famed for being at the helm of one of the most iconic fashion ma
 
 ![The Gwyneth Paltrow](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/hair/2012/02/3_the-gwyneth-paltrow_396x500.jpg)
 
-Gwyneth Paltrow’s [long bob](https://hair.allwomenstalk.com/sick-of-having-long-hair-check-out-these-long-bob-inspos-now/) (or ‘lob’ as it came to be known) was a contemporary take on the classic **bob hairstyle**. She wore her hair like this circa 2008, and it was characterised by a centre part and shoulder length cut. This cut became popular as it was quite versatile and flattering to most face shapes.
+Gwyneth Paltrow’s long bob (or ‘lob’ as it came to be known) was a contemporary take on the classic **bob hairstyle**. She wore her hair like this circa 2008, and it was characterised by a centre part and shoulder length cut. This cut became popular as it was quite versatile and flattering to most face shapes.
 
 ## 4. The Louise Brooks
 
@@ -64,16 +64,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/10607265)
 
 ## Related Posts
 
-- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
-- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
-- [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
 - [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
 - [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
-- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
+- [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
+- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
+- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
 - [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
 - [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
 - [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
-- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
+- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
+- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
 - [8 Sexiest Badass Celebrity Hair Styles ...](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 - [8 Beautiful Boho Hairstyles ...](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 

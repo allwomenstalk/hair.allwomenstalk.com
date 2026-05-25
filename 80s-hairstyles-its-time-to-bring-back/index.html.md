@@ -3,7 +3,7 @@ title: "80s Hairstyles Its Time to Bring Back ..."
 description: "The Side High Tail; The Whale Spout; Half up; The Wrap up; Feathered; More ..."
 url: "https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/"
 category: "hair"
-last_updated: "2026-05-21"
+last_updated: "2026-05-25"
 ---
 
 # 80s Hairstyles Its Time to Bring Back  ...
@@ -87,15 +87,15 @@ Would you wear your hair in any of these styles, or do you think the past should
 ## Related Posts
 
 - [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [last minute crazy hair day ideas girl](https://hair.allwomenstalk.com/the-evolution-of-hairstyles-through-history/)
-- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
 - [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
-- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [side swept bangs](https://hair.allwomenstalk.com/killer-bangs-that-will-keep-your-updos-looking-adorable/)
+- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
+- [katy perry blue bob](https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/)
 - [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
 - [candice delong hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-thatll-show-off-your-neck-and-shoulders/)
-- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 - [8 Celebrity Hairstyles You Should Steal ...](https://allwomenstalk.com/8-celebrity-hairstyles-you-should-steal/)
 
