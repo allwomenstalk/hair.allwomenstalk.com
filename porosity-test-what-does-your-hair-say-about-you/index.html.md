@@ -3,7 +3,7 @@ title: "Porosity Test : What Does Your Hair Say about You ?"
 description: "Fill a Small Bowl or Sink with Water; Take a Single Strand of Your Hair; Wait a Few Minutes; What Has Happened to the Strand?; Floating on Top = Low Porosity Hair; More ..."
 url: "https://hair.allwomenstalk.com/porosity-test-what-does-your-hair-say-about-you/"
 category: "hair"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Porosity Test : What Does Your Hair  Say about You ?
@@ -77,16 +77,16 @@ Try an egg wash every now and again, using the protein to strengthen cuticles
 
 ## Related Posts
 
-- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
-- [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
-- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
-- [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
-- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
-- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
-- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
 - [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
+- [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
 - [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
+- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
+- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
+- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
+- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
 - [Why Does Hair Turn Gray](https://allwomenstalk.com/why-does-hair-turn-gray/)
 - [What Does Your Car Say about You](https://allwomenstalk.com/what-does-your-car-say-about-you/)
 

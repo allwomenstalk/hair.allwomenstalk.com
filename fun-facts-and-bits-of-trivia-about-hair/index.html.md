@@ -3,7 +3,7 @@ title: "19 Fun Facts and TidBits of Trivia about Hair ..."
 description: "The USA Has the Largest Population of Redheaded People; Blondes Have the Highest Number of Hair Strands; Redheads Need More Anesthetics than Other Hair Colors; Guess What Hair Color Thor Had; Redheads Have a Higher Risk of Developing Skin Cancer; More ..."
 url: "https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/"
 category: "hair"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 19 Fun Facts and TidBits of Trivia about Hair ...
@@ -90,16 +90,16 @@ How many of these pieces of hair trivia did you already know?
 
 ## Related Posts
 
-- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
-- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
+- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
+- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
 - [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
 - [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
 - [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
-- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
-- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
-- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
 - [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
-- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 
