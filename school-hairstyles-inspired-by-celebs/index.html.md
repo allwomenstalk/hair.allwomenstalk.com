@@ -3,7 +3,7 @@ title: "7 School Hairstyles Inspired by Celebs ..."
 description: "Messy Fishtail; Half up for Long Hair; Bedhead Waves for Short Hair; Bedhead Waves for Long Hair; Braided Updo; More ..."
 url: "https://hair.allwomenstalk.com/school-hairstyles-inspired-by-celebs/"
 category: "hair"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 School Hairstyles Inspired by Celebs ...
@@ -56,16 +56,16 @@ Now that's what I call beauty! Which one of these hairstyles do you want to rock
 
 ## Related Posts
 
-- [paris stylo smoky timeless spark](https://hair.allwomenstalk.com/the-best-color-combos-for-ombre-hair/)
-- [abajo pelo teido parte de atras](https://hair.allwomenstalk.com/hair-inspiration-for-days-you-want-to-wear-it-down/)
+- [model off duty hair](https://hair.allwomenstalk.com/hot-products-thatll-give-you-modeloffduty-hair/)
 - [Fall Hair Ideas from Celeb Stylists ...](https://hair.allwomenstalk.com/fall-hair-ideas-from-celeb-stylists/)
 - [sand art hair](https://hair.allwomenstalk.com/how-stylists-create-sand-art-hair/)
-- [11 Hairstyles Inspired by Beautiful Artwork ...](https://hair.allwomenstalk.com/hairstyles-inspired-by-beautiful-artwork/)
 - [what accessories are trending right now](https://hair.allwomenstalk.com/hair-accessories-that-work-well-in-autumn/)
 - [7 Trendy Pieces of Hair Jewelry to Try out ...](https://jewelry.allwomenstalk.com/trendy-pieces-of-hair-jewelry-to-try-out/)
-- [model off duty hair](https://hair.allwomenstalk.com/hot-products-thatll-give-you-modeloffduty-hair/)
-- [Here Are the Most Popular Hairstyles Blowing up In...](https://hair.allwomenstalk.com/here-are-the-most-popular-hairstyles-blowing-up-instagram/)
 - [2016 winter hair trends](https://hair.allwomenstalk.com/the-best-fall-hair-colors-on-instagram/)
+- [Here Are the Most Popular Hairstyles Blowing up In...](https://hair.allwomenstalk.com/here-are-the-most-popular-hairstyles-blowing-up-instagram/)
+- [paris stylo smoky timeless spark](https://hair.allwomenstalk.com/the-best-color-combos-for-ombre-hair/)
+- [abajo pelo teido parte de atras](https://hair.allwomenstalk.com/hair-inspiration-for-days-you-want-to-wear-it-down/)
+- [11 Hairstyles Inspired by Beautiful Artwork ...](https://hair.allwomenstalk.com/hairstyles-inspired-by-beautiful-artwork/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 
