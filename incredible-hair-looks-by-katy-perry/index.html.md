@@ -3,7 +3,7 @@ title: "27 Incredible Hair Looks by Katy Perry ..."
 description: "Purple and Blue Ponytail; Old Hollywood Glam; Punk Updo; Purple Ombre; Long, Dark Waves; More ..."
 url: "https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/"
 category: "hair"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 27 Incredible Hair Looks by Katy Perry ...
@@ -190,16 +190,16 @@ What do you think Katy will do next? I love that she likes to have fun with her 
 
 ## Related Posts
 
+- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
 - [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
+- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
+- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
+- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
+- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
+- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
 - [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
 - [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
-- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
-- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
 - [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
-- [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
-- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
-- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 

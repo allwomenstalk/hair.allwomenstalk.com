@@ -3,7 +3,7 @@ title: "8 Hair Trends for the Fall 2011 ..."
 description: "Messy Braid; Hair Parted on the Center; Ponytail; Bouncy Curls/Waves; Messy Buns; More ..."
 url: "https://hair.allwomenstalk.com/hair-trends-for-the-fall/"
 category: "hair"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Hair Trends for the Fall 2011 ...
@@ -62,15 +62,15 @@ Top Photo Credit: Rafael Cavalcante_
 
 ## Related Posts
 
-- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
+- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [Spring Fashion Trend: Beige Leather ...](https://fashion.allwomenstalk.com/spring-fashion-trend-beige-leather/)
+- [prada 2011 collection](https://fashion.allwomenstalk.com/hot-new-items-from-the-prada-cruise-collection/)
+- [fau paux](https://fashion.allwomenstalk.com/hot-fall-fashion-trend-for-fall/)
+- [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/accessories-for-spring/)
 - [8 Hot Trends for the Spring 2011 ...](https://fashion.allwomenstalk.com/hot-trends-for-the-spring/)
-- [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
-- [fau paux](https://fashion.allwomenstalk.com/hot-fall-fashion-trend-for-fall/)
-- [prada 2011 collection](https://fashion.allwomenstalk.com/hot-new-items-from-the-prada-cruise-collection/)
-- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
+- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
 - [Beach Trends- Nautical ...](https://allwomenstalk.com/beach-trends-nautical/)
 - [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [6 Hottest Hairstyle Trends for 2010 ...](https://allwomenstalk.com/hot-new-hair-style-trends-for/)

@@ -3,7 +3,7 @@ title: "23 Katy Perry Hair Styles to Steal ..."
 description: "Dark Purple + Beach Waves; Sleek Blue Bob; Long, with Black Roots & Purple Ends; Fireworks Hair; Peek-a-boo Highlights; More ..."
 url: "https://hair.allwomenstalk.com/katy-perry-hair-styles-to-steal/"
 category: "hair"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 23 Katy Perry Hair Styles to Steal ...
@@ -134,16 +134,16 @@ Source: [Celebrity Updos](https://www.milkandblush.com/)
 
 ## Related Posts
 
-- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
-- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
-- [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
-- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
-- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
 - [pretty cuts](https://hair.allwomenstalk.com/consider-these-cute-cuts-when-you-want-to-change-your-hair/)
+- [ponytail on side](https://hair.allwomenstalk.com/side-pony-inspiration-from-your-favorite-celebs/)
+- [kylie jenner favourite colour](https://hair.allwomenstalk.com/kylie-jenner-hair-colors-you-should-try-yourself/)
+- [how to wear a flannel girl](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-flannel/)
 - [cute hairstyles for waitresses](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-going-on-a-run/)
-- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
-- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [jessie j short blonde hair](https://hair.allwomenstalk.com/the-evolution-of-jessie-js-hair-in-photos/)
 - [new trending hairstyles](https://hair.allwomenstalk.com/new-hairstyles-that-have-just-started-trending/)
+- [braided mohawk](https://hair.allwomenstalk.com/day-braid-challenge-for-girls-who-do-know-how-to-braid/)
+- [60s ponytail](https://hair.allwomenstalk.com/hairstyles-that-look-amazing-on-absolutely-everyone/)
+- [rita ora blonde hair](https://hair.allwomenstalk.com/pieces-of-hair-inspiration-from-rita-ora/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 
