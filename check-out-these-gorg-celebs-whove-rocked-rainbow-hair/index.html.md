@@ -1,12 +1,12 @@
 ---
-title: "Check out These 25 Gorg Celebs Whove Rocked Rainbow Hair ..."
+title: "Check out These 25 Gorg Celebs Who've Rocked Rainbow Hair ..."
 description: "Cara Delevingne; Katy Perry; Gigi Hadid; Lena Dunham; Nicole Richie; More ..."
 url: "https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/"
 category: "hair"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Check out These 25 Gorg Celebs Whove Rocked Rainbow Hair ...
+# Check out These 25 Gorg Celebs Who've Rocked Rainbow Hair ...
 
 Celebs are often the best people to get hair inspo from, and to see how a new hair trend will look before we get the nerve to try it ourselves. The [rainbow hair](https://hair.allwomenstalk.com/are-you-really-ready-for-rainbow-hair/) trend is so exception! Let's get a little inspo from these gorgeous celebs who've tried the trend and absolutely rocked it.
 
@@ -100,14 +100,14 @@ She rocked the entire rainbow!
 
 - [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
 - [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
+- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
 - [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
 - [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
-- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
-- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
-- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
 - [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
 - [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
 - [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
+- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
 - [25 Awesome Celebrity Halloween Costumes ...](https://celebs.allwomenstalk.com/25-awesome-celebrity-halloween-costumes/)
 - [8 Celebs That Rock Red Hair ...](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Fantastic Celebrity Hairstyles to Steal in Fall 2012 ..."
+title: "7 Fantastic Celebrity Hairstyles to \"Steal\" in Fall 2012 ..."
 description: "Nicole Richie’s Feminine Bob; Amanda Seyfried Long Bouncy Curls; Michelle Williams's Cute Pixie Cut; Jordin Sparks’s Red Ombre; Cara Delevingne's Classy Ballet Bun; More ..."
 url: "https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/"
 category: "hair"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Fantastic Celebrity Hairstyles to Steal in Fall 2012 ...
+# 7 Fantastic Celebrity Hairstyles to "Steal" in Fall 2012 ...
 
 Celebrity hairstyles for fall 2012 are proving to be quite trendy, chic and oh-so-wearable! In fact, if every third famous lady decided to keep her summer do, we’d have one awesomely chic rainy season! But let’s take a look at some of the best celebrity hairstyles in 2012 so far – shall we? And in case some of you ladies are torn between a few celebrity inspired hairstyles, this list of looks magazines adore ought to help you decide:
 
@@ -59,15 +59,15 @@ Top Image Source: [livejournal.com](https://ohnotheydidnt.livejournal.com/668171
 ## Related Posts
 
 - [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
+- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
 - [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
+- [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
 - [famous women hairstyles](https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/)
 - [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
-- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
-- [headband hairstyles](https://hair.allwomenstalk.com/headwraps-to-tame-your-summer-beach-hair/)
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
 - [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 

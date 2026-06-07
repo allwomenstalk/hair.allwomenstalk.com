@@ -3,7 +3,7 @@ title: "8 Interesting Facts about Hair Care through History ..."
 description: "Hair Washing Was Hardly a Daily Duty; The First Soaps Were Quite Harsh on Hair; Good Hair Was Tied with Social Status; Natural Hair Care Remedies Have Been Quite Popular; Modern Shampoo is What Caused the Need for Conditioner; More ..."
 url: "https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/"
 category: "hair"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 8 Interesting Facts about Hair Care through History ...
@@ -46,16 +46,16 @@ Pretty cool hair care facts, huh? Guess the matter of hair is not and has not be
 
 ## Related Posts
 
-- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
-- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
-- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
-- [tips on blow drying hair](https://hair.allwomenstalk.com/splendid-tips-on-blow-drying-your-hair/)
-- [tipless boar bristle brush](https://hair.allwomenstalk.com/helpful-hints-on-hair-tools-and-how-to-use-them/)
-- [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
 - [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
-- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
+- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
+- [tips on blow drying hair](https://hair.allwomenstalk.com/splendid-tips-on-blow-drying-your-hair/)
+- [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
+- [tipless boar bristle brush](https://hair.allwomenstalk.com/helpful-hints-on-hair-tools-and-how-to-use-them/)
 - [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
+- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
+- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
+- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
+- [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
 - [Top 8 Hair Care Mistakes to Avoid ...](https://hair.allwomenstalk.com/top-8-hair-care-mistakes-to-avoid/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

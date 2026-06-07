@@ -3,7 +3,7 @@ title: "19 Fun Facts and TidBits of Trivia about Hair ..."
 description: "The USA Has the Largest Population of Redheaded People; Blondes Have the Highest Number of Hair Strands; Redheads Need More Anesthetics than Other Hair Colors; Guess What Hair Color Thor Had; Redheads Have a Higher Risk of Developing Skin Cancer; More ..."
 url: "https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/"
 category: "hair"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 19 Fun Facts and TidBits of Trivia about Hair ...
@@ -91,15 +91,15 @@ How many of these pieces of hair trivia did you already know?
 ## Related Posts
 
 - [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
-- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
-- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
-- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
 - [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
 - [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
-- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
-- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
-- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
+- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
 - [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
+- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
+- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
+- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
+- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 
