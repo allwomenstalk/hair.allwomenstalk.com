@@ -3,7 +3,7 @@ title: "Nourishing DIY Hair Masks for Curly Hair ..."
 description: "Egg and Mayo Mask; Papaya is the Right Choice; Coconut Oil Mask; Totally Easy Avocado Mask; Avocado and Banana; More ..."
 url: "https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/"
 category: "hair"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Nourishing DIY Hair Masks for Curly Hair ...
@@ -136,16 +136,16 @@ Which one are you excited to try first? What other curly hair tips can you share
 
 ## Related Posts
 
+- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
 - [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
-- [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
 - [aussie 3 minute miracle walmart](https://hair.allwomenstalk.com/supercharge-your-tresses-with-these-top-moisturizers/)
 - [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
-- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
-- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
+- [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
+- [madam cj walker leave in conditioner](https://hair.allwomenstalk.com/on-point-hair-care-products-for-fall/)
 - [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
+- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
 - [lusious locks](https://hair.allwomenstalk.com/miracle-hair-products-for-girls-who-are-dying-for-thick-luscious-locks/)
 - [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
-- [madam cj walker leave in conditioner](https://hair.allwomenstalk.com/on-point-hair-care-products-for-fall/)
 - [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 

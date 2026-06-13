@@ -3,7 +3,7 @@ title: "18 of Today's Charming Hair Inspo That Will Make Your Day ..."
 description: "@cloandflo; @kirstenzellers; @luxyhair; @yourbraids; @kayleymelissa; More ..."
 url: "https://hair.allwomenstalk.com/of-todays-charming-hair-inspo-that-will-make-your-day/"
 category: "hair"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 18 of Today's Charming Hair Inspo That Will Make Your Day ...
