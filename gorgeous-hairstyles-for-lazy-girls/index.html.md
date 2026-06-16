@@ -144,15 +144,15 @@ Give your fellow lazy girls some inspiration, share the wealth! And share your f
 
 ## Related Posts
 
-- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
+- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
 - [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
+- [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
+- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
+- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
+- [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
 - [best hair ever](https://hair.allwomenstalk.com/top-hair-infographics-for-your-best-hair-ever/)
 - [bantu knot outs on different hair textures](https://hair.allwomenstalk.com/crushworthy-natural-hair-ideas-from-pinterest/)
-- [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
-- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
-- [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
 - [new year eve hair](https://hair.allwomenstalk.com/awesome-hair-tutorials-thatll-make-you-look-glamorous-on-new-years-eve/)
-- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
 - [pearl hairstyles](https://hair.allwomenstalk.com/adorable-little-girl-hairstyles-your-daughter-will-love/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)

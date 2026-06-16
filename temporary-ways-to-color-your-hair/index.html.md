@@ -150,16 +150,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
-- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
-- [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
-- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
-- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
-- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
-- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
-- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
-- [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
 - [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
+- [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
+- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
+- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
+- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
+- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
+- [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
+- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
+- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
+- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
 - [8 Innovative Things to Try with Your Hair ...](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 

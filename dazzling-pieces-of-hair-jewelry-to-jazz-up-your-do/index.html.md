@@ -80,16 +80,16 @@ Are you ready to try out some of these great pieces of hair jewelry? They're rea
 
 ## Related Posts
 
-- [cuff bracelet meaning](https://jewelry.allwomenstalk.com/alex-and-ani-bangle-bracelets-and-their-meanings/)
-- [lochers paris](https://fashion.allwomenstalk.com/lochers-proves-your-sense-of-humor-is-the-most-stylish-accessory/)
-- [how are glass paperweights made](https://lifestyle.allwomenstalk.com/photos-that-make-a-gallery-of-gorgeous-glass-paperweights/)
 - [jewelry for book lovers](https://books.allwomenstalk.com/book-themed-accessories/)
 - [pawn stars](https://jewelry.allwomenstalk.com/stunningly-beautiful-imperial-faberge-eggs/)
+- [types of art glass](https://lifestyle.allwomenstalk.com/gorgeous-pieces-of-art-glass-to-lust-after/)
+- [lochers paris](https://fashion.allwomenstalk.com/lochers-proves-your-sense-of-humor-is-the-most-stylish-accessory/)
+- [masks with long noses](https://fashion.allwomenstalk.com/different-types-of-venetian-masks-that-are-fabulous-and-impressive/)
+- [meaningful mandala tattoo](https://lifestyle.allwomenstalk.com/awesome-mandala-tattoo-placements-you-should-consider/)
 - [stained glass windows images](https://lifestyle.allwomenstalk.com/examples-of-gorgeous-stained-glass/)
 - [best indie jewelry brands](https://jewelry.allwomenstalk.com/amazing-indie-jewelry-designers-to-check-out-now/)
-- [types of art glass](https://lifestyle.allwomenstalk.com/gorgeous-pieces-of-art-glass-to-lust-after/)
-- [meaningful mandala tattoo](https://lifestyle.allwomenstalk.com/awesome-mandala-tattoo-placements-you-should-consider/)
-- [masks with long noses](https://fashion.allwomenstalk.com/different-types-of-venetian-masks-that-are-fabulous-and-impressive/)
+- [cuff bracelet meaning](https://jewelry.allwomenstalk.com/alex-and-ani-bangle-bracelets-and-their-meanings/)
+- [how are glass paperweights made](https://lifestyle.allwomenstalk.com/photos-that-make-a-gallery-of-gorgeous-glass-paperweights/)
 - [8 Lovely Designer Hair Accessories ...](https://hair.allwomenstalk.com/lovely-designer-hair-accessories/)
 - [9 Amazing Hairpieces to Wear to Parties ...](https://hair.allwomenstalk.com/amazing-hairpieces-to-wear-to-parties/)
 

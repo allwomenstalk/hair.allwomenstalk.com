@@ -91,16 +91,16 @@ Not really into **designer hair accessories** just yet? Well, take a look at the
 
 ## Related Posts
 
-- [is marc jacobs jewelry real](https://jewelry.allwomenstalk.com/7-hot-marc-jacobs-necklaces/)
-- [peacock hair style](https://hair.allwomenstalk.com/trendy-peacock-hair-accessories/)
-- [7 Chic Cuffs ...](https://jewelry.allwomenstalk.com/7-chic-cuffs/)
-- [forever 21 headbands](https://hair.allwomenstalk.com/happenin-headbands/)
-- [anthropologie doll](https://jewelry.allwomenstalk.com/7-unusual-rings-from-anthropologie/)
-- [7 Gorgeous Necklaces by Violet Bella ...](https://jewelry.allwomenstalk.com/7-gorgeous-necklaces-by-violet-bella/)
 - [peggy skemp](https://jewelry.allwomenstalk.com/7-gorgeous-statement-necklaces-by-peggy-skemp/)
-- [7 Sweet Little Rings ...](https://jewelry.allwomenstalk.com/7-sweet-little-rings/)
 - [10 Fab-Looking Bangles ...](https://jewelry.allwomenstalk.com/10-fab-looking-bangles/)
 - [tiffany's key ring](https://jewelry.allwomenstalk.com/8-gorgeous-tiffany-key-rings/)
+- [peacock hair style](https://hair.allwomenstalk.com/trendy-peacock-hair-accessories/)
+- [7 Gorgeous Necklaces by Violet Bella ...](https://jewelry.allwomenstalk.com/7-gorgeous-necklaces-by-violet-bella/)
+- [forever 21 headbands](https://hair.allwomenstalk.com/happenin-headbands/)
+- [7 Chic Cuffs ...](https://jewelry.allwomenstalk.com/7-chic-cuffs/)
+- [is marc jacobs jewelry real](https://jewelry.allwomenstalk.com/7-hot-marc-jacobs-necklaces/)
+- [7 Sweet Little Rings ...](https://jewelry.allwomenstalk.com/7-sweet-little-rings/)
+- [anthropologie doll](https://jewelry.allwomenstalk.com/7-unusual-rings-from-anthropologie/)
 - [5 Lovely Bridal Accessories in Hot Metallic Colors...](https://wedding.allwomenstalk.com/5-lovely-bridal-accessories-in-hot-metallic-colors/)
 - [7 Gorgeous Bridal Accessories ...](https://wedding.allwomenstalk.com/7-gorgeous-bridal-accessories/)
 

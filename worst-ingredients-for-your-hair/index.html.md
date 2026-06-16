@@ -42,16 +42,16 @@ This can be a lot of scary information to take in, especially since these are ju
 
 ## Related Posts
 
-- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
 - [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
-- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
-- [best leave in conditioner for soft hair](https://hair.allwomenstalk.com/best-leave-in-conditioners-for-soft-hair/)
-- [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
-- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
-- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
-- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
 - [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
 - [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
+- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
+- [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
+- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
+- [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
+- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
+- [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
+- [best leave in conditioner for soft hair](https://hair.allwomenstalk.com/best-leave-in-conditioners-for-soft-hair/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 

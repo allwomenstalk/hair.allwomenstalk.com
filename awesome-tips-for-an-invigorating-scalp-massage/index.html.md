@@ -42,16 +42,16 @@ Are there any cool tips for head massage you’d like to share today? Do tell! S
 
 ## Related Posts
 
-- [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
 - [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
 - [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
-- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
-- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
 - [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
+- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
 - [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
+- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
+- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
+- [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
 - [7 Rejuvenating Beauty Tricks ...](https://beauty.allwomenstalk.com/rejuvenating-beauty-tricks/)
 - [7 Ways to Relieve Muscle Pain ...](https://allwomenstalk.com/7-ways-to-relieve-muscle-pain/)
 

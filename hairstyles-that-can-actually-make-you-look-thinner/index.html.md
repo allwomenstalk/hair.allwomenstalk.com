@@ -68,16 +68,16 @@ So choose a clever cut or style your hair the right way, and take pounds off you
 
 ## Related Posts
 
-- [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
-- [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
 - [cute casual hairstyles](https://hair.allwomenstalk.com/messy-hairstyles-to-look-casual-for-class/)
-- [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
-- [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
 - [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
-- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
 - [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
+- [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
+- [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
 - [hairstyles for little girls](https://hair.allwomenstalk.com/the-best-back-to-school-hairstyles-for-lazy-girls/)
+- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
+- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
+- [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
+- [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
 - [9 Wedding Hairdos That Look Spectacular ...](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 

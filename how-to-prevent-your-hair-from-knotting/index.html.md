@@ -42,16 +42,16 @@ Do you get knotted hair? What’s your favorite way of dealing with it?
 
 ## Related Posts
 
-- [how to make dyed hair last longer](https://hair.allwomenstalk.com/how-to-help-your-dyed-hair-color-stay-in-longer/)
 - [growing out fine hair](https://hair.allwomenstalk.com/ways-to-add-tons-of-volume-to-even-the-finest-hair/)
-- [what can i use instead of hair gel](https://hair.allwomenstalk.com/tricks-for-getting-your-hair-to-remain-in-place/)
-- [how to keep straightened hair from frizzing in hum...](https://hair.allwomenstalk.com/here-is-how-you-can-have-pin-straight-hair-even-on-a-humid-day/)
 - [how to style bangs growing out](https://hair.allwomenstalk.com/awesome-tips-for-styling-your-bangs/)
-- [debra messing natural hair](https://hair.allwomenstalk.com/how-to-create-the-best-curls-in-your-hair/)
-- [80s curling iron](https://hair.allwomenstalk.com/tips-and-tricks-to-get-the-most-from-your-curling-iron/)
+- [what can i use instead of hair gel](https://hair.allwomenstalk.com/tricks-for-getting-your-hair-to-remain-in-place/)
 - [how do i know if i'll look good with bangs](https://hair.allwomenstalk.com/are-bangs-right-for-you/)
+- [how to keep straightened hair from frizzing in hum...](https://hair.allwomenstalk.com/here-is-how-you-can-have-pin-straight-hair-even-on-a-humid-day/)
+- [debra messing natural hair](https://hair.allwomenstalk.com/how-to-create-the-best-curls-in-your-hair/)
 - [how to make your hair smell good after washing it](https://hair.allwomenstalk.com/make-your-hair-smell-incredible-with-these-tips/)
 - [dandruff after cutting hair short](https://hair.allwomenstalk.com/why-you-wont-regret-cutting-your-hair-short/)
+- [how to make dyed hair last longer](https://hair.allwomenstalk.com/how-to-help-your-dyed-hair-color-stay-in-longer/)
+- [80s curling iron](https://hair.allwomenstalk.com/tips-and-tricks-to-get-the-most-from-your-curling-iron/)
 - [The Ultimate Guide to Tangle Free Hair ...](https://hair.allwomenstalk.com/the-ultimate-guide-to-tangle-free-hair/)
 - [9 Ways to Deal with Uncontrollable Hair Every Girl...](https://hair.allwomenstalk.com/ways-to-deal-with-uncontrollable-hair-every-girl-should-know/)
 

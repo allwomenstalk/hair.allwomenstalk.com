@@ -42,16 +42,16 @@ Tame your frizz and rock those curls, curly girl.
 
 ## Related Posts
 
-- [best sunscreen for redheads](https://skincare.allwomenstalk.com/sun-protection-tips-for-redheaded-beauties/)
-- [girls hair removal](https://beauty.allwomenstalk.com/hair-removal-mistakes-you-could-be-making-for-girls-with-hair-troubles/)
-- [are split ends bad](https://hair.allwomenstalk.com/girls-with-split-ends-need-to-stop-doing-this/)
 - [dry black hair](https://hair.allwomenstalk.com/how-to-keep-black-hair-healthy-and-fabulous-during-dry-winter-months/)
+- [best sunscreen for redheads](https://skincare.allwomenstalk.com/sun-protection-tips-for-redheaded-beauties/)
+- [are split ends bad](https://hair.allwomenstalk.com/girls-with-split-ends-need-to-stop-doing-this/)
+- [haircut 7](https://hair.allwomenstalk.com/things-to-consider-before-you-get-a-haircut/)
 - [girls w black hair](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-black-tresses/)
-- [hairright](https://hair.allwomenstalk.com/super-quick-ways-to-refresh-your-hair-right-after-the-gym/)
 - [how do you dry your hair fast](https://hair.allwomenstalk.com/delightful-tips-to-make-your-hair-dry-faster-for-girls-in-a-rush/)
 - [greasy hair pictures](https://hair.allwomenstalk.com/causes-and-ways-to-deal-for-girls-suffering-from-greasy-hair/)
+- [girls hair removal](https://beauty.allwomenstalk.com/hair-removal-mistakes-you-could-be-making-for-girls-with-hair-troubles/)
+- [hairright](https://hair.allwomenstalk.com/super-quick-ways-to-refresh-your-hair-right-after-the-gym/)
 - [makeup for curly hair](https://hair.allwomenstalk.com/the-most-genius-tips-ever-for-girls-who-have-curly-hair/)
-- [haircut 7](https://hair.allwomenstalk.com/things-to-consider-before-you-get-a-haircut/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 - [8 Fun Hairdos for Summer ...](https://allwomenstalk.com/8-fun-hairdos-for-summer/)
 

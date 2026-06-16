@@ -80,16 +80,16 @@ I just got my hair cut and while in the chair, I was feeling totally daring and 
 
 ## Related Posts
 
-- [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
-- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
-- [moon bangs](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-the-biggest-hair-trend-this-spring/)
-- [olivia palermo teeth](https://hair.allwomenstalk.com/steal-these-celeb-hair-stylist-secrets-to-look-your-sexiest/)
-- [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
 - [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
+- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
 - [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
 - [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
+- [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
+- [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
+- [olivia palermo teeth](https://hair.allwomenstalk.com/steal-these-celeb-hair-stylist-secrets-to-look-your-sexiest/)
 - [braid envy](https://hair.allwomenstalk.com/these-photos-are-bound-to-give-you-major-braid-envy/)
 - [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
+- [moon bangs](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-the-biggest-hair-trend-this-spring/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Gorgeously Stunning Hair Styles to Look Younger ...](https://hair.allwomenstalk.com/gorgeously-stunning-hair-styles-to-look-younger/)
 

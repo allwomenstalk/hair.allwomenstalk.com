@@ -42,15 +42,15 @@ These natural hair masks are a great, cheap way to revitalise and moisturise you
 
 ## Related Posts
 
-- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
 - [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
-- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
-- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
+- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
 - [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
+- [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
+- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
 - [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
 - [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
-- [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
+- [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
 - [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 of the Best at-Home Hair Care Tips ...](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)

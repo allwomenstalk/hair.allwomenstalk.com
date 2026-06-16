@@ -44,16 +44,16 @@ Top Photo Credit: [kasia.kazmierska](https://www.flickr.com/photos/kasia_kazmier
 
 ## Related Posts
 
-- [7 Sweet Hairclips under $10 ...](https://hair.allwomenstalk.com/7-sweet-hairclips-under-10/)
-- [concave bob curly hair](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
-- [easy 5 minute hairstyles for short hair](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
-- [ponytail updos](https://hair.allwomenstalk.com/new-ponytail-styles-to-try-this-season/)
-- [riche stylo glistening](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
-- [curly hairstyles to try](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
-- [hair salon blog](https://hair.allwomenstalk.com/brilliant-hairstyle-blogs/)
-- [try on celebrity hairstyles](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 - [ponytail wind](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
+- [7 Sweet Hairclips under $10 ...](https://hair.allwomenstalk.com/7-sweet-hairclips-under-10/)
+- [try on celebrity hairstyles](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
+- [riche stylo glistening](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
+- [hair salon blog](https://hair.allwomenstalk.com/brilliant-hairstyle-blogs/)
+- [concave bob curly hair](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
 - [how to wear your hair up](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
+- [ponytail updos](https://hair.allwomenstalk.com/new-ponytail-styles-to-try-this-season/)
+- [easy 5 minute hairstyles for short hair](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
+- [curly hairstyles to try](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 

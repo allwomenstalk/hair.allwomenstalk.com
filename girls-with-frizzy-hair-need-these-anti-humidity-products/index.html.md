@@ -71,16 +71,16 @@ Do you deal with frizzy hair? What's your best tip for keeping it under control?
 
 ## Related Posts
 
-- [lusious locks](https://hair.allwomenstalk.com/miracle-hair-products-for-girls-who-are-dying-for-thick-luscious-locks/)
-- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
-- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
-- [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
 - [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
-- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
-- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
+- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
 - [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
-- [aussie 3 minute miracle walmart](https://hair.allwomenstalk.com/supercharge-your-tresses-with-these-top-moisturizers/)
+- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
+- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
+- [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
+- [lusious locks](https://hair.allwomenstalk.com/miracle-hair-products-for-girls-who-are-dying-for-thick-luscious-locks/)
 - [luscious locks price list](https://hair.allwomenstalk.com/luxuriant-hair-oils-for-girls-who-want-luscious-locks/)
+- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
+- [aussie 3 minute miracle walmart](https://hair.allwomenstalk.com/supercharge-your-tresses-with-these-top-moisturizers/)
 - [9 Best Humidity Hair Products to Keep Your Hair in...](https://hair.allwomenstalk.com/best-humidity-hair-products-to-keep-your-hair-in-check/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 

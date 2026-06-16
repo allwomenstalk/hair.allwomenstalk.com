@@ -68,15 +68,15 @@ Keeping my hair healthy is what I love, and with these products, I keep my hair 
 
 ## Related Posts
 
-- [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
-- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
-- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
-- [8 Foods That do Good for Your Hair ...](https://hair.allwomenstalk.com/foods-that-do-good-for-your-hair/)
-- [how to restore split ends](https://hair.allwomenstalk.com/home-hair-treatments-for-split-ends-that-work-100/)
-- [best hair product for frizz and humidity](https://hair.allwomenstalk.com/best-humidity-hair-products-to-keep-your-hair-in-check/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
+- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
 - [8 Foods for Healthier Hair ...](https://hair.allwomenstalk.com/foods-for-healthier-hair/)
+- [8 Foods That do Good for Your Hair ...](https://hair.allwomenstalk.com/foods-that-do-good-for-your-hair/)
+- [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
+- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
+- [best hair product for frizz and humidity](https://hair.allwomenstalk.com/best-humidity-hair-products-to-keep-your-hair-in-check/)
+- [how to restore split ends](https://hair.allwomenstalk.com/home-hair-treatments-for-split-ends-that-work-100/)
 - [8 Incredibly Amazing Ways to Get Lovely Shiny Hair...](https://hair.allwomenstalk.com/incredibly-amazing-ways-to-get-lovely-shiny-hair/)
 - [8 Best Skincare Products ...](https://skincare.allwomenstalk.com/best-skincare-products/)
 - [8 Best Skin Care Products Ever ...](https://skincare.allwomenstalk.com/best-skin-care-products-ever/)

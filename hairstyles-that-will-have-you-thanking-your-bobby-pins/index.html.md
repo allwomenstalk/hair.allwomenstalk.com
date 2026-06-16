@@ -82,15 +82,15 @@ What do you think about these videos? Any you're going to try?
 
 ## Related Posts
 
-- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
-- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
-- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
 - [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
+- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
+- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
 - [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
 - [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
 - [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
-- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
 - [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
+- [curls for short hair](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-girls-with-short-locks/)
+- [how to wear a baseball hat with bangs](https://hair.allwomenstalk.com/adorable-hairstyles-to-rock-for-days-youre-sporting-a-baseball-hat/)
 - [half up curly prom hair](https://hair.allwomenstalk.com/perfect-hairstyles-for-a-gorgeous-look-at-coachella/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [8 Iconic Bob Hairstyles ...](https://hair.allwomenstalk.com/iconic-bob-hairstyles/)

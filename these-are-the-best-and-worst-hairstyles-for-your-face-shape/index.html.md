@@ -58,16 +58,16 @@ What kind of face shape do you have and what’s your fave hairstyle? Let me kno
 
 ## Related Posts
 
-- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
-- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
 - [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
-- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
 - [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
-- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
-- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
-- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
-- [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
+- [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
 - [half up curly prom hair](https://hair.allwomenstalk.com/perfect-hairstyles-for-a-gorgeous-look-at-coachella/)
+- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
+- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
+- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
+- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
+- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
+- [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
 - [7 Lovely Hairstyles Ideal for round Shaped Faces ....](https://hair.allwomenstalk.com/lovely-hairstyles-ideal-for-round-shaped-faces/)
 - [7 Awesome Hairstyles for Oval Shaped Faces ...](https://hair.allwomenstalk.com/awesome-hairstyles-for-oval-shaped-faces/)
 

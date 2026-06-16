@@ -42,16 +42,16 @@ Make sure you drink 2 liters of water a day. This will make your hair shiny and 
 
 ## Related Posts
 
-- [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
 - [different kinds of perms for short hair](https://hair.allwomenstalk.com/care-tips-for-short-permed-hair/)
-- [silky hair meaning](https://hair.allwomenstalk.com/how-to-get-super-soft-silky-hair/)
+- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
 - [highlighting my hair at home](https://hair.allwomenstalk.com/reasons-to-not-try-highlighting-your-hair-at-home/)
-- [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
+- [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
 - [how to lighten hair](https://hair.allwomenstalk.com/how-to-lighten-your-hair-at-home/)
 - [how do you trim bangs](https://hair.allwomenstalk.com/how-to-trim-your-own-bangs/)
-- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
-- [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
 - [give your hair more volume](https://hair.allwomenstalk.com/ways-to-add-more-volume-to-your-hair/)
+- [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
+- [silky hair meaning](https://hair.allwomenstalk.com/how-to-get-super-soft-silky-hair/)
+- [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
 - [15 Positively Effective Ways to Make Your Hair Gro...](https://hair.allwomenstalk.com/positively-effective-ways-to-make-your-hair-grow-faster/)
 - [10 Tips on How to Grow Long Hair ...](https://allwomenstalk.com/10-tips-on-how-to-grow-long-hair/)
 

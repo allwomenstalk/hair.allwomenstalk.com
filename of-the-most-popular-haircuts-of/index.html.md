@@ -56,16 +56,16 @@ Do you have one of these 2014 haircuts? Is there one on the list you plan to get
 
 ## Related Posts
 
-- [fire hydrant red hair](https://hair.allwomenstalk.com/hair-inspirations-for-changing-up-your-style/)
 - [lisa purple hair](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
-- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
-- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
 - [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
-- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
 - [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
+- [fire hydrant red hair](https://hair.allwomenstalk.com/hair-inspirations-for-changing-up-your-style/)
 - [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
+- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
+- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
+- [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
 - [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
+- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

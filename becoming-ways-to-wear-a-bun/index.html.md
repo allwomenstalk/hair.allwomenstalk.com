@@ -176,16 +176,16 @@ Did you find a bun you'd like to try out? Buns are a great way to style dirty ha
 
 ## Related Posts
 
-- [what to wear on a first date female](https://love.allwomenstalk.com/things-to-wear-on-a-first-date/)
-- [sense for fashion](https://fashion.allwomenstalk.com/ways-to-have-a-unique-fashion-sense-that-stands-out/)
-- [casual grey coat outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-draped-jacket/)
-- [socks over leggings trend](https://fashion.allwomenstalk.com/ways-to-wear-cozy-fall-socks-and-still-look-fashionable/)
-- [tomboy outfits women](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-tomboy-chic/)
+- [monochrome street style](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-monochrome-trend/)
 - [all in one pant suit](https://fashion.allwomenstalk.com/ways-to-make-a-pants-suit-look-more-feminine/)
 - [how to make your jeans longer](https://fashion.allwomenstalk.com/ways-to-make-your-jeans-last-longer/)
-- [monochrome street style](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-monochrome-trend/)
+- [casual grey coat outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-a-draped-jacket/)
+- [what to wear on a first date female](https://love.allwomenstalk.com/things-to-wear-on-a-first-date/)
 - [cardigan maxi dress](https://fashion.allwomenstalk.com/styling-tips-for-wearing-a-maxi-dress-in-the-fall/)
+- [tomboy outfits women](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-tomboy-chic/)
+- [socks over leggings trend](https://fashion.allwomenstalk.com/ways-to-wear-cozy-fall-socks-and-still-look-fashionable/)
 - [make harem pants](https://streetstyle.allwomenstalk.com/street-style-outfits-with-harem-pants-to-recreate/)
+- [sense for fashion](https://fashion.allwomenstalk.com/ways-to-have-a-unique-fashion-sense-that-stands-out/)
 - [8 Steps to Create a Tousled Bun ...](https://hair.allwomenstalk.com/steps-to-create-a-tousled-bun/)
 - [7 Creative Ways to Wear a Ponytail ...](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
 

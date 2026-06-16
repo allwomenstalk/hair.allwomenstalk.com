@@ -66,16 +66,16 @@ Do you have naturally red hair?
 
 ## Related Posts
 
+- [infographics about environment](https://lifestyle.allwomenstalk.com/infographics-to-help-you-understand-environmental-issues/)
+- [fun facts about proteins](https://diet.allwomenstalk.com/did-you-know-this-about-protein/)
+- [who eats salmon](https://food.allwomenstalk.com/awesome-facts-everyone-who-eats-salmon-needs-to-know/)
 - [blazing saddles paddle ball gif](https://health.allwomenstalk.com/who-knew-these-awesome-facts-about-breasts/)
 - [Disgusting Things You Didn't Know about Your Booty...](https://health.allwomenstalk.com/disgusting-things-you-didnt-know-about-your-booty/)
-- [starbucks tips and tricks](https://food.allwomenstalk.com/secrets-starbucks-employees-will-never-tell-you/)
 - [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/cool-things-that-you-definitely-didnt-learn-in-school/)
-- [who eats salmon](https://food.allwomenstalk.com/awesome-facts-everyone-who-eats-salmon-needs-to-know/)
 - [blonde hair facts](https://hair.allwomenstalk.com/mindblowing-hair-facts-you-never-knew-until-now/)
-- [infographics about environment](https://lifestyle.allwomenstalk.com/infographics-to-help-you-understand-environmental-issues/)
 - [cosas que pasan en el mundo y no sabemos](https://lifestyle.allwomenstalk.com/huge-things-you-didnt-know-were-happening-in-the-world/)
+- [starbucks tips and tricks](https://food.allwomenstalk.com/secrets-starbucks-employees-will-never-tell-you/)
 - [interesting superstitions facts](https://lifestyle.allwomenstalk.com/superstitions-that-have-pasts-deep-in-history-for-girls-who-like-cool-facts/)
-- [fun facts about proteins](https://diet.allwomenstalk.com/did-you-know-this-about-protein/)
 - [5 Facts on DNA ...](https://twilight.allwomenstalk.com/5-facts-on-dna/)
 - [5 Interesting Facts on Squids ...](https://twilight.allwomenstalk.com/5-interesting-facts-on-squids/)
 

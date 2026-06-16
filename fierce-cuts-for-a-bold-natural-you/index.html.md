@@ -80,16 +80,16 @@ Fierce haircuts range from classy and simple to edgy and sexy. No matter which s
 
 ## Related Posts
 
-- [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
-- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
-- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
-- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
 - [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
+- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
+- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
+- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
 - [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
 - [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
-- [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
 - [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
-- [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
+- [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
+- [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
+- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

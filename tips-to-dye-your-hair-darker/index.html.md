@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11003320)
 
 ## Related Posts
 
-- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
-- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
-- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
+- [how to blend dark roots with blonde hair](https://hair.allwomenstalk.com/ways-to-deal-with-dark-roots/)
+- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
 - [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
 - [loreal color riche le stylo eye sunshine](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
+- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [bad weave hairstyles](https://hair.allwomenstalk.com/tips-for-perfect-long-lasting-weave-hairstyles/)
-- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
+- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 

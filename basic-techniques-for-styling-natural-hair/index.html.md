@@ -50,16 +50,16 @@ A firm grasp of these basic techniques will help you create a variety of styles 
 
 ## Related Posts
 
-- [how to style a foulard](https://fashion.allwomenstalk.com/tips-for-wearing-a-foulard-on-your-hair/)
-- [thick hair hacks](https://hair.allwomenstalk.com/ways-to-fake-thick-hair/)
-- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
-- [what size curling iron do most salons use](https://hair.allwomenstalk.com/secrets-to-long-lasting-curls/)
-- [what to do when having a bad hair day](https://hair.allwomenstalk.com/ways-to-handle-a-bad-hair-day/)
-- [curling tipps](https://hair.allwomenstalk.com/hair-curling-tips-that-will-transform-your-hair/)
 - [growing 4a hair after big chop](https://hair.allwomenstalk.com/tips-on-caring-for-your-natural-hair-after-the-big-chop/)
-- [dark pink hair on black girl](https://hair.allwomenstalk.com/reasons-to-become-a-natural-hair-henna-head/)
-- [hair videos tutorials](https://hair.allwomenstalk.com/insanely-helpful-tutorials-for-styling-and-caring-for-curly-hair/)
 - [what to ask when getting a haircut](https://hair.allwomenstalk.com/questions-to-ask-yourself-before-getting-a-drastic-haircut/)
+- [hair videos tutorials](https://hair.allwomenstalk.com/insanely-helpful-tutorials-for-styling-and-caring-for-curly-hair/)
+- [dark pink hair on black girl](https://hair.allwomenstalk.com/reasons-to-become-a-natural-hair-henna-head/)
+- [fine natural hair](https://hair.allwomenstalk.com/ways-to-make-your-fine-natural-hair-look-fuller/)
+- [thick hair hacks](https://hair.allwomenstalk.com/ways-to-fake-thick-hair/)
+- [how to style a foulard](https://fashion.allwomenstalk.com/tips-for-wearing-a-foulard-on-your-hair/)
+- [what to do when having a bad hair day](https://hair.allwomenstalk.com/ways-to-handle-a-bad-hair-day/)
+- [what size curling iron do most salons use](https://hair.allwomenstalk.com/secrets-to-long-lasting-curls/)
+- [curling tipps](https://hair.allwomenstalk.com/hair-curling-tips-that-will-transform-your-hair/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 

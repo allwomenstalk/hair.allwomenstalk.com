@@ -46,14 +46,14 @@ Top Image Source: _fashionising.com_
 
 - [common hair mistakes](https://hair.allwomenstalk.com/most-common-hair-care-mistakes/)
 - [wavy hair techniques](https://hair.allwomenstalk.com/tips-for-getting-perfectly-wavy-hair/)
-- [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
 - [easy ways to change your hair](https://hair.allwomenstalk.com/tips-for-dramatically-changing-your-hair-color/)
+- [hair sock](https://hair.allwomenstalk.com/extra-tips-for-a-perfect-sock-bun/)
+- [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
 - [epilate vs shave](https://skincare.allwomenstalk.com/hair-removal-dos-and-donts/)
 - [rihanna new hairstyle 2023](https://hair.allwomenstalk.com/ways-to-make-your-hair-look-longer/)
 - [do it yourself blonde highlights](https://hair.allwomenstalk.com/tips-for-doing-your-own-highlights/)
 - [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
-- [hair sock](https://hair.allwomenstalk.com/extra-tips-for-a-perfect-sock-bun/)
-- [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
+- [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [8 Emergency Hair Fixes ...](https://hair.allwomenstalk.com/emergency-hair-fixes/)
 

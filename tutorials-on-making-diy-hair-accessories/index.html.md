@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22510676)
 
 ## Related Posts
 
-- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
-- [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
-- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
 - [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
-- [cheap christmas craft](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [homemade paper christmas ornaments](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
+- [cheap christmas craft](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
+- [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
+- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Great Tutorials on Wedding Hairstyles ...](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
 - [7 Tips for DIY Hair Highlights ...](https://allwomenstalk.com/7-tips-for-diy-hair-highlights/)
 

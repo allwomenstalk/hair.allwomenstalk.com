@@ -56,16 +56,16 @@ Dealing with oily hair can be a challenge but it can be overcome. How do you dea
 
 ## Related Posts
 
-- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
-- [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
-- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
-- [hair extensions to fix bad haircut](https://hair.allwomenstalk.com/reasons-not-to-let-a-bad-haircut-freak-you-out/)
 - [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
+- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
 - [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
+- [hair extensions to fix bad haircut](https://hair.allwomenstalk.com/reasons-not-to-let-a-bad-haircut-freak-you-out/)
+- [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
+- [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
 - [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
+- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
 - [why do people get split ends](https://hair.allwomenstalk.com/typical-reasons-why-your-split-ends-wont-go-away/)
 - [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
-- [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 

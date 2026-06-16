@@ -48,16 +48,16 @@ Top image source: [3.bp.blogspot.com](http://3.bp.blogspot.com/_cqQeFDPm3F4/TPyC
 
 ## Related Posts
 
-- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
-- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
-- [make your own dry shampoo](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
-- [color my quest](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
-- [how to protect hair in humid weather](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
-- [7 Ways to Handle Combination Hair ...](https://hair.allwomenstalk.com/7-ways-to-handle-combination-hair/)
-- [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 - [how to strengthen your hair](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
+- [tips for hair style](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
+- [how to protect hair in humid weather](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
+- [color my quest](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
+- [7 Ways to Handle Combination Hair ...](https://hair.allwomenstalk.com/7-ways-to-handle-combination-hair/)
 - [bad hair good groove 5](https://hair.allwomenstalk.com/emergency-hair-fixes/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
+- [make your own dry shampoo](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
+- [8 Basic Hair Maintenance Musts ...](https://hair.allwomenstalk.com/basic-hair-maintenance-musts/)
+- [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 - [8 Haircare Tips for African American Women ...](https://hair.allwomenstalk.com/8-haircare-tips-for-african-american-women/)
 - [8 Ways to Deal with Dry Hair ...](https://hair.allwomenstalk.com/8-ways-to-deal-with-dry-hair/)
 

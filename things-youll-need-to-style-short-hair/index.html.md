@@ -80,16 +80,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20196912)
 
 ## Related Posts
 
-- [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
+- [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
+- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
 - [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
 - [hair crunching](https://hair.allwomenstalk.com/ways-to-tell-your-hair-has-been-damaged/)
 - [how to give the best blowout](https://hair.allwomenstalk.com/easy-steps-to-achieve-the-perfect-blowout/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
-- [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
 - [tips for smooth and silky hair](https://hair.allwomenstalk.com/fantastic-tips-for-silky-smooth-hair/)
-- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
-- [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
+- [30 hair color](https://hair.allwomenstalk.com/reasons-to-go-back-to-your-natural-hair-color/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
 - [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
+- [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [8 Celebrity Hairstyles You Should Steal ...](https://allwomenstalk.com/8-celebrity-hairstyles-you-should-steal/)
 

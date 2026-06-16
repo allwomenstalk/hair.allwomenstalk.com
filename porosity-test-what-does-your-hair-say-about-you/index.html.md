@@ -77,16 +77,16 @@ Try an egg wash every now and again, using the protein to strengthen cuticles
 
 ## Related Posts
 
-- [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
-- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
-- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
-- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
 - [best ted-ed riddles](https://lifestyle.allwomenstalk.com/can-you-solve-this-tough-bridge-riddle/)
 - [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
 - [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
 - [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
+- [how to respond to whatsup](https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
+- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
 - [Why Does Hair Turn Gray?](https://allwomenstalk.com/why-does-hair-turn-gray/)
 - [What Does Your Car Say about You?](https://allwomenstalk.com/what-does-your-car-say-about-you/)
 

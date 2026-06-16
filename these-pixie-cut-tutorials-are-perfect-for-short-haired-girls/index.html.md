@@ -42,16 +42,16 @@ How do you style your short hair? Give up some tips in the comments!
 
 ## Related Posts
 
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
 - [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
-- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
 - [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
-- [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
-- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
 - [long plait hairstyles](https://hair.allwomenstalk.com/175-fabulous-braids-for-long-haired-ladies-who-just-cant-get-enough-inspo/)
+- [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
 - [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
+- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
+- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [7 Fantastic Tutorials for a Perfectly Chic Faux Mo...](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
 

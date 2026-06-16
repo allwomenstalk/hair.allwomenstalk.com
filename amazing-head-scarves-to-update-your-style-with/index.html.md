@@ -80,16 +80,16 @@ Top Image Source: [Second-Hand Vintage](http://second-handvintage.blogspot.com/2
 
 ## Related Posts
 
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
 - [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [paris color stylo avant azure](https://hair.allwomenstalk.com/retro-hairstyles-to-try-out/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
 - [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
 - [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
-- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [paris color stylo avant azure](https://hair.allwomenstalk.com/retro-hairstyles-to-try-out/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
-- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
 - [8 Ways to Wear Your Hair This Fall ...](https://hair.allwomenstalk.com/ways-to-wear-your-hair-this-fall/)
 - [8 Stylish Fashion Statement Necklaces ...](https://jewelry.allwomenstalk.com/stylish-fashion-statement-necklaces/)
 

@@ -42,16 +42,16 @@ I love dreadlocks and while they would never work for me, I think that they are 
 
 ## Related Posts
 
-- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
-- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
-- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
-- [tips on blow drying hair](https://hair.allwomenstalk.com/splendid-tips-on-blow-drying-your-hair/)
-- [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
 - [things to do before dyeing hair](https://hair.allwomenstalk.com/things-to-do-before-you-dye-your-hair/)
-- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
-- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
+- [makeup stylist](https://wedding.allwomenstalk.com/tips-for-working-with-a-professional-bridal-hair-and-makeup-stylist/)
+- [tips on blow drying hair](https://hair.allwomenstalk.com/splendid-tips-on-blow-drying-your-hair/)
 - [does bread crust make your hair curly](https://hair.allwomenstalk.com/old-wives-tales-about-hair/)
 - [how to reduce oily hair naturally](https://hair.allwomenstalk.com/fabulous-tips-for-how-to-treat-oily-hair/)
+- [best hairdresser sutherland shire](https://hair.allwomenstalk.com/keys-to-finding-a-good-hairdresser/)
+- [grey hair enhancers](https://hair.allwomenstalk.com/top-tips-for-great-grey-hair/)
+- [facts about grey hair](https://hair.allwomenstalk.com/facts-about-gray-hairs-and-how-to-deal-with-them/)
+- [historical hair care](https://hair.allwomenstalk.com/interesting-facts-about-hair-care-through-history/)
+- [best way to protect hair](https://beauty.allwomenstalk.com/tips-on-how-to-protect-your-hair-at-the-beach/)
 - [7 Ways to Care for Chemically Treated Hair ...](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 

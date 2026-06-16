@@ -56,16 +56,16 @@ What’s your favorite summer hairdo? Do you love the accessories I’ve mention
 
 ## Related Posts
 
-- [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
+- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
+- [warm weather dresses](https://fashion.allwomenstalk.com/essential-summer-dresses-to-embrace-the-warm-weather-in/)
+- [can you wear leather dress in the summer](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leather-this-summer/)
 - [casual concert outfit](https://streetstyle.allwomenstalk.com/street-style-outfits-for-your-next-summer-concert/)
-- [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
-- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
 - [fashion dos and don'ts](https://fashion.allwomenstalk.com/summer-fashion-dos-and-donts/)
 - [preppy taylor swift pics](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-this-summer/)
-- [can you wear leather dress in the summer](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leather-this-summer/)
-- [warm weather dresses](https://fashion.allwomenstalk.com/essential-summer-dresses-to-embrace-the-warm-weather-in/)
+- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
+- [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
+- [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
 - [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
-- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 

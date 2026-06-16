@@ -28,16 +28,16 @@ Not only are these hair ideas beautiful, but they're quick and easy, allowing yo
 
 ## Related Posts
 
-- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
-- [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
-- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
-- [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
 - [hair colors for christmas](https://hair.allwomenstalk.com/winter-hair-colors-that-will-make-heads-turn/)
 - [haircuts for long hair women](https://hair.allwomenstalk.com/layered-haircuts-for-every-face-shape/)
-- [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
-- [spiral braid](https://hair.allwomenstalk.com/braid-styles-to-master/)
-- [pin up doll ashley marie](https://hair.allwomenstalk.com/fabulous-pinup-hair-tutorials/)
+- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
+- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
 - [top knot hairstyle female](https://hair.allwomenstalk.com/what-your-hairstyle-says-about-you/)
+- [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
+- [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
+- [pin up doll ashley marie](https://hair.allwomenstalk.com/fabulous-pinup-hair-tutorials/)
+- [spiral braid](https://hair.allwomenstalk.com/braid-styles-to-master/)
+- [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

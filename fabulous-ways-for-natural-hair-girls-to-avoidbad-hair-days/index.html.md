@@ -46,15 +46,15 @@ How do you keep your gorgeous hair looking bomb?
 
 ## Related Posts
 
-- [how to prevent lice](https://hair.allwomenstalk.com/ways-to-prevent-head-lice/)
-- [Basic Hair Things Every Girl Should Know How to do...](https://hair.allwomenstalk.com/basic-hair-things-every-girl-should-know-how-to-do/)
-- [Hair Color Tips You May Have Never Heard before .....](https://hair.allwomenstalk.com/hair-color-tips-you-may-have-never-heard-before/)
-- [10 Tips to Help You Avoid Daily Hair Washing for L...](https://hair.allwomenstalk.com/tips-to-help-you-avoid-daily-hair-washing-for-lazy-girls/)
-- [Just How Often🤔 Should You Wash Your Hair?](https://hair.allwomenstalk.com/just-how-often-should-you-wash-your-hair/)
 - [6 Reasons Why 🤔 Your Hair is Dry and Unmanageable...](https://hair.allwomenstalk.com/reasons-why-your-hair-is-dry/)
+- [Just How Often🤔 Should You Wash Your Hair?](https://hair.allwomenstalk.com/just-how-often-should-you-wash-your-hair/)
+- [Hair Color Tips You May Have Never Heard before .....](https://hair.allwomenstalk.com/hair-color-tips-you-may-have-never-heard-before/)
 - [Try These Super Simple and Easy Hacks for Common H...](https://hair.allwomenstalk.com/try-these-super-simple-and-easy-hacks-for-common-hair-problems/)
-- [hairafter salon](https://hair.allwomenstalk.com/tips-and-tricks-for-when-you-dont-like-your-hair-after-visiting-the-salon/)
+- [10 Tips to Help You Avoid Daily Hair Washing for L...](https://hair.allwomenstalk.com/tips-to-help-you-avoid-daily-hair-washing-for-lazy-girls/)
 - [The Most Common Hair Mistakes when Blow Drying and...](https://hair.allwomenstalk.com/most-common-hair-mistakes-when-blow-drying/)
+- [Basic Hair Things Every Girl Should Know How to do...](https://hair.allwomenstalk.com/basic-hair-things-every-girl-should-know-how-to-do/)
+- [how to prevent lice](https://hair.allwomenstalk.com/ways-to-prevent-head-lice/)
+- [hairafter salon](https://hair.allwomenstalk.com/tips-and-tricks-for-when-you-dont-like-your-hair-after-visiting-the-salon/)
 - [How to Take Care of Hair Extensions to Keep Them L...](https://hair.allwomenstalk.com/how-to-take-care-of-hair-extensions/)
 - [Natural Hair Problem Solutions ...](https://allwomenstalk.com/natural-hair-problem-solutions/)
 - [8 Simple Tricks to Avoid Bad Hair Days ...](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)

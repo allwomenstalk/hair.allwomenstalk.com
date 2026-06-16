@@ -42,16 +42,16 @@ It doesn't matter if you intend on spending the entire season inside of a classr
 
 ## Related Posts
 
-- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
-- [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
-- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
+- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
+- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
+- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
 - [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
+- [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
+- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
 - [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
 - [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
-- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
-- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
-- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
+- [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)
+- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
 - [7 Stylish Ways to Wear Your Hair This Season ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
 - [7 Ways to Update Your Hairstyle with a Scarf ...](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
 

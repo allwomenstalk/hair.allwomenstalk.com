@@ -42,16 +42,16 @@ Your hair will thank you and you will soon be singing the praises of lemons. The
 
 ## Related Posts
 
-- [cheap hair stuff](https://hair.allwomenstalk.com/hair-products-you-can-afford-to-buy-cheap/)
-- [It's Time to Splurge on These 7 Types of Hot Hair ...](https://hair.allwomenstalk.com/its-time-to-splurge-on-these-types-of-hot-hair-products/)
-- [treasured tresses](https://hair.allwomenstalk.com/diy-masks-to-pamper-your-hair-in-fall/)
-- [loreal paris le stylo infinite sky](https://diy.allwomenstalk.com/ditch-that-drugstore-shampoo-and-make-your-own-using-these-easy-recipes/)
-- [7 Fool Proof DIY Treatments for Women with Damaged...](https://hair.allwomenstalk.com/homemade-treatments-to-turn-damaged-hair-to-sexy-locks/)
-- [Is Dry Shampoo Right for You?](https://hair.allwomenstalk.com/is-dry-shampoo-right-for-you/)
-- [7 Unusual Things You Can Use as a Hair Smoothing P...](https://hair.allwomenstalk.com/unusual-things-you-can-use-as-a-hair-smoothing-product/)
+- [Want Stronger Nails and Thicker Hair? You'd Better...](https://health.allwomenstalk.com/want-stronger-nails-and-thicker-hair-youd-better-stock-up-on-these-foods/)
 - [If You've Never Seen a Shampoo Bar, It's Time to B...](https://hair.allwomenstalk.com/if-youve-never-seen-a-shampoo-bar-its-time-to-buy-one/)
 - [The Best Hair Tools for Natural Hair ...](https://hair.allwomenstalk.com/the-best-hair-tools-for-natural-hair/)
-- [Want Stronger Nails and Thicker Hair? You'd Better...](https://health.allwomenstalk.com/want-stronger-nails-and-thicker-hair-youd-better-stock-up-on-these-foods/)
+- [treasured tresses](https://hair.allwomenstalk.com/diy-masks-to-pamper-your-hair-in-fall/)
+- [7 Unusual Things You Can Use as a Hair Smoothing P...](https://hair.allwomenstalk.com/unusual-things-you-can-use-as-a-hair-smoothing-product/)
+- [loreal paris le stylo infinite sky](https://diy.allwomenstalk.com/ditch-that-drugstore-shampoo-and-make-your-own-using-these-easy-recipes/)
+- [It's Time to Splurge on These 7 Types of Hot Hair ...](https://hair.allwomenstalk.com/its-time-to-splurge-on-these-types-of-hot-hair-products/)
+- [cheap hair stuff](https://hair.allwomenstalk.com/hair-products-you-can-afford-to-buy-cheap/)
+- [Is Dry Shampoo Right for You?](https://hair.allwomenstalk.com/is-dry-shampoo-right-for-you/)
+- [7 Fool Proof DIY Treatments for Women with Damaged...](https://hair.allwomenstalk.com/homemade-treatments-to-turn-damaged-hair-to-sexy-locks/)
 - [7 Tips to Lighten Your Hair ...](https://hair.allwomenstalk.com/tips-to-lighten-your-hair/)
 - [7 Little Known Hair Care Tips That Work ...](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
 

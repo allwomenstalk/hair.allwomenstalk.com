@@ -40,16 +40,16 @@ Move aside, rainbow colored food and avocado toast. The latest trend to hit Inst
 
 ## Related Posts
 
-- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
 - [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
-- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
-- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
 - [heatless hairstyles for school](https://hair.allwomenstalk.com/polished-no-heat-hair-styles-for-girls-going-back-to-school/)
-- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
+- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
 - [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
-- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
+- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
 - [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
+- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
+- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
+- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
 - [7 Gorgeous Hair Tutorials ...](https://hair.allwomenstalk.com/gorgeous-hair-tutorials/)
 - [12 Fab & Easy Bun Hairstyles ...](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
 

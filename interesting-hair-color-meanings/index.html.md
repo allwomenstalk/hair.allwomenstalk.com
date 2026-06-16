@@ -68,16 +68,16 @@ So what do you think? Have you rocked any of these hair colors? Does your person
 
 ## Related Posts
 
-- [womens professional hairstyles](https://hair.allwomenstalk.com/perfectly-professional-hairstyles-for-work/)
-- [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
-- [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
-- [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
-- [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
-- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
-- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
-- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
-- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
 - [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
+- [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
+- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
+- [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
+- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
+- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
+- [womens professional hairstyles](https://hair.allwomenstalk.com/perfectly-professional-hairstyles-for-work/)
+- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
+- [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
+- [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 - [5 Hair Color Ideas for a Fresh Look ...](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
 

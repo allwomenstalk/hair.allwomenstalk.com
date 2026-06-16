@@ -98,16 +98,16 @@ This article was written in collaboration with editor Lisa Washington, and edito
 
 ## Related Posts
 
-- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
-- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
-- [paris color smoky eye neon skirt](https://hair.allwomenstalk.com/amazing-hair-trends-to-try/)
-- [movie characters with two braids](https://hair.allwomenstalk.com/movie-inspired-braided-hairstyles-to-try/)
-- [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
 - [beachy braids](https://hair.allwomenstalk.com/cute-versions-of-a-beachy-wave-style/)
-- [kate plus 8 haircut](https://hair.allwomenstalk.com/celebrity-hairstyles-stylists-advise-us-to-avoid/)
+- [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
+- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
+- [movie characters with two braids](https://hair.allwomenstalk.com/movie-inspired-braided-hairstyles-to-try/)
 - [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
 - [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
+- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
+- [paris color smoky eye neon skirt](https://hair.allwomenstalk.com/amazing-hair-trends-to-try/)
 - [hair accessories for beach](https://hair.allwomenstalk.com/hair-accessories-for-the-beach-to-die-for/)
+- [kate plus 8 haircut](https://hair.allwomenstalk.com/celebrity-hairstyles-stylists-advise-us-to-avoid/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
 

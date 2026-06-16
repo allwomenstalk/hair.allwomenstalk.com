@@ -56,15 +56,15 @@ We all know it takes a little more than a change in hair color to be a rebel, bu
 
 ## Related Posts
 
-- [easy styles for curly hair](https://hair.allwomenstalk.com/easy-styles-for-curly-hair-that-are-great-for-any-occasion/)
-- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
-- [riche le smoky with a twist](https://hair.allwomenstalk.com/super-stylish-retro-hairstyles-with-a-modern-twist-to-try/)
 - [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
 - [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
-- [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
-- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
-- [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
+- [how to twist short curly hair](https://hair.allwomenstalk.com/awesome-styles-for-short-curly-hair/)
 - [7haircut](https://hair.allwomenstalk.com/haircut-ideas-for-your-next-beauty-appointment/)
+- [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
+- [easy styles for curly hair](https://hair.allwomenstalk.com/easy-styles-for-curly-hair-that-are-great-for-any-occasion/)
+- [riche le smoky with a twist](https://hair.allwomenstalk.com/super-stylish-retro-hairstyles-with-a-modern-twist-to-try/)
+- [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
+- [short haircuts for new moms](https://hair.allwomenstalk.com/fabulous-and-quick-hairstyles-for-new-moms/)
 - [front braid hairstyles for long hair](https://wedding.allwomenstalk.com/bridal-hairstyles-with-braids-that-are-fabulous/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)

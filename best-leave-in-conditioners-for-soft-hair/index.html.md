@@ -54,16 +54,16 @@ I think you will love how healthy and shiny your hair will be after using any of
 
 ## Related Posts
 
-- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
-- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
-- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
-- [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
+- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
 - [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
-- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
+- [white hair locks](https://hair.allwomenstalk.com/hair-products-every-girl-needs-for-luscious-locks/)
 - [purpose of clarifying shampoo](https://hair.allwomenstalk.com/reasons-to-use-a-clarifying-shampoo/)
 - [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
-- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
+- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
+- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
 - [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
+- [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
+- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
 - [7 Best Oily Hair Treatments ...](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
 - [7 Must-Have Hair Products for Winter Hair ...](https://hair.allwomenstalk.com/must-have-hair-products-for-winter-hair/)
 

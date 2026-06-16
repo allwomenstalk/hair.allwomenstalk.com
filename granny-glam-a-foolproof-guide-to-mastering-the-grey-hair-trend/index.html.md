@@ -42,16 +42,16 @@ Going grey deliberately is certainly a bold style choice! What's the most eye-ca
 
 ## Related Posts
 
+- [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
 - [beach hair updo](https://hair.allwomenstalk.com/beach-beauty-hairstyles-that-are-perfect-for-wearing-in-the-water/)
 - [rock ponytail hairstyles](https://hair.allwomenstalk.com/summer-hair-how-many-ways-can-you-rock-a-ponytail/)
-- [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
-- [top knot short hair](https://hair.allwomenstalk.com/effortless-hairstyles-for-the-beach-and-beyond/)
-- [deep side part](https://hair.allwomenstalk.com/change-your-look-just-by-parting-your-hair/)
-- [pin up hairstyles](https://hair.allwomenstalk.com/pinup-girl-hairstyles-youll-look-hot-wearing/)
-- [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
-- [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
-- [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
 - [haircuts with a fringe](https://hair.allwomenstalk.com/join-the-fringe-festival-with-these-styles-for-girls-with-bangs/)
+- [all shades of blonde](https://hair.allwomenstalk.com/the-best-shades-of-blonde-to-dye-your-hair/)
+- [deep side part](https://hair.allwomenstalk.com/change-your-look-just-by-parting-your-hair/)
+- [top knot short hair](https://hair.allwomenstalk.com/effortless-hairstyles-for-the-beach-and-beyond/)
+- [real red hair](https://hair.allwomenstalk.com/natural-beauties-that-will-inspire-you-to-color-your-hair-red/)
+- [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
+- [hair half up half down ponytail](https://hair.allwomenstalk.com/so-sweet-for-summer-try-these-half-up-half-down-hair-styles/)
 - [The Street Style Guide to Fall's Preppy Chic Trend...](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-chic-this-fall/)
 - [Get Ready to Add Some Serious Glamour to Your Hair...](https://hair.allwomenstalk.com/ways-to-add-some-glamour-to-your-hair/)
 

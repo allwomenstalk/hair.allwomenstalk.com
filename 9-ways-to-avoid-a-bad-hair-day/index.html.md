@@ -52,16 +52,16 @@ Top Photo Credit: [Pickled Tink](https://www.flickr.com/photos/pickledtink/22718
 
 ## Related Posts
 
+- [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
+- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 - [8 Ways to Deal with Dry Hair ...](https://hair.allwomenstalk.com/8-ways-to-deal-with-dry-hair/)
 - [loreal stylo smoky azure](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
-- [marcia brady brushing hair 100 times](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
-- [home hair care tips](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 - [how to braid fishtail on your own hair](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
-- [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
-- [baddiestvonly](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
-- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
-- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
 - [simplehair](https://hair.allwomenstalk.com/amazingly-simple-hair-care-tips-for-curly-hair/)
+- [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
+- [marcia brady brushing hair 100 times](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
+- [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
+- [baddiestvonly](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
 - [7 Quick Fixes for a Bad Hair Day ...](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
 - [12 Best Tips for a Bad Hair Day ...](https://allwomenstalk.com/12-best-tips-for-a-bad-hair-day/)
 

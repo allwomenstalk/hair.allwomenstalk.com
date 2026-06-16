@@ -42,16 +42,16 @@ Prevention is better than cure (or treatment), so try to judge when your hair sa
 
 ## Related Posts
 
-- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
-- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
 - [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
-- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
+- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
 - [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
+- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
 - [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
 - [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
+- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
 - [Natural Hair Problem Solutions ...](https://allwomenstalk.com/natural-hair-problem-solutions/)
 - [You Will Be Shocked when You Hear This about Your ...](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
 

@@ -42,16 +42,16 @@ What are your tips for getting rid of greasy hair? My go-to tip is dry shampoo a
 
 ## Related Posts
 
-- [home hairstyle](https://hair.allwomenstalk.com/steps-to-recreating-your-salon-hairstyle-at-home/)
-- [Hair 101: Easy Tips to Help You Have Healthy Hair ...](https://hair.allwomenstalk.com/hair-101-easy-tips-to-help-you-have-healthy-hair/)
-- [7 Ways to Treat Thinning Hair ...](https://hair.allwomenstalk.com/ways-to-treat-thinning-hair/)
-- [7 Tips for Dyeing Your Hair Blonde ...](https://hair.allwomenstalk.com/tips-for-dyeing-your-hair-blonde/)
-- [hair brushing routine](https://hair.allwomenstalk.com/ways-to-get-the-most-out-of-your-hair-brushing-routine/)
-- [faux side braid](https://hair.allwomenstalk.com/easy-ways-to-step-up-your-braid-game/)
 - [7 Protective Styles and How to Care for Them ...](https://hair.allwomenstalk.com/protective-styles-and-how-to-care-for-them/)
-- [loreal paris color stylo smoky shadow conquest](https://hair.allwomenstalk.com/times-not-to-cut-your-hair-short/)
-- [7 Ways to Have Better Hair Every Day ...](https://hair.allwomenstalk.com/ways-to-have-better-hair-every-day/)
+- [faux side braid](https://hair.allwomenstalk.com/easy-ways-to-step-up-your-braid-game/)
 - [How Often Should You Be Washing Your Hair? ...](https://hair.allwomenstalk.com/how-often-should-you-be-washing-your-hair/)
+- [7 Ways to Have Better Hair Every Day ...](https://hair.allwomenstalk.com/ways-to-have-better-hair-every-day/)
+- [7 Ways to Treat Thinning Hair ...](https://hair.allwomenstalk.com/ways-to-treat-thinning-hair/)
+- [hair brushing routine](https://hair.allwomenstalk.com/ways-to-get-the-most-out-of-your-hair-brushing-routine/)
+- [home hairstyle](https://hair.allwomenstalk.com/steps-to-recreating-your-salon-hairstyle-at-home/)
+- [7 Tips for Dyeing Your Hair Blonde ...](https://hair.allwomenstalk.com/tips-for-dyeing-your-hair-blonde/)
+- [loreal paris color stylo smoky shadow conquest](https://hair.allwomenstalk.com/times-not-to-cut-your-hair-short/)
+- [Hair 101: Easy Tips to Help You Have Healthy Hair ...](https://hair.allwomenstalk.com/hair-101-easy-tips-to-help-you-have-healthy-hair/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [21 Tips for Oily Hair Control ...](https://hair.allwomenstalk.com/tips-for-oily-hair-control/)
 

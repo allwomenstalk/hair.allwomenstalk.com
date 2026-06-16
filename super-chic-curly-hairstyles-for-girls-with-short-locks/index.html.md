@@ -74,16 +74,16 @@ If you don't have short hair now, I bet you're thinking about chopping it all of
 
 ## Related Posts
 
-- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
 - [womens hairstyles for long faces](https://hair.allwomenstalk.com/these-are-the-best-and-worst-hairstyles-for-your-face-shape/)
-- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
-- [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
-- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
-- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
-- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
-- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
 - [shabby bangs](https://hair.allwomenstalk.com/bangs-the-ins-and-outs-of-pulling-off-this-style/)
+- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
+- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
+- [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
+- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
 - [half up curly prom hair](https://hair.allwomenstalk.com/perfect-hairstyles-for-a-gorgeous-look-at-coachella/)
+- [heart girl hair style](https://hair.allwomenstalk.com/lovely-hairstyles-for-girls-with-a-heart-shaped-face/)
+- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
+- [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 - [7 Cute Short Curly Hairstyles ...](https://hair.allwomenstalk.com/cute-short-curly-hairstyles/)
 

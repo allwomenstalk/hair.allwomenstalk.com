@@ -80,16 +80,16 @@ Summer is the ultimate time to experiment and find the look that makes you feel 
 
 ## Related Posts
 
-- [diane kruger tied up](https://diy.allwomenstalk.com/ways-to-diy-and-steal-diane-krugers-summer-style/)
-- [beautiful rompers](https://fashion.allwomenstalk.com/gorgeous-rompers/)
-- [flowy tank top sewing pattern](https://diy.allwomenstalk.com/adorable-diy-tank-top-ideas-for-the-summer/)
 - [fashion trends summer 2013](https://fashion.allwomenstalk.com/trendy-items-for-summer/)
-- [how to wear a hockey jersey in the summer](https://fashion.allwomenstalk.com/stylish-printed-t-shirts-to-wear-this-summer/)
+- [flowy tank top sewing pattern](https://diy.allwomenstalk.com/adorable-diy-tank-top-ideas-for-the-summer/)
 - [women's dressy flip flops](https://shoes.allwomenstalk.com/dressy-flips-flops-to-wear-on-a-date-this-summer/)
-- [scalloped two piece swimsuit](https://fashion.allwomenstalk.com/cute-scalloped-swimsuits-to-see-you-through-the-rest-of-summer/)
-- [best heatwave essentials](https://beauty.allwomenstalk.com/heatwave-essentials-every-girl-should-own/)
-- [clothes for internship](https://fashion.allwomenstalk.com/key-wardrobe-pieces-for-your-summer-internship/)
 - [cute hats for summer](https://fashion.allwomenstalk.com/cute-types-of-sun-hats-for-summer/)
+- [scalloped two piece swimsuit](https://fashion.allwomenstalk.com/cute-scalloped-swimsuits-to-see-you-through-the-rest-of-summer/)
+- [how to wear a hockey jersey in the summer](https://fashion.allwomenstalk.com/stylish-printed-t-shirts-to-wear-this-summer/)
+- [diane kruger tied up](https://diy.allwomenstalk.com/ways-to-diy-and-steal-diane-krugers-summer-style/)
+- [clothes for internship](https://fashion.allwomenstalk.com/key-wardrobe-pieces-for-your-summer-internship/)
+- [beautiful rompers](https://fashion.allwomenstalk.com/gorgeous-rompers/)
+- [best heatwave essentials](https://beauty.allwomenstalk.com/heatwave-essentials-every-girl-should-own/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 - [7 Hot Hair Styles to Try ...](https://hair.allwomenstalk.com/hot-hair-styles-to-try-in/)
 

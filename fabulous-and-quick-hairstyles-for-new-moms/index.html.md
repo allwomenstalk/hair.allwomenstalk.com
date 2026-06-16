@@ -58,16 +58,16 @@ Life doesn’t stop for you once you become a mother, it only changes in some dr
 
 ## Related Posts
 
-- [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
-- [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
-- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
 - [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
-- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
 - [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
-- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
-- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
-- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
 - [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
+- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
+- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
+- [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
+- [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
+- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
+- [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
+- [zip hairstyle](https://hair.allwomenstalk.com/awesome-braided-hairstyles-that-youll-love/)
 - [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 

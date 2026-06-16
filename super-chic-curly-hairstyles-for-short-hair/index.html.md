@@ -209,16 +209,16 @@ What's your favorite way to wear your curly hair?
 
 ## Related Posts
 
-- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
 - [hairstyles for little girls](https://hair.allwomenstalk.com/the-best-back-to-school-hairstyles-for-lazy-girls/)
+- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
 - [cute casual hairstyles](https://hair.allwomenstalk.com/messy-hairstyles-to-look-casual-for-class/)
+- [blonde tips girl](https://hair.allwomenstalk.com/hair-tips-for-all-of-you-beautiful-blonde-ladies/)
+- [forehead haircut female](https://hair.allwomenstalk.com/the-best-hairstyles-for-women-with-large-foreheads/)
 - [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
 - [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
-- [forehead haircut female](https://hair.allwomenstalk.com/the-best-hairstyles-for-women-with-large-foreheads/)
-- [blonde tips girl](https://hair.allwomenstalk.com/hair-tips-for-all-of-you-beautiful-blonde-ladies/)
-- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
-- [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
 - [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
+- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
+- [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

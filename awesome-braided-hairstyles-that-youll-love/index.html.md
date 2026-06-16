@@ -56,16 +56,16 @@ There you have it! These seven braided hairstyles are totally awesome. Which sty
 
 ## Related Posts
 
-- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
-- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
-- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
 - [paris stylo primped and previous](https://hair.allwomenstalk.com/celebrity-hairstyles-to-try-this-summer/)
 - [best ombre](https://hair.allwomenstalk.com/best-ombre-hair-ideas-to-try-this-season/)
-- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
-- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
 - [hairstyles for college](https://hair.allwomenstalk.com/easy-hairstyles-for-college-when-youre-in-a-hurry/)
+- [radiant orchid hair color](https://hair.allwomenstalk.com/amazing-hair-colors-to-try-in-without-thinking-twice/)
 - [protective sleep hairstyles for curly hair](https://hair.allwomenstalk.com/protective-hairstyles-for-curly-hair-that-work/)
+- [keith gordon ham](https://hair.allwomenstalk.com/worst-hair-trends-of-all-time/)
+- [chopsticks design haircut](https://hair.allwomenstalk.com/temporary-hair-accessories-to-glam-up-your-look/)
+- [different ways to wear short hair](https://hair.allwomenstalk.com/ways-to-rock-short-hair-like-a-fierce-diva/)
 - [updo for mid length hair](https://hair.allwomenstalk.com/cute-updos-for-shoulder-length-curly-hair/)
+- [bad celebrity hair extensions](https://celebs.allwomenstalk.com/of-the-worst-celebrity-hairstyles-of-all-time/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

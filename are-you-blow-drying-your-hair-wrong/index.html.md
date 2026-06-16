@@ -42,16 +42,16 @@ These are 7 ways you may have been drying your hair wrong. Have you made any of 
 
 ## Related Posts
 
-- [paris riche stylo sunshine](https://hair.allwomenstalk.com/revive-your-dry-hair-with-these-tips/)
-- [2nd day hair ideas](https://hair.allwomenstalk.com/pretty-polished-styles-for-second-or-third-day-hair/)
-- [fabolous hair](https://hair.allwomenstalk.com/develop-these-habits-for-fabulous-hair-every-day/)
-- [Here's Howto Find the Right Flat Iron for Your Hai...](https://hair.allwomenstalk.com/what-type-of-flat-iron-fits-your-hair-type/)
-- [7 Awesome Tips for Girls Who Don't Want to Mess up...](https://hair.allwomenstalk.com/ways-to-workout-without-wrecking-your-hair/)
-- [How to Bring Your Hair Back to Life when the Summe...](https://hair.allwomenstalk.com/how-to-revive-your-hair-after-summer-takes-its-toll/)
-- [How to Handle Unruly Hair in the Summer Heat ...](https://hair.allwomenstalk.com/how-to-handle-unruly-hair-in-the-summer-heat/)
-- [holly madison natural hair color](https://hair.allwomenstalk.com/want-to-go-blond-read-this-first/)
 - [Prep Your Hair for Fall with These 7 Easy Steps .....](https://hair.allwomenstalk.com/prep-your-hair-for-fall-with-these-easy-steps/)
+- [2nd day hair ideas](https://hair.allwomenstalk.com/pretty-polished-styles-for-second-or-third-day-hair/)
+- [Here's Howto Find the Right Flat Iron for Your Hai...](https://hair.allwomenstalk.com/what-type-of-flat-iron-fits-your-hair-type/)
+- [How to Bring Your Hair Back to Life when the Summe...](https://hair.allwomenstalk.com/how-to-revive-your-hair-after-summer-takes-its-toll/)
+- [fabolous hair](https://hair.allwomenstalk.com/develop-these-habits-for-fabulous-hair-every-day/)
+- [holly madison natural hair color](https://hair.allwomenstalk.com/want-to-go-blond-read-this-first/)
 - [Everything You Need to Know about Putting on and C...](https://hair.allwomenstalk.com/how-to-put-on-and-care-for-your-hair-extensions/)
+- [7 Awesome Tips for Girls Who Don't Want to Mess up...](https://hair.allwomenstalk.com/ways-to-workout-without-wrecking-your-hair/)
+- [paris riche stylo sunshine](https://hair.allwomenstalk.com/revive-your-dry-hair-with-these-tips/)
+- [How to Handle Unruly Hair in the Summer Heat ...](https://hair.allwomenstalk.com/how-to-handle-unruly-hair-in-the-summer-heat/)
 - [Do You Want to Have Perfect Hair?](https://allwomenstalk.com/do-you-want-to-have-perfect-hair/)
 - [Should You Wear Hair Accessories?](https://allwomenstalk.com/should-you-wear-hair-accessories/)
 

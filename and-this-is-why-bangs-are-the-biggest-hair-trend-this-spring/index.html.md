@@ -106,16 +106,16 @@ Love those glasses!
 
 ## Related Posts
 
-- [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
-- [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
-- [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
-- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
 - [olivia palermo teeth](https://hair.allwomenstalk.com/steal-these-celeb-hair-stylist-secrets-to-look-your-sexiest/)
+- [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
 - [french vs dutch plait](https://hair.allwomenstalk.com/adorable-ways-to-wear-a-dutch-braid/)
+- [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
 - [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
+- [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
 - [braid envy](https://hair.allwomenstalk.com/these-photos-are-bound-to-give-you-major-braid-envy/)
-- [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
+- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
 - [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
+- [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
 - [7 Celebrities Proving That Bangs Are Back ...](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 - [7 Interesting Ways to Style Your Bangs ...](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
 

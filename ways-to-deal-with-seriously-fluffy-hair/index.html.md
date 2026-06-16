@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/10628825)
 
 ## Related Posts
 
-- [2a hair styles](https://hair.allwomenstalk.com/styling-tips-for-unruly-hair/)
-- [i want to cut my hair short like a boy](https://hair.allwomenstalk.com/very-good-reasons-not-to-cut-your-hair/)
-- [hairstyle diy](https://hair.allwomenstalk.com/things-youll-need-for-a-perfect-diy-hairstyle/)
 - [how to give your hair more volume](https://hair.allwomenstalk.com/ways-to-give-your-hair-more-volume/)
 - [savy hot air brush](https://hair.allwomenstalk.com/savvy-at-home-hair-tips/)
-- [african american hair care](https://hair.allwomenstalk.com/african-american-hair-care-musts/)
-- [hair cutting tips](https://hair.allwomenstalk.com/tips-for-cutting-your-own-hair/)
-- [how to grow my hair out](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair/)
-- [bad hair products](https://hair.allwomenstalk.com/ways-to-tell-that-your-hair-hates-a-product/)
 - [allwomenstalk](https://hair.allwomenstalk.com/tips-for-perfect-curls-without-heat/)
+- [african american hair care](https://hair.allwomenstalk.com/african-american-hair-care-musts/)
+- [bad hair products](https://hair.allwomenstalk.com/ways-to-tell-that-your-hair-hates-a-product/)
+- [hairstyle diy](https://hair.allwomenstalk.com/things-youll-need-for-a-perfect-diy-hairstyle/)
+- [2a hair styles](https://hair.allwomenstalk.com/styling-tips-for-unruly-hair/)
+- [hair cutting tips](https://hair.allwomenstalk.com/tips-for-cutting-your-own-hair/)
+- [i want to cut my hair short like a boy](https://hair.allwomenstalk.com/very-good-reasons-not-to-cut-your-hair/)
+- [how to grow my hair out](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [7 Ways to Handle Combination Hair ...](https://hair.allwomenstalk.com/7-ways-to-handle-combination-hair/)
 

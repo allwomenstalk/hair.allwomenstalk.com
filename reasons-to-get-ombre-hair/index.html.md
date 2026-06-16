@@ -42,16 +42,16 @@ What are your thoughts on Ombre hair dye? Yay or nay? I’d definitely go with y
 
 ## Related Posts
 
-- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
-- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
-- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
-- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
-- [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
-- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
-- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
-- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
 - [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
+- [loreal paris riche le stylo timeless spark](https://hair.allwomenstalk.com/hair-trends-for-spring/)
 - [hot pixie cut](https://beauty.allwomenstalk.com/ways-to-wear-springs-hot-pixie-look/)
+- [updo hairstyles 2013](https://hair.allwomenstalk.com/hot-updos-for-spring/)
+- [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
+- [teenager hairstyles](https://hair.allwomenstalk.com/trendy-hairstyles-for-teens/)
+- [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
+- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
+- [how to do bun hairstyle](https://hair.allwomenstalk.com/fab-easy-bun-hairstyles-for-lazy-days/)
+- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
 - [7 Reasons I Heart Highlights ...](https://hair.allwomenstalk.com/7-reasons-i-heart-highlights/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 

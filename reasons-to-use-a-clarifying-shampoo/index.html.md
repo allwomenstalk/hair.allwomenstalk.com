@@ -42,16 +42,16 @@ So if you’re looking to get the most out of your hair, you need to consider in
 
 ## Related Posts
 
-- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
-- [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
-- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
-- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
-- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
 - [is cocunut oil good for hair](https://hair.allwomenstalk.com/reasons-to-use-coconut-oil-on-your-hair/)
+- [bumble and bumble cityswept](https://hair.allwomenstalk.com/heavenly-hairsprays-for-your-best-hair-day-yet/)
+- [best shampoo for body and fullness](https://hair.allwomenstalk.com/shampoos-that-add-body-to-your-hair/)
 - [bed head sulfate free shampoo](https://hair.allwomenstalk.com/best-clarifying-shampoos-to-restore-your-hairs-health/)
-- [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
-- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
 - [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
+- [tresemme shampoo hair colour](https://hair.allwomenstalk.com/shampoos-for-color-treated-hair/)
+- [infusium spray](https://hair.allwomenstalk.com/great-products-for-naturally-curly-hair-that-work-for-me/)
+- [how to pronounce chi hair products](https://hair.allwomenstalk.com/kitchen-staples-that-will-do-wonders-for-your-hair/)
+- [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
+- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
 - [7 Alternatives to Chemical-Based Shampoo ...](https://beauty.allwomenstalk.com/alternatives-to-chemical-based-shampoo/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 

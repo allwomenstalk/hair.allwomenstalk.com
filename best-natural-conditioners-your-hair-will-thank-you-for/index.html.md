@@ -80,16 +80,16 @@ All of these conditioners have gotten rave reviews from hair mavens for moisturi
 
 ## Related Posts
 
-- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
-- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
-- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
-- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
-- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
-- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
 - [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
 - [best curly hair](https://beauty.allwomenstalk.com/top-best-curly-hair-products/)
+- [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
+- [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
 - [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
+- [shampoo for severe dry scalp](https://hair.allwomenstalk.com/incredibly-effective-shampoos-for-dry-scalp-you-just-have-to-try/)
+- [oscar blandi volumizing dry shampoo](https://hair.allwomenstalk.com/best-dry-shampoos-for-lazy-days/)
+- [best brands for hair straighteners](https://beauty.allwomenstalk.com/top-best-hair-straighteners/)
+- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
+- [best restorative hair masks](https://beauty.allwomenstalk.com/best-hair-masks/)
 - [7 Wonderful Natural Oils Your Hair Will Love ...](https://hair.allwomenstalk.com/wonderful-natural-oils-your-hair-will-love/)
 - [13 Delightfully 🤗 Wonderful Homemade Hair Conditi...](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
 

@@ -40,16 +40,16 @@ Side swept bangs are my favorite. They're like faux bangs. You can sweep them to
 
 ## Related Posts
 
-- [The Sexiest Instagram Hair Trends so Far in 2016 ....](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-so-far-in/)
-- [17 Springtime Hairstyles That'll Make You Stand ou...](https://hair.allwomenstalk.com/springtime-hairstyles-thatll-make-you-stand-out/)
-- [11 Hairstyles Inspired by Beautiful Artwork ...](https://hair.allwomenstalk.com/hairstyles-inspired-by-beautiful-artwork/)
-- [These 17 Adorable Hair ‍ Colors Fit the Spring Sea...](https://hair.allwomenstalk.com/these-adorable-hair-colors-fit-the-spring-season/)
-- [model off duty hair](https://hair.allwomenstalk.com/hot-products-thatll-give-you-modeloffduty-hair/)
-- [Adorn Your Hair with These Springtime Accessories ...](https://hair.allwomenstalk.com/adorn-your-hair-with-these-springtime-accessories/)
-- [sand art hair](https://hair.allwomenstalk.com/how-stylists-create-sand-art-hair/)
-- [7 Family Friendly Hairstyles to Wear during the Ea...](https://hair.allwomenstalk.com/family-friendly-hairstyles-to-wear-during-the-easter-holiday/)
-- [paris stylo smoky timeless spark](https://hair.allwomenstalk.com/the-best-color-combos-for-ombre-hair/)
 - [Funfetti Hair is the Hottest New Trend ...](https://hair.allwomenstalk.com/funfetti-hair-is-the-hottest-new-trend/)
+- [7 Family Friendly Hairstyles to Wear during the Ea...](https://hair.allwomenstalk.com/family-friendly-hairstyles-to-wear-during-the-easter-holiday/)
+- [11 Hairstyles Inspired by Beautiful Artwork ...](https://hair.allwomenstalk.com/hairstyles-inspired-by-beautiful-artwork/)
+- [17 Springtime Hairstyles That'll Make You Stand ou...](https://hair.allwomenstalk.com/springtime-hairstyles-thatll-make-you-stand-out/)
+- [The Sexiest Instagram Hair Trends so Far in 2016 ....](https://hair.allwomenstalk.com/the-sexiest-instagram-hair-trends-so-far-in/)
+- [paris stylo smoky timeless spark](https://hair.allwomenstalk.com/the-best-color-combos-for-ombre-hair/)
+- [These 17 Adorable Hair ‍ Colors Fit the Spring Sea...](https://hair.allwomenstalk.com/these-adorable-hair-colors-fit-the-spring-season/)
+- [sand art hair](https://hair.allwomenstalk.com/how-stylists-create-sand-art-hair/)
+- [Adorn Your Hair with These Springtime Accessories ...](https://hair.allwomenstalk.com/adorn-your-hair-with-these-springtime-accessories/)
+- [model off duty hair](https://hair.allwomenstalk.com/hot-products-thatll-give-you-modeloffduty-hair/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 - [9 Stunningly Iconic Celebrity Hairstyles to Try .....](https://hair.allwomenstalk.com/stunningly-iconic-celebrity-hairstyles-to-try/)
 

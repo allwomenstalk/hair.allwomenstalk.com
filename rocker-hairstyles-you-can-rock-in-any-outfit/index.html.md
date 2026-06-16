@@ -42,16 +42,16 @@ With a little bit of practice, you'll be able to rock every single one of these 
 
 ## Related Posts
 
-- [80s hair color trends](https://hair.allwomenstalk.com/which-of-these-three-hottest-hair-colors-for-spring-will-you-try/)
-- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
-- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
-- [braid games](https://hair.allwomenstalk.com/fuel-your-braid-obsession-game-of-thrones-inspired-hairstyles/)
-- [bollywood calling](https://hair.allwomenstalk.com/bollywood-calling-youve-got-to-try-these-modern-hairstyles-with-a-saree/)
-- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
 - [cabello 4c corto](https://hair.allwomenstalk.com/easy-styles-for-short-kinky-hair/)
 - [nose hair braids](https://hair.allwomenstalk.com/chic-boho-hair-styles-your-hair-wants-now/)
-- [easy hair styles for beginners](https://hair.allwomenstalk.com/only-have-two-minutes-quick-and-easy-hairstyles-every-girl-will-love/)
+- [80s hair color trends](https://hair.allwomenstalk.com/which-of-these-three-hottest-hair-colors-for-spring-will-you-try/)
+- [braid games](https://hair.allwomenstalk.com/fuel-your-braid-obsession-game-of-thrones-inspired-hairstyles/)
 - [updos for shoulder length hair easy](https://hair.allwomenstalk.com/summer-hair-keep-your-cool-with-these-updos/)
+- [mid length loose curls](https://hair.allwomenstalk.com/summer-hair-loose-waves-and-curls-are-causing-a-stir/)
+- [easy hair styles for beginners](https://hair.allwomenstalk.com/only-have-two-minutes-quick-and-easy-hairstyles-every-girl-will-love/)
+- [bollywood calling](https://hair.allwomenstalk.com/bollywood-calling-youve-got-to-try-these-modern-hairstyles-with-a-saree/)
+- [hair tie with bobby pins](https://hair.allwomenstalk.com/awesome-ways-to-change-up-your-hair-with-just-bobby-pins/)
+- [holiday hair](https://hair.allwomenstalk.com/time-for-a-holiday-these-vacation-hair-inspos-are-all-you-need-to-know/)
 - [7 Stylish Ways to Wear Your Hair This Season ...](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
 - [7 Items That Make Any Outfit Sexy ...](https://fashion.allwomenstalk.com/items-that-make-any-outfit-sexy/)
 

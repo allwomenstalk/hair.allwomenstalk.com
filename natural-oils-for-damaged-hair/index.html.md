@@ -56,16 +56,16 @@ All you need to do to receive the benefits from these oils is apply them to dry 
 
 ## Related Posts
 
-- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
-- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
-- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [hair cupboard](https://hair.allwomenstalk.com/miracle-hair-treatments-from-your-kitchen-cupboard/)
-- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
-- [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
 - [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
-- [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
 - [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
 - [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
+- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
+- [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
+- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
+- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
+- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
+- [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
 - [7 Best Oily Hair Treatments ...](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
 - [Top 7 Oily Hair Products ...](https://hair.allwomenstalk.com/top-oily-hair-products/)
 

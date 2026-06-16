@@ -58,16 +58,16 @@ Top image source: [weheartit.com](https://weheartit.com/entry/11273291)
 
 ## Related Posts
 
-- [hairstyles for my face](https://hair.allwomenstalk.com/best-hairstyles-for-7-face-shapes/)
-- [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
-- [curly hairstyles to try](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
-- [riche stylo glistening](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
-- [ponytail wind](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
 - [hair salon blog](https://hair.allwomenstalk.com/brilliant-hairstyle-blogs/)
-- [concave bob curly hair](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
+- [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
+- [riche stylo glistening](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
+- [hairstyles for my face](https://hair.allwomenstalk.com/best-hairstyles-for-7-face-shapes/)
 - [how to wear your hair up](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
+- [ponytail wind](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
+- [curly hairstyles to try](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [7 Sweet Hairclips under $10 ...](https://hair.allwomenstalk.com/7-sweet-hairclips-under-10/)
+- [concave bob curly hair](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

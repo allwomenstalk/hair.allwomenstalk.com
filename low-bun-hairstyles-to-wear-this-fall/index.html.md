@@ -42,16 +42,16 @@ Aren’t these low bun hairstyles amazing? I’m definitely giving this last one
 
 ## Related Posts
 
-- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
-- [different ways to style your hair](https://hair.allwomenstalk.com/quick-and-easy-ways-to-style-your-hair/)
-- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
-- [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
-- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
 - [reese witherspoon updo](https://hair.allwomenstalk.com/gorgeous-red-carpet-inspired-updos-to-try/)
-- [kool aid dye dark hair](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
-- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
 - [how to wear hair charms](https://hair.allwomenstalk.com/tutorials-to-help-you-learn-how-to-wear-hair-jewelry/)
 - [haircut helena](https://hair.allwomenstalk.com/celebrity-hairstyles-you-shouldnt-copy/)
+- [knotted hairstyle](https://hair.allwomenstalk.com/knot-hairstyles-to-rock-this-spring/)
+- [hairstyles with hats](https://hair.allwomenstalk.com/hairstyles-to-wear-with-hats/)
+- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
+- [different ways to style your hair](https://hair.allwomenstalk.com/quick-and-easy-ways-to-style-your-hair/)
+- [kool aid dye dark hair](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
+- [how ombre hair at home](https://hair.allwomenstalk.com/reasons-to-get-ombre-hair/)
+- [stunning short hairstyles](https://hair.allwomenstalk.com/simply-stunning-short-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 

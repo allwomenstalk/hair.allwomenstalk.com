@@ -94,16 +94,16 @@ Top Photo Credit: [thekraftroom](https://www.flickr.com/photos/35784364@N05/4712
 
 ## Related Posts
 
-- [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
-- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
-- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
 - [homemade paper christmas ornaments](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
+- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [facts about etsy](https://lifestyle.allwomenstalk.com/fun-facts-about-etsy-shop-crafted-by-lindy/)
-- [cheap christmas craft](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
+- [cheap christmas craft](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
+- [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
+- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
+- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [8 Accessories to Liven up Your Ponytail ...](https://hair.allwomenstalk.com/8-accessories-to-liven-up-your-ponytail/)
 - [8 Wild Things to do with Your Hair ...](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 

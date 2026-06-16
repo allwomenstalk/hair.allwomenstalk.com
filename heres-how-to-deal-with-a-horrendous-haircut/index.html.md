@@ -42,16 +42,16 @@ These are some ways to deal with a horrendous haircut. Have you been in this pos
 
 ## Related Posts
 
-- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
-- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
-- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
-- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
-- [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
-- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
-- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
-- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
 - [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
+- [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
+- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
+- [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
+- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
+- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
+- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
+- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
+- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
 - [7 Ways to Deal with Damaged Hair ...](https://hair.allwomenstalk.com/7-ways-to-deal-with-damaged-hair/)
 - [7 Ways to Cope with a Bad Haircut ...](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
 

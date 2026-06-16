@@ -62,16 +62,16 @@ Do you think that crazy hair colors should be confined to younger people? Or do 
 
 ## Related Posts
 
-- [cute hairstyles with bangs tumblr](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
-- [lauren graham curly hair](https://hair.allwomenstalk.com/curly-hair-inspos-that-every-curly-girl-will-appreciate/)
 - [popcorn hairstyle braids](https://hair.allwomenstalk.com/lovely-short-natural-hairstyle-tutorials/)
-- [hairstyles for grade 8 grad](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
 - [beaid crown](https://hair.allwomenstalk.com/stunning-braided-crown-hairstyles-for-every-occasion/)
+- [brush for wet hair](https://hair.allwomenstalk.com/hair-hacks-thatll-make-you-look-model-worthy/)
+- [hairstyles that never go out of style](https://hair.allwomenstalk.com/timeless-hairstyles-that-have-been-around-for-centuries/)
+- [hairstyles for grade 8 grad](https://hair.allwomenstalk.com/these-are-the-hottest-hair-trends-for-spring-check-them-out-now/)
 - [short hair hat styles](https://hair.allwomenstalk.com/less-is-more-amazing-ways-to-accessorize-short-hair/)
 - [longish pixie haircuts](https://hair.allwomenstalk.com/the-long-and-short-of-it-pixie-cuts/)
 - [change hairstyle](https://hair.allwomenstalk.com/virtual-makeover-websites-to-see-how-youd-look-with-different-haircuts/)
-- [brush for wet hair](https://hair.allwomenstalk.com/hair-hacks-thatll-make-you-look-model-worthy/)
-- [hairstyles that never go out of style](https://hair.allwomenstalk.com/timeless-hairstyles-that-have-been-around-for-centuries/)
+- [cute hairstyles with bangs tumblr](https://hair.allwomenstalk.com/tumblr-inspired-hairstyle-tutorials-youll-adore/)
+- [lauren graham curly hair](https://hair.allwomenstalk.com/curly-hair-inspos-that-every-curly-girl-will-appreciate/)
 - [8 Innovative Things to Try with Your Hair ...](https://hair.allwomenstalk.com/innovative-things-to-try-with-your-hair/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 

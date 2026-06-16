@@ -116,16 +116,16 @@ So, what's your favorite?
 
 ## Related Posts
 
-- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
 - [waterfall braid with curls short hair](https://hair.allwomenstalk.com/the-hottest-summer-hairstyles-for-medium-length-locks/)
-- [great gatsby hair for long hair](https://hair.allwomenstalk.com/habits-that-all-women-with-amazing-hair-have/)
-- [cute 17 girls](https://hair.allwomenstalk.com/super-cute-hairstyles-for-girls-who-are-growing-out-their-bangs/)
 - [braid up dos](https://hair.allwomenstalk.com/braid-updos-for-girls-who-are-sick-of-wearing-regular-braids/)
-- [80s hair tutorial for short hair](https://hair.allwomenstalk.com/hair-tutorials-for-women-who-wish-they-had-shorter-hair/)
+- [stand out eliza](https://hair.allwomenstalk.com/bright-hair-inspo-for-girls-who-want-to-stand-out-in-a-crowd/)
 - [cute easy summer hairstyles](https://hair.allwomenstalk.com/super-easy-summer-hair-styles-for-super-lazy-ladies/)
-- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
+- [great gatsby hair for long hair](https://hair.allwomenstalk.com/habits-that-all-women-with-amazing-hair-have/)
 - [prettiest brunettes](https://hair.allwomenstalk.com/beautiful-brunettes-should-try-these-hair-styling-rules/)
 - [cute girls 17 years old](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair/)
+- [1920 hair styles](https://hair.allwomenstalk.com/10-second-hairstyles-for-ultra-busy-girls/)
+- [cute 17 girls](https://hair.allwomenstalk.com/super-cute-hairstyles-for-girls-who-are-growing-out-their-bangs/)
+- [80s hair tutorial for short hair](https://hair.allwomenstalk.com/hair-tutorials-for-women-who-wish-they-had-shorter-hair/)
 - [Girls Who Know How to Rock Their Dreadlocks ...](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
 - [21 Sexy Hair Inspos You Must See and Try Yourself ...](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
 

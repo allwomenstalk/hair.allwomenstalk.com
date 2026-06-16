@@ -42,16 +42,16 @@ Can you feel yourself feeling cooling off now? Which look are you dying to try? 
 
 ## Related Posts
 
-- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
-- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
-- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
+- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
+- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
 - [bad ombre hair](https://hair.allwomenstalk.com/tips-for-creating-ombre-hair-at-home/)
+- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
+- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
 - [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [how to beach wave with curling iron](https://hair.allwomenstalk.com/step-by-step-the-ultimate-beach-waves-the-curling-iron-method/)
-- [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
+- [face shape ways to part your hair](https://hair.allwomenstalk.com/how-to-part-your-hair-to-flatter-your-face-shape/)
 - [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
-- [loose waves](https://hair.allwomenstalk.com/how-to-get-effortless-loose-waves/)
-- [prom hair for thin hair](https://hair.allwomenstalk.com/heres-how-to-have-a-good-hair-day-every-day/)
+- [how to keep hair from getting greasy](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-greasy/)
 - [It's Raining, It's Pouring: How to Keep Your Hair ...](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
 - [Here's How to Protect Your Hair from the Scorching...](https://hair.allwomenstalk.com/heres-how-to-protect-your-hair-from-the-scorching-hot-sun/)
 

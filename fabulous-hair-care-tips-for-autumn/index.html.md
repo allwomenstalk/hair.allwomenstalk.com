@@ -42,16 +42,16 @@ Any other interesting hair care tips for autumn? Or autumn must-do’s, perhaps?
 
 ## Related Posts
 
-- [bad haircut picture](https://hair.allwomenstalk.com/tips-for-avoiding-a-bad-haircut/)
-- [does being short make you look younger](https://hair.allwomenstalk.com/hair-tweaks-to-make-you-look-younger/)
+- [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
+- [how to sock bun](https://hair.allwomenstalk.com/tips-for-creating-the-perfect-sock-bun/)
 - [- how to choose the right brush](https://hair.allwomenstalk.com/tips-for-choosing-the-right-hair-brush/)
 - [warm compress for ingrown hair](https://beauty.allwomenstalk.com/useful-tips-for-ingrown-hairs/)
-- [how to keep bangs from curling in humidity](https://hair.allwomenstalk.com/ways-to-keep-your-hair-perfectly-straight-despite-weather/)
+- [does being short make you look younger](https://hair.allwomenstalk.com/hair-tweaks-to-make-you-look-younger/)
+- [bad haircut picture](https://hair.allwomenstalk.com/tips-for-avoiding-a-bad-haircut/)
 - [styling blunt bangs](https://hair.allwomenstalk.com/tips-for-maintaining-blunt-bangs/)
-- [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
 - [bad hair do](https://hair.allwomenstalk.com/ways-to-disguise-a-bad-hair-day/)
+- [how to keep bangs from curling in humidity](https://hair.allwomenstalk.com/ways-to-keep-your-hair-perfectly-straight-despite-weather/)
 - [is a blowout bad for your hair](https://hair.allwomenstalk.com/facts-you-should-know-about-a-brazilian-blow-out/)
-- [how to sock bun](https://hair.allwomenstalk.com/tips-for-creating-the-perfect-sock-bun/)
 - [7 of the Best at-Home Hair Care Tips ...](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 

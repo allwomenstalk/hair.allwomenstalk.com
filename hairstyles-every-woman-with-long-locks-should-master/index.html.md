@@ -62,16 +62,16 @@ What hairstyles are you rocking right now?
 
 ## Related Posts
 
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
 - [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
-- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
-- [best girls videos](https://hair.allwomenstalk.com/best-bun-drop-videos-for-girls-who-are-obsessed-with-hair/)
 - [cute summer hairstyles for long hair](https://hair.allwomenstalk.com/simple-and-cute-back-to-school-styles-for-girls-with-long-hair/)
-- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
 - [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
-- [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
+- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
 - [long plait hairstyles](https://hair.allwomenstalk.com/175-fabulous-braids-for-long-haired-ladies-who-just-cant-get-enough-inspo/)
+- [best girls videos](https://hair.allwomenstalk.com/best-bun-drop-videos-for-girls-who-are-obsessed-with-hair/)
+- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
 - [long textured haircut](https://hair.allwomenstalk.com/remarkable-fall-haircuts-for-girls-needing-a-change-with-the-seasons/)
+- [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
 - [4 Sexy Hairstyles to Create on Your Wedding Day .....](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 

@@ -83,16 +83,16 @@ These’re 10 products under $7 that you can count on to deliver great results a
 
 ## Related Posts
 
-- [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
-- [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
-- [biolage original scent](https://hair.allwomenstalk.com/shampoo-and-conditioner-duos-thatll-make-you-smell-delicious/)
-- [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
-- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
-- [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
-- [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
 - [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
-- [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
+- [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
+- [biolage original scent](https://hair.allwomenstalk.com/shampoo-and-conditioner-duos-thatll-make-you-smell-delicious/)
+- [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
+- [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
 - [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
+- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
+- [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
+- [velvet hammer drybar](https://hair.allwomenstalk.com/products-thatll-make-your-curls-come-out-perfectly/)
+- [eliki premium olive oil](https://hair.allwomenstalk.com/household-items-that-work-great-on-natural-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 

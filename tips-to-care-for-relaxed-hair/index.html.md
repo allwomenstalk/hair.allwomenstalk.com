@@ -58,16 +58,16 @@ Being a naturalista is not for everyone. Many use relaxers while many others mov
 
 ## Related Posts
 
-- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
-- [no more bad hair days](https://hair.allwomenstalk.com/no-more-hairy-situations-tips-to-avoid-bad-hair-days/)
-- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
-- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
-- [rainbow ends hair](https://hair.allwomenstalk.com/tips-for-making-your-hair-look-sweet-and-summery-with-hair-chalk/)
-- [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
-- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
-- [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
-- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
 - [why does my hair curl in the rain](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
+- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
+- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
+- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
+- [no more bad hair days](https://hair.allwomenstalk.com/no-more-hairy-situations-tips-to-avoid-bad-hair-days/)
+- [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
+- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
+- [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
+- [rainbow ends hair](https://hair.allwomenstalk.com/tips-for-making-your-hair-look-sweet-and-summery-with-hair-chalk/)
+- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [7 Amazingly Simple Hair Care Tips for Curly Hair ....](https://hair.allwomenstalk.com/amazingly-simple-hair-care-tips-for-curly-hair/)
 

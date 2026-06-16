@@ -46,16 +46,16 @@ Which of these hairstyles are you excited to try?
 
 ## Related Posts
 
+- [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
 - [best girls videos](https://hair.allwomenstalk.com/best-bun-drop-videos-for-girls-who-are-obsessed-with-hair/)
 - [heatless hairstyles for school](https://hair.allwomenstalk.com/polished-no-heat-hair-styles-for-girls-going-back-to-school/)
-- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
 - [long textured haircut](https://hair.allwomenstalk.com/remarkable-fall-haircuts-for-girls-needing-a-change-with-the-seasons/)
-- [cute summer hairstyles for long hair](https://hair.allwomenstalk.com/simple-and-cute-back-to-school-styles-for-girls-with-long-hair/)
-- [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
 - [long plait hairstyles](https://hair.allwomenstalk.com/175-fabulous-braids-for-long-haired-ladies-who-just-cant-get-enough-inspo/)
-- [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
-- [back to school hairstyles for medium hair](https://hair.allwomenstalk.com/insanely-gorge-back-to-school-styles-for-girls-with-medium-hair/)
+- [make up inspo](https://beauty.allwomenstalk.com/gorgeous-hair-and-makeup-inspo-for-girls-who-want-extra-long-natural-hair/)
+- [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
+- [cute summer hairstyles for long hair](https://hair.allwomenstalk.com/simple-and-cute-back-to-school-styles-for-girls-with-long-hair/)
 - [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
+- [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
 - [8 Beautiful Boho Hairstyles ...](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 

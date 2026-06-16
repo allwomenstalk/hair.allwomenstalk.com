@@ -42,16 +42,16 @@ Do you have straight hair? I used to fight my curls and spent hours straightenin
 
 ## Related Posts
 
+- [how to make a braid bun](https://hair.allwomenstalk.com/easy-steps-to-the-perfect-braid-bun/)
+- [people with curly hair](https://hair.allwomenstalk.com/incredible-perks-of-having-curly-hair/)
 - [how to grow your hair in 2 weeks](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair-when-its-dry-and-damaged/)
 - [barbers near me](https://hair.allwomenstalk.com/points-of-etiquette-for-the-hair-salon/)
-- [people with curly hair](https://hair.allwomenstalk.com/incredible-perks-of-having-curly-hair/)
-- [how to tell if short hair suits you](https://hair.allwomenstalk.com/ways-to-work-out-if-short-hair-will-suit-you/)
-- [how to have volume on top of hair](https://hair.allwomenstalk.com/tips-tricks-and-tools-to-give-your-hair-more-volume-and-lift/)
-- [how to make a braid bun](https://hair.allwomenstalk.com/easy-steps-to-the-perfect-braid-bun/)
-- [riche le stylo smoky shadow spark](https://hair.allwomenstalk.com/tips-if-you-start-to-go-grey-early/)
 - [revel blow dryer](https://hair.allwomenstalk.com/ways-to-style-your-hair-with-a-blow-dryer/)
-- [growing side hair](https://hair.allwomenstalk.com/reasons-why-your-natural-hair-isnt-growing/)
+- [riche le stylo smoky shadow spark](https://hair.allwomenstalk.com/tips-if-you-start-to-go-grey-early/)
+- [how to tell if short hair suits you](https://hair.allwomenstalk.com/ways-to-work-out-if-short-hair-will-suit-you/)
 - [what kind of haircut should i get](https://hair.allwomenstalk.com/ways-to-figure-out-what-haircut-you-want/)
+- [how to have volume on top of hair](https://hair.allwomenstalk.com/tips-tricks-and-tools-to-give-your-hair-more-volume-and-lift/)
+- [growing side hair](https://hair.allwomenstalk.com/reasons-why-your-natural-hair-isnt-growing/)
 - [7 Reasons I Envy Curly Hair ...](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 

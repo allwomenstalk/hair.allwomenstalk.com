@@ -42,15 +42,15 @@ Do you love or hate your curls? Which of these videos is your favorite?
 
 ## Related Posts
 
-- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
-- [cute summer hairstyles for long hair](https://hair.allwomenstalk.com/simple-and-cute-back-to-school-styles-for-girls-with-long-hair/)
 - [color le stylo smoky glistening garnet](https://hair.allwomenstalk.com/hidden-rainbow-hair-and-other-fabulously-flawless-fall-hair-trends/)
-- [long textured haircut](https://hair.allwomenstalk.com/remarkable-fall-haircuts-for-girls-needing-a-change-with-the-seasons/)
-- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
+- [grannys pics](https://hair.allwomenstalk.com/fierce-photos-that-will-inspire-you-to-try-the-granny-hair-trend/)
 - [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [natural hairstyles for transitioning hair](https://hair.allwomenstalk.com/styles-for-black-beauties-who-are-transitioning-to-natural-hair/)
+- [cute summer hairstyles for long hair](https://hair.allwomenstalk.com/simple-and-cute-back-to-school-styles-for-girls-with-long-hair/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
 - [best girls videos](https://hair.allwomenstalk.com/best-bun-drop-videos-for-girls-who-are-obsessed-with-hair/)
 - [twist hair](https://hair.allwomenstalk.com/side-twist-hairstyles-for-girls-who-are-bored-of-braids/)
+- [long textured haircut](https://hair.allwomenstalk.com/remarkable-fall-haircuts-for-girls-needing-a-change-with-the-seasons/)
 - [long plait hairstyles](https://hair.allwomenstalk.com/175-fabulous-braids-for-long-haired-ladies-who-just-cant-get-enough-inspo/)
 - [Fabulous Hairstyles for Girls Who Want to Look Gor...](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 - [Glamorous and Elaborate Hairstyles for Girls Havin...](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)

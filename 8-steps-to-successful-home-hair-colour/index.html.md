@@ -48,16 +48,16 @@ Top Photo Credit: [Kennedy Garrett](https://www.flickr.com/photos/turn_your_swag
 
 ## Related Posts
 
-- [baddiestvonly](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
-- [diy hair dye tips](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
-- [loreal stylo smoky azure](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
-- [7 Tips for Glossier Locks ...](https://hair.allwomenstalk.com/tips-for-glossier-locks/)
 - [15 Tips for Shiny Hair ...](https://hair.allwomenstalk.com/tips-for-shiny-hair/)
-- [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
-- [marcia brady brushing hair 100 times](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
 - [how to get shiny hair like celebrities](https://hair.allwomenstalk.com/steps-to-celebrity-like-hair/)
-- [done bun can't be undone](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
+- [marcia brady brushing hair 100 times](https://hair.allwomenstalk.com/unbelievably-atrocious-hair-tips-you-should-say-no-to/)
+- [baddiestvonly](https://hair.allwomenstalk.com/absolutely-clever-ways-to-make-your-hair-thicker/)
+- [7 Tips for Glossier Locks ...](https://hair.allwomenstalk.com/tips-for-glossier-locks/)
+- [loreal stylo smoky azure](https://hair.allwomenstalk.com/hair-care-hints-for-blondes/)
+- [diy hair dye tips](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
+- [done bun can't be undone](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
+- [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
 - [8 Steps to Beautiful Bed Head Hair ...](https://hair.allwomenstalk.com/8-steps-to-beautiful-bed-head-hair/)
 - [7 Tips to Truly Make Your Hair Color Last ...](https://hair.allwomenstalk.com/tips-to-truly-make-your-hair-color-last/)
 

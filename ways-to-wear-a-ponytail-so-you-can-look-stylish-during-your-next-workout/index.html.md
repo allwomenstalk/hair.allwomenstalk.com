@@ -80,16 +80,16 @@ You can still look fabulous and work out at the same time. This may not sound ap
 
 ## Related Posts
 
-- [vintage hairstyles for medium hair](https://hair.allwomenstalk.com/vintage-hairstyles-to-try-today/)
-- [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
+- [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
 - [7th birthday hairstyle](https://hair.allwomenstalk.com/wonderful-reasons-to-change-your-hairstyle-thatll-make-you-visit-your-stylist-right-away/)
-- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
+- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
 - [2020 hair color trends](https://hair.allwomenstalk.com/fabulous-hair-color-trends-for-fall-we-just-love/)
 - [strange hair styles](https://hair.allwomenstalk.com/strange-hair-trends-that-are-only-for-the-brave/)
 - [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
-- [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
+- [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
+- [vintage hairstyles for medium hair](https://hair.allwomenstalk.com/vintage-hairstyles-to-try-today/)
 - [8 Accessories to Liven up Your Ponytail ...](https://hair.allwomenstalk.com/8-accessories-to-liven-up-your-ponytail/)
 - [7 Fabulous Ways to Liven up a Ponytail ...](https://hair.allwomenstalk.com/7-ways-to-liven-up-a-ponytail/)
 

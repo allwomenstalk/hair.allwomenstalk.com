@@ -194,16 +194,16 @@ Source: [Neda's Blog](https://supersolomoda.tumblr.com/post/77073639647)
 
 ## Related Posts
 
-- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
-- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
-- [style for gorge](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 - [how to wear your hair to bed](https://hair.allwomenstalk.com/ways-to-wear-your-hair-while-you-sleep/)
-- [edwardian hairstyles female](https://hair.allwomenstalk.com/victorian-hairstyles-its-time-to-bring-back/)
-- [long hairstyles for interview](https://hair.allwomenstalk.com/interview-hairstyles-to-create-a-great-first-impression/)
-- [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
+- [style for gorge](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
+- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
 - [b.ed hairstyle](https://hair.allwomenstalk.com/overslept-no-stress-roll-out-of-bed-hairstyles/)
-- [soccer ponytail hairstyles](https://hair.allwomenstalk.com/these-athletes-show-us-how-to-wear-our-hair-for-sports/)
+- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
 - [zodiac chart hairstyles](https://hair.allwomenstalk.com/what-type-of-hairstyle-fits-your-zodiac-sign/)
+- [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
+- [long hairstyles for interview](https://hair.allwomenstalk.com/interview-hairstyles-to-create-a-great-first-impression/)
+- [soccer ponytail hairstyles](https://hair.allwomenstalk.com/these-athletes-show-us-how-to-wear-our-hair-for-sports/)
+- [edwardian hairstyles female](https://hair.allwomenstalk.com/victorian-hairstyles-its-time-to-bring-back/)
 - [Instagram Inspo for Girls with Gorgeous Red Hair ....](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
 - [Get Your Hair-Spiration Right Here from These Gorg...](https://hair.allwomenstalk.com/amazing-hair-influencers-to-check-out/)
 

@@ -172,16 +172,16 @@ Not that i don't love my own locks, but sometimes, I've got major hair envy... l
 
 ## Related Posts
 
-- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
-- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
-- [forehead haircut female](https://hair.allwomenstalk.com/the-best-hairstyles-for-women-with-large-foreheads/)
-- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
-- [diy 1920s hair](https://hair.allwomenstalk.com/grab-a-headband-to-create-these-sexy-hairstyles/)
 - [blonde tips girl](https://hair.allwomenstalk.com/hair-tips-for-all-of-you-beautiful-blonde-ladies/)
-- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
-- [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
-- [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
+- [forehead haircut female](https://hair.allwomenstalk.com/the-best-hairstyles-for-women-with-large-foreheads/)
 - [lob's girl questions and answers class 6](https://hair.allwomenstalk.com/the-lob-is-this-hot-hairstyle-right-for-you/)
+- [diy 1920s hair](https://hair.allwomenstalk.com/grab-a-headband-to-create-these-sexy-hairstyles/)
+- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
+- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
+- [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
+- [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
+- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
+- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [7 Gorgeous Hairstyles for Women over 40 ...](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
 

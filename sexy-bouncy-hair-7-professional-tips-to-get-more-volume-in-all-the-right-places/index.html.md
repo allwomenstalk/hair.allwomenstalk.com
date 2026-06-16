@@ -44,16 +44,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2225764065534913
 
 ## Related Posts
 
-- [how to get shiny hair like celebrities](https://hair.allwomenstalk.com/steps-to-celebrity-like-hair/)
-- [8 Steps to Successful Home Hair Colour ...](https://hair.allwomenstalk.com/8-steps-to-successful-home-hair-colour/)
-- [thank you its an afro](https://hair.allwomenstalk.com/natural-afro-hair-8-great-reasons-to-ditch-relaxers/)
-- [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
-- [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
 - [diy hair dye tips](https://hair.allwomenstalk.com/tips-for-diy-hair-dye/)
-- [done bun can't be undone](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
+- [8 Steps to Successful Home Hair Colour ...](https://hair.allwomenstalk.com/8-steps-to-successful-home-hair-colour/)
 - [riche stylo primped previous](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
+- [how to give your hair body](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
 - [7 Tips for Glossier Locks ...](https://hair.allwomenstalk.com/tips-for-glossier-locks/)
+- [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [15 Tips for Shiny Hair ...](https://hair.allwomenstalk.com/tips-for-shiny-hair/)
+- [how to get shiny hair like celebrities](https://hair.allwomenstalk.com/steps-to-celebrity-like-hair/)
+- [thank you its an afro](https://hair.allwomenstalk.com/natural-afro-hair-8-great-reasons-to-ditch-relaxers/)
+- [done bun can't be undone](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 - [7 Quick and Easy Hair Tips ...](https://allwomenstalk.com/7-quick-and-easy-hair-tips/)
 

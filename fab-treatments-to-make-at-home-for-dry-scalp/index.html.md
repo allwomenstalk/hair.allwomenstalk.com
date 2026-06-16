@@ -50,16 +50,16 @@ Have you tried any DIY dry scalp treatments that work?
 
 ## Related Posts
 
-- [A Lifesaving Plan to Rescue Damaged Hair ...](https://hair.allwomenstalk.com/a-plan-to-rescue-damaged-hair/)
-- [5 Best Uses of Essential Oils to Instantly Improve...](https://beauty.allwomenstalk.com/best-uses-of-essential-oils/)
+- [Amazing DIY Leave in Conditioners Your Hair Will T...](https://hair.allwomenstalk.com/amazing-diy-leave-in-conditioners-your-hair-will-thank-you-for/)
 - [phenomenal hair](https://hair.allwomenstalk.com/pro-tips-on-product-usage-for-phenomenal-hair/)
 - [wheat germ oil for skin tightening](https://hair.allwomenstalk.com/the-best-natural-oils-for-hair/)
-- [Home Remedies for Dandruff for Girls Sick of Flake...](https://hair.allwomenstalk.com/home-remedies-for-dandruff/)
 - [Best Hair Loss Treatments for Everyone Who Knows t...](https://hair.allwomenstalk.com/best-hair-loss-treatments-for-women/)
-- [These Essential Oils Are a Must for Girls Wanting ...](https://hair.allwomenstalk.com/essential-oils-for-longer-healthier-hair/)
+- [Home Remedies for Dandruff for Girls Sick of Flake...](https://hair.allwomenstalk.com/home-remedies-for-dandruff/)
 - [The Best Products to Buy to Protect Your Hair This...](https://hair.allwomenstalk.com/the-best-products-to-buy-to-protect-your-hair-this-summer/)
+- [A Lifesaving Plan to Rescue Damaged Hair ...](https://hair.allwomenstalk.com/a-plan-to-rescue-damaged-hair/)
+- [These Essential Oils Are a Must for Girls Wanting ...](https://hair.allwomenstalk.com/essential-oils-for-longer-healthier-hair/)
+- [5 Best Uses of Essential Oils to Instantly Improve...](https://beauty.allwomenstalk.com/best-uses-of-essential-oils/)
 - [6 Natural Oils That Will Rescue Your Hair from Dis...](https://hair.allwomenstalk.com/best-oils-for-hair/)
-- [Amazing DIY Leave in Conditioners Your Hair Will T...](https://hair.allwomenstalk.com/amazing-diy-leave-in-conditioners-your-hair-will-thank-you-for/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [7 Ways to Remedy a Dry Scalp ...](https://hair.allwomenstalk.com/ways-to-remedy-a-dry-scalp/)
 

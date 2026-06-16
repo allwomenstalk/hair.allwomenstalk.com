@@ -50,14 +50,14 @@ Top Photo Credit: [Stefan Tell](https://www.flickr.com/photos/stefantell/3220583
 
 - [done bun can't be undone](https://hair.allwomenstalk.com/secrets-for-pulling-off-hair-extensions/)
 - [7 Steps to a Chic Chignon ...](https://hair.allwomenstalk.com/7-steps-to-a-chic-chignon/)
-- [how to get a bouncy hair](https://hair.allwomenstalk.com/sexy-bouncy-hair-7-professional-tips-to-get-more-volume-in-all-the-right-places/)
-- [thank you its an afro](https://hair.allwomenstalk.com/natural-afro-hair-8-great-reasons-to-ditch-relaxers/)
-- [tips for oily hair](https://hair.allwomenstalk.com/tips-for-oily-hair-control/)
-- [7 Tips for Glossier Locks ...](https://hair.allwomenstalk.com/tips-for-glossier-locks/)
 - [riche stylo primped previous](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [do ponytails make hair grow faster](https://hair.allwomenstalk.com/positively-effective-ways-to-make-your-hair-grow-faster/)
+- [7 Tips for Glossier Locks ...](https://hair.allwomenstalk.com/tips-for-glossier-locks/)
+- [how to get a bouncy hair](https://hair.allwomenstalk.com/sexy-bouncy-hair-7-professional-tips-to-get-more-volume-in-all-the-right-places/)
 - [8 Steps to Successful Home Hair Colour ...](https://hair.allwomenstalk.com/8-steps-to-successful-home-hair-colour/)
 - [how to get shiny hair like celebrities](https://hair.allwomenstalk.com/steps-to-celebrity-like-hair/)
+- [tips for oily hair](https://hair.allwomenstalk.com/tips-for-oily-hair-control/)
+- [thank you its an afro](https://hair.allwomenstalk.com/natural-afro-hair-8-great-reasons-to-ditch-relaxers/)
 - [8 Rules for Hair Accessories ...](https://hair.allwomenstalk.com/8-rules-for-hair-accessories/)
 - [8 Wild Things to do with Your Hair ...](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 

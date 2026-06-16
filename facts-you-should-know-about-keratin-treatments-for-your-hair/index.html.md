@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
-- [best natural hair treatment](https://hair.allwomenstalk.com/all-natural-hair-treatments/)
-- [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
-- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
-- [must have natural hair products](https://hair.allwomenstalk.com/must-have-natural-hair-care-products-for-gorgeous-hair/)
-- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
-- [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
-- [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
-- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
 - [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
+- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
+- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
+- [best natural hair treatment](https://hair.allwomenstalk.com/all-natural-hair-treatments/)
+- [must have natural hair products](https://hair.allwomenstalk.com/must-have-natural-hair-care-products-for-gorgeous-hair/)
+- [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
+- [conscious curls hair](https://hair.allwomenstalk.com/best-products-for-curly-hair/)
+- [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
+- [rita hazan pop color](https://hair.allwomenstalk.com/commitment-free-products-for-fun-hair/)
+- [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 

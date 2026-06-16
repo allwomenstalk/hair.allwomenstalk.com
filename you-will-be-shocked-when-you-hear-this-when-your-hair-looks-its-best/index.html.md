@@ -42,16 +42,16 @@ Washing your hair too often strips your hair of its natural oils that make your 
 
 ## Related Posts
 
+- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
+- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
 - [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
-- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
+- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
+- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
+- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
+- [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
 - [air dried bob](https://hair.allwomenstalk.com/nix-the-hairdryer-got-to-have-tips-for-air-drying-your-hair/)
 - [does swimming burn more calories than running](https://hair.allwomenstalk.com/heres-how-swimmers-can-have-hot-hair-too/)
-- [can the sun make my hair lighter](https://hair.allwomenstalk.com/natural-ways-to-give-your-hair-the-sun-kissed-look/)
-- [what does over processed hair mean](https://hair.allwomenstalk.com/over-processed-hair-stop-everything-you-are-doing-and-read-this/)
-- [haircut deal](https://hair.allwomenstalk.com/heres-how-to-deal-with-a-horrendous-haircut/)
-- [how to hide roots on blonde hair](https://hair.allwomenstalk.com/how-to-deal-with-dark-roots-in-blonde-hair/)
-- [i love the way your hair falls in the summer](https://hair.allwomenstalk.com/hair-hacks-to-get-you-through-the-summer/)
-- [how to stop sweating in my hair](https://hair.allwomenstalk.com/stop-sweating-with-these-tips-to-keep-your-long-hair-off-of-you/)
+- [haute bun phase 7](https://hair.allwomenstalk.com/brighten-up-your-bun-with-these-tricks/)
 - [Hair It is (Part One) ...](https://allwomenstalk.com/hair-it-is-part-one/)
 - [Wow! Lemon Can Work Miracles on Your Hair ...](https://hair.allwomenstalk.com/wow-lemon-can-work-miracles-on-your-hair/)
 

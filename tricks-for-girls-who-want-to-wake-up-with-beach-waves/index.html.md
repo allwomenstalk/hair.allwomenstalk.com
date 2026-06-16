@@ -68,16 +68,16 @@ Here’s to a glorious summer of beach waves.
 
 ## Related Posts
 
-- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [cool braiding styles](https://hair.allwomenstalk.com/gorge-braids-inspo-every-blond-girl-needs-to-see/)
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
+- [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
 - [withoomph](https://hair.allwomenstalk.com/the-best-tips-for-girls-who-want-ponytails-with-oomph/)
 - [peinados de rock](https://hair.allwomenstalk.com/hairstyles-to-rock-for-girls-who-are-always-hot/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
 - [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
-- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
 - [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
+- [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
 - [7 Beautiful, Beach-Ready Hairstyles ...](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
 - [7 Splendid Salt Sprays for Perfect Beach Waves ...](https://hair.allwomenstalk.com/splendid-salt-sprays-for-perfect-beach-waves/)
 

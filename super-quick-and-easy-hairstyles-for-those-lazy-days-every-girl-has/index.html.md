@@ -54,16 +54,16 @@ A great side bun is super easy to do for those lazy days! All you have to do is 
 
 ## Related Posts
 
-- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
-- [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
-- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
+- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
+- [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
 - [unicorn braid tutorial](https://hair.allwomenstalk.com/hair-inspirations-for-girls-ready-to-mix-up-their-style/)
 - [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
+- [new hair style in india](https://hair.allwomenstalk.com/classy-and-sophisticated-hairstyles-indian-girls-will-love/)
 - [lucky daye hairstyle](https://hair.allwomenstalk.com/super-simple-hairstyles-for-girls-with-super-long-hair/)
-- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
 - [hairstyles for thick hair for women](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair-2/)
-- [fun new hairstyles](https://hair.allwomenstalk.com/fun-hairdos-to-try-if-youre-looking-for-something-new/)
 - [coachella hairstyles](https://hair.allwomenstalk.com/look-hot-af-with-these-coachella-hairstyles/)
+- [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
+- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [17 Gorgeous Hairstyles for Lazy Girls ...](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-lazy-girls/)
 

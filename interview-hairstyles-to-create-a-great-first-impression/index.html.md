@@ -42,16 +42,16 @@ You want potential employers to see you, not your hair, but that doesn’t mean 
 
 ## Related Posts
 
-- [style for gorge](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 - [soccer ponytail hairstyles](https://hair.allwomenstalk.com/these-athletes-show-us-how-to-wear-our-hair-for-sports/)
-- [b.ed hairstyle](https://hair.allwomenstalk.com/overslept-no-stress-roll-out-of-bed-hairstyles/)
-- [zodiac chart hairstyles](https://hair.allwomenstalk.com/what-type-of-hairstyle-fits-your-zodiac-sign/)
-- [edwardian hairstyles female](https://hair.allwomenstalk.com/victorian-hairstyles-its-time-to-bring-back/)
+- [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
 - [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
+- [edwardian hairstyles female](https://hair.allwomenstalk.com/victorian-hairstyles-its-time-to-bring-back/)
+- [cute hairstyles that don't take long](https://hair.allwomenstalk.com/hairstyles-that-wont-get-in-the-way-during-makeout-sessions/)
+- [zodiac chart hairstyles](https://hair.allwomenstalk.com/what-type-of-hairstyle-fits-your-zodiac-sign/)
 - [hair tips for girls](https://hair.allwomenstalk.com/these-changes-will-make-your-curly-hair-cuter-than-ever/)
 - [how to wear your hair to bed](https://hair.allwomenstalk.com/ways-to-wear-your-hair-while-you-sleep/)
-- [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
-- [cute hairstyles that don't take long](https://hair.allwomenstalk.com/hairstyles-that-wont-get-in-the-way-during-makeout-sessions/)
+- [b.ed hairstyle](https://hair.allwomenstalk.com/overslept-no-stress-roll-out-of-bed-hairstyles/)
+- [style for gorge](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 

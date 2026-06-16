@@ -18,16 +18,16 @@ Would you try walking around with this gorgeous hair color?
 
 ## Related Posts
 
-- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
-- [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
-- [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
-- [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
-- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
-- [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
 - [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
 - [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
+- [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
+- [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
+- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
+- [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
+- [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
 - [Sexy Hair](https://allwomenstalk.com/sexy-hair/)
 - [A New Hair Style](https://allwomenstalk.com/a-new-hair-style/)
 

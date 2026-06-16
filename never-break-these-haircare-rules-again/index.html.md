@@ -56,15 +56,15 @@ Which of these hair care rules have you broken?
 
 ## Related Posts
 
-- [how to fix sun damaged hair](https://hair.allwomenstalk.com/miracle-tips-to-restore-hair-damaged-by-summer-sun-and-water/)
 - [How to Take Care of Your Bright Hair Color ...](https://hair.allwomenstalk.com/how-to-take-care-of-your-bright-hair-color/)
 - [Effortless Ways to Improve Your Hair Tenfold ...](https://hair.allwomenstalk.com/effortless-ways-to-improve-your-hair-tenfold/)
 - [Avoid THESE and Wake up with Gorgeous Hair ...](https://hair.allwomenstalk.com/avoid-these-and-wake-up-with-gorgeous-hair/)
-- [big hair 70s](https://hair.allwomenstalk.com/struggles-all-people-with-big-hair-know-all-too-well/)
 - [Just How Often🤔 Should You Wash Your Hair?](https://hair.allwomenstalk.com/just-how-often-should-you-wash-your-hair/)
+- [big hair 70s](https://hair.allwomenstalk.com/struggles-all-people-with-big-hair-know-all-too-well/)
 - [Fabulous Ways for Natural Hair Girls to AvoidBad H...](https://hair.allwomenstalk.com/fabulous-ways-for-natural-hair-girls-to-avoidbad-hair-days/)
 - [riche le stylo eye primped and previous](https://hair.allwomenstalk.com/rules-for-ladies-with-hair-extensions/)
 - [Hair Color Tips You May Have Never Heard before .....](https://hair.allwomenstalk.com/hair-color-tips-you-may-have-never-heard-before/)
+- [how to fix sun damaged hair](https://hair.allwomenstalk.com/miracle-tips-to-restore-hair-damaged-by-summer-sun-and-water/)
 - [Headband Tips for Girls Having a Bad Hair Day ...](https://hair.allwomenstalk.com/headband-tips-for-girls-having-a-bad-hair-day/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [Top 8 Hair Care Mistakes to Avoid ...](https://hair.allwomenstalk.com/top-8-hair-care-mistakes-to-avoid/)

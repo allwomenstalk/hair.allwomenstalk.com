@@ -43,15 +43,15 @@ Your henna experience will depend mostly on the quality of the henna used – th
 ## Related Posts
 
 - [what to do when having a bad hair day](https://hair.allwomenstalk.com/ways-to-handle-a-bad-hair-day/)
-- [protein treatment before or after relaxer](https://hair.allwomenstalk.com/tips-to-care-for-relaxed-hair/)
-- [no more bad hair days](https://hair.allwomenstalk.com/no-more-hairy-situations-tips-to-avoid-bad-hair-days/)
-- [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
-- [why does my hair curl in the rain](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
-- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
-- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
-- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
-- [rainbow ends hair](https://hair.allwomenstalk.com/tips-for-making-your-hair-look-sweet-and-summery-with-hair-chalk/)
 - [how to get softer eyebrows](https://beauty.allwomenstalk.com/easy-ways-to-care-for-your-eyebrows/)
+- [why does my hair curl in the rain](https://hair.allwomenstalk.com/its-raining-its-pouring-how-to-keep-your-hair-looking-hot-when-it-rains/)
+- [curly hair baddies](https://hair.allwomenstalk.com/hair-tricks-tips-for-dealing-with-curly-hair-in-warm-weather/)
+- [is it bad to touch your hair](https://hair.allwomenstalk.com/you-will-be-shocked-when-you-hear-this-when-your-hair-looks-its-best/)
+- [no more bad hair days](https://hair.allwomenstalk.com/no-more-hairy-situations-tips-to-avoid-bad-hair-days/)
+- [medium length hair color ideas](https://hair.allwomenstalk.com/wanna-know-a-secret-ways-to-make-your-hair-look-fuller-and-longer-in-a-jiffy/)
+- [scruples hair clarifier shampoo](https://hair.allwomenstalk.com/girls-these-tricks-will-keep-chlorine-from-ruining-your-hair/)
+- [rainbow ends hair](https://hair.allwomenstalk.com/tips-for-making-your-hair-look-sweet-and-summery-with-hair-chalk/)
+- [protein treatment before or after relaxer](https://hair.allwomenstalk.com/tips-to-care-for-relaxed-hair/)
 - [7 Reasons I Envy Curly Hair ...](https://hair.allwomenstalk.com/7-reasons-i-envy-curly-hair/)
 - [8 Reasons Your Own Hair is Best ...](https://hair.allwomenstalk.com/8-reasons-your-own-hair-is-best/)
 

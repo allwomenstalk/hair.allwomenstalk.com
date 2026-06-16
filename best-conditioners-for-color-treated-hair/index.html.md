@@ -116,16 +116,16 @@ We spend a lot of money getting hair colored so we’ve got to do what we can to
 
 ## Related Posts
 
-- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
 - [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
-- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
-- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
+- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
 - [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
 - [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
 - [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
-- [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
-- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
 - [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
+- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
+- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
+- [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
+- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
 - [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 - [7 Most Intensive Hair Conditioners for Damaged Hai...](https://allwomenstalk.com/7-most-intensive-hair-conditioners-for-damaged-hair/)
 

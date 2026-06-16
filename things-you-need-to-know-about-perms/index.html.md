@@ -78,16 +78,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [we care for your hair](https://hair.allwomenstalk.com/reasons-to-take-better-care-of-your-hair-right-now/)
-- [no-poo](https://hair.allwomenstalk.com/helpful-tips-for-going-no-poo/)
-- [best beauticians near me](https://beauty.allwomenstalk.com/tips-for-how-to-choose-a-beauty-salon/)
-- [what to do when you have dry hair](https://hair.allwomenstalk.com/fantastic-tips-on-how-to-fix-dry-hair/)
-- [i do my own hair](https://hair.allwomenstalk.com/situations-in-which-you-should-do-your-own-hair/)
-- [how to prevent hair tangles](https://hair.allwomenstalk.com/tips-on-how-to-avoid-tangled-hair/)
 - [tips for silky hair](https://hair.allwomenstalk.com/tips-for-silky-hair/)
+- [i do my own hair](https://hair.allwomenstalk.com/situations-in-which-you-should-do-your-own-hair/)
+- [what to do when you have dry hair](https://hair.allwomenstalk.com/fantastic-tips-on-how-to-fix-dry-hair/)
+- [long hair very](https://hair.allwomenstalk.com/cons-of-having-long-hair/)
+- [best beauticians near me](https://beauty.allwomenstalk.com/tips-for-how-to-choose-a-beauty-salon/)
+- [how to prevent hair tangles](https://hair.allwomenstalk.com/tips-on-how-to-avoid-tangled-hair/)
+- [we care for your hair](https://hair.allwomenstalk.com/reasons-to-take-better-care-of-your-hair-right-now/)
 - [why is my haircut so bad](https://hair.allwomenstalk.com/tips-on-how-to-survive-a-bad-haircut/)
 - [why does hair get static in winter](https://hair.allwomenstalk.com/tips-to-reduce-hair-static-in-winter/)
-- [long hair very](https://hair.allwomenstalk.com/cons-of-having-long-hair/)
+- [no-poo](https://hair.allwomenstalk.com/helpful-tips-for-going-no-poo/)
 - [7 Things You Need to Know before a Brazilian Wax ....](https://skincare.allwomenstalk.com/7-things-you-need-to-know-before-a-brazilian-wax/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 

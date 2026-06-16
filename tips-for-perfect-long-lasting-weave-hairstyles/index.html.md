@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20069750)
 
 ## Related Posts
 
-- [10 Definite Don'ts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
-- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
-- [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
 - [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
-- [10 do's of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
-- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
+- [10 do's of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [how to make my hair look healthier](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
+- [frizzies at 11](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
+- [waves permanent](https://hair.allwomenstalk.com/tips-on-permanent-waves/)
+- [10 Definite Don'ts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
+- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
-- [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 

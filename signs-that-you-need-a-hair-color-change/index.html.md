@@ -70,14 +70,14 @@ This post was written in collaboration with editor Lisa Washington
 
 ## Related Posts
 
-- [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
-- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
-- [signs your addicted to your phone](https://lifestyle.allwomenstalk.com/tell-tale-signs-that-youre-addicted-to-you-phone/)
 - [i'm a 90s chick](https://lifestyle.allwomenstalk.com/sure-signs-that-youre-a-90s-chick/)
+- [am i rude](https://health.allwomenstalk.com/alarming-signs-you-are-being-rude/)
+- [signs your work crush likes you](https://love.allwomenstalk.com/signs-youre-developing-an-office-crush-and-how-to-avoid-it/)
+- [best modern dancers](https://lifestyle.allwomenstalk.com/ways-you-know-youre-a-dancer/)
 - [signs of shopping addiction](https://money.allwomenstalk.com/ways-to-tell-if-you-have-a-shopping-addiction/)
 - [i need time for myself](https://lifestyle.allwomenstalk.com/signs-you-need-some-alone-time-that-you-should-give-in-to/)
-- [best modern dancers](https://lifestyle.allwomenstalk.com/ways-you-know-youre-a-dancer/)
-- [signs your work crush likes you](https://love.allwomenstalk.com/signs-youre-developing-an-office-crush-and-how-to-avoid-it/)
+- [signs your addicted to your phone](https://lifestyle.allwomenstalk.com/tell-tale-signs-that-youre-addicted-to-you-phone/)
+- [signs of a jealous insecure friend](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
 - [struggling to isolate lashes](https://lifestyle.allwomenstalk.com/alarming-signs-you-are-struggling-with-addiction/)
 - [signs of being a workaholic](https://lifestyle.allwomenstalk.com/obvious-signs-you-are-a-workaholic/)
 - [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)

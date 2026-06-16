@@ -78,16 +78,16 @@ This article writtten in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
-- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
+- [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
 - [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
 - [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
-- [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
+- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
 - [home remedies for achy feet](https://shoes.allwomenstalk.com/home-remedies-for-dry-sore-feet/)
+- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
 - [for ove and lemons](https://lifestyle.allwomenstalk.com/home-remedies-using-lemons/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
+- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 

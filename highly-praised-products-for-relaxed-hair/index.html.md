@@ -65,16 +65,16 @@ Top Image Source: [stylishandtrendy](http://www.stylishandtrendy.com/beauty/hair
 
 ## Related Posts
 
-- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
-- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
-- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
-- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
-- [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
 - [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
 - [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
+- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
 - [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
+- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
+- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
+- [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
+- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [Top 7 Oily Hair Products ...](https://hair.allwomenstalk.com/top-oily-hair-products/)
 

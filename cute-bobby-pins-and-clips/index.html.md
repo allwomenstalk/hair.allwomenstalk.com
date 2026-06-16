@@ -74,16 +74,16 @@ I hope you think these are cute bobby pins and clips, too. Of course, everyone h
 
 ## Related Posts
 
-- [topshop headband](https://hair.allwomenstalk.com/7-on-trend-headbands/)
-- [punching knuckle rings](https://jewelry.allwomenstalk.com/7-rings-that-will-pack-a-punch/)
-- [best tiffany bracelet](https://jewelry.allwomenstalk.com/tiffany-necklaces-to-wear-every-day/)
-- [big name jewelry brands](https://jewelry.allwomenstalk.com/top-7-jewelry-brands/)
-- [7 Stunning Chandelier Earrings ...](https://jewelry.allwomenstalk.com/stunning-chandelier-earrings/)
-- [cute outfits for the fair](https://jewelry.allwomenstalk.com/7-cute-marc-jacobs-earrings/)
 - [love waits purity ring](https://jewelry.allwomenstalk.com/7-sweet-purity-rings/)
 - [pretty promise ring](https://jewelry.allwomenstalk.com/7-pretty-promise-rings/)
 - [tiffany's anniversary ring](https://jewelry.allwomenstalk.com/8-gorgeous-tiffany-celebration-rings/)
+- [punching knuckle rings](https://jewelry.allwomenstalk.com/7-rings-that-will-pack-a-punch/)
+- [7 Stunning Chandelier Earrings ...](https://jewelry.allwomenstalk.com/stunning-chandelier-earrings/)
 - [heirloom sapphire engagement rings](https://jewelry.allwomenstalk.com/7-beautiful-sapphire-engagement-rings/)
+- [topshop headband](https://hair.allwomenstalk.com/7-on-trend-headbands/)
+- [best tiffany bracelet](https://jewelry.allwomenstalk.com/tiffany-necklaces-to-wear-every-day/)
+- [cute outfits for the fair](https://jewelry.allwomenstalk.com/7-cute-marc-jacobs-earrings/)
+- [big name jewelry brands](https://jewelry.allwomenstalk.com/top-7-jewelry-brands/)
 - [7 Beautiful Barrettes ...](https://hair.allwomenstalk.com/7-beautiful-barrettes/)
 - [10 Happenin' Headbands ...](https://hair.allwomenstalk.com/happenin-headbands/)
 

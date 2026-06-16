@@ -42,16 +42,16 @@ Ombre hair is the hottest style this season. You might as well try it at least o
 
 ## Related Posts
 
-- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
-- [static hair fix](https://hair.allwomenstalk.com/say-goodbye-to-hair-static-with-these-tips/)
-- [how to straighten your hair without heat](https://hair.allwomenstalk.com/how-to-straighten-your-hair-without-heat/)
-- [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
 - [what is the best way to remove eyebrow hair](https://beauty.allwomenstalk.com/hair-removal-methods-for-your-eyebrows/)
+- [tips for curling eyelashes](https://beauty.allwomenstalk.com/timeless-tips-for-curling-your-lashes/)
+- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
+- [hairstyle ombre vs balayage](https://hair.allwomenstalk.com/can-you-pull-off-ombre-or-balayage-hair-heres-how-to-know/)
+- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
 - [between washes hair products](https://hair.allwomenstalk.com/ways-to-go-longer-between-hair-washes/)
 - [jessies nails helsingborg](https://hair.allwomenstalk.com/heres-how-brazilian-women-treat-split-ends/)
-- [horrible split ends](https://hair.allwomenstalk.com/what-kind-of-shampoo-should-you-be-using-on-your-hair-type/)
+- [static hair fix](https://hair.allwomenstalk.com/say-goodbye-to-hair-static-with-these-tips/)
 - [bouncier hair](https://hair.allwomenstalk.com/heres-the-secret-to-making-your-hair-bouncier/)
-- [how to prevent thinning](https://hair.allwomenstalk.com/how-to-prevent-your-hair-from-thinning-over-time/)
+- [how to straighten your hair without heat](https://hair.allwomenstalk.com/how-to-straighten-your-hair-without-heat/)
 - [8 Steps to Successful Home Hair Colour ...](https://hair.allwomenstalk.com/8-steps-to-successful-home-hair-colour/)
 - [7 of the Best at-Home Hair Care Tips ...](https://hair.allwomenstalk.com/of-the-best-at-home-hair-care-tips/)
 

@@ -112,16 +112,16 @@ Braids are still totes on-trend this spring, and with so many plaits to try, and
 
 ## Related Posts
 
-- [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
 - [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
-- [french vs dutch plait](https://hair.allwomenstalk.com/adorable-ways-to-wear-a-dutch-braid/)
-- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
-- [braids and headband](https://hair.allwomenstalk.com/these-easy-headband-braids-are-so-cute-for-spring/)
-- [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
 - [fun ways to add color to your hair](https://hair.allwomenstalk.com/subtle-but-stylish-ways-to-add-color-to-your-hair/)
-- [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
-- [cute festival hairstyles](https://hair.allwomenstalk.com/festival-friendly-hairstyles-you-can-rock-out-with/)
 - [elegant black ladies](https://hair.allwomenstalk.com/elegant-hairstyles-for-beautiful-black-women-to-wear-to-weddings/)
+- [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
+- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
+- [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
+- [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
+- [cute festival hairstyles](https://hair.allwomenstalk.com/festival-friendly-hairstyles-you-can-rock-out-with/)
+- [french vs dutch plait](https://hair.allwomenstalk.com/adorable-ways-to-wear-a-dutch-braid/)
+- [braids and headband](https://hair.allwomenstalk.com/these-easy-headband-braids-are-so-cute-for-spring/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [5 Braid Hair Styles You Can Rock ...](https://allwomenstalk.com/5-braid-hair-styles-you-can-rock/)
 

@@ -56,16 +56,16 @@ I think I need to get aboard the two-toned hair train before it leaves the stati
 
 ## Related Posts
 
-- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
-- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
-- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
 - [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
-- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
-- [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
-- [hairstyles for little girls](https://hair.allwomenstalk.com/the-best-back-to-school-hairstyles-for-lazy-girls/)
 - [cute casual hairstyles](https://hair.allwomenstalk.com/messy-hairstyles-to-look-casual-for-class/)
+- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
+- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
+- [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
+- [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
+- [easy hairstyles for homecoming](https://hair.allwomenstalk.com/sweet-and-sporty-homecoming-hairstyles/)
 - [loreal paris color le smoky infinite sky](https://hair.allwomenstalk.com/half-up-hairstyles-for-fall/)
+- [hairstyles for little girls](https://hair.allwomenstalk.com/the-best-back-to-school-hairstyles-for-lazy-girls/)
+- [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
 - [9 Creative Ways to Color Your Hair for Girls Looki...](https://hair.allwomenstalk.com/temporary-ways-to-color-your-hair/)
 - [Lavender Hair and Other Killer Pastel Colors to Tr...](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
 

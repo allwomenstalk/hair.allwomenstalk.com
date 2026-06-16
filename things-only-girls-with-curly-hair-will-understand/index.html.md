@@ -42,16 +42,16 @@ Ok, we know that curly hair problems are not always as bad as all that, but it c
 
 ## Related Posts
 
+- [peace hide](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
+- [jobs for females that don't require a degree](https://money.allwomenstalk.com/great-careers-to-pursue-that-wont-keep-you-in-school-forever/)
 - [skin problems and emotions](https://money.allwomenstalk.com/ways-to-control-your-emotions-when-dealing-with-money-problems/)
+- [fun things to do for girls night](https://lifestyle.allwomenstalk.com/things-a-girls-night-out-will-do-for-you/)
+- [food commercial tricks](https://food.allwomenstalk.com/diet-friendly-pizza-tricks-every-girl-should-know/)
+- [when women support each other](https://inspiration.allwomenstalk.com/great-ways-women-can-support-each-other/)
+- [7 Things Only Sisters Understand ...](https://teen.allwomenstalk.com/things-only-sisters-understand/)
 - [flirting with other guys in front of him](https://love.allwomenstalk.com/common-dating-mistakes-girls-make-and-how-to-combat-them/)
 - [crush scenarios to dream about](https://love.allwomenstalk.com/daydreams-every-girl-has-had-about-her-crush/)
-- [peace hide](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 - [supply and demand clothing women's](https://fashion.allwomenstalk.com/common-problems-with-womens-clothing/)
-- [food commercial tricks](https://food.allwomenstalk.com/diet-friendly-pizza-tricks-every-girl-should-know/)
-- [7 Things Only Sisters Understand ...](https://teen.allwomenstalk.com/things-only-sisters-understand/)
-- [fun things to do for girls night](https://lifestyle.allwomenstalk.com/things-a-girls-night-out-will-do-for-you/)
-- [when women support each other](https://inspiration.allwomenstalk.com/great-ways-women-can-support-each-other/)
-- [jobs for females that don't require a degree](https://money.allwomenstalk.com/great-careers-to-pursue-that-wont-keep-you-in-school-forever/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

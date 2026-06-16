@@ -129,16 +129,16 @@ What is your answer for curing dandruff? Let me know in the comments!
 
 ## Related Posts
 
-- [laser hair straightener](https://hair.allwomenstalk.com/look-hotter-than-ever-with-these-hair-straightener-hacks/)
-- [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
-- [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
-- [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
-- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
-- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
-- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
 - [shabby hair](https://hair.allwomenstalk.com/the-easiest-way-to-turn-shabby-hair-smooth-and-sleek/)
+- [straightening kinky hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-avoid-these-straightening-mistakes/)
+- [woman mustache meme](https://hair.allwomenstalk.com/how-to-deal-with-your-pesky-female-mustache/)
 - [how to part hair into 4 sections](https://hair.allwomenstalk.com/the-locks-list-your-ultimate-guide-to-every-hair-hack-you-could-want/)
 - [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
+- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
+- [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
+- [laser hair straightener](https://hair.allwomenstalk.com/look-hotter-than-ever-with-these-hair-straightener-hacks/)
+- [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
+- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [8 Natural anti Dandruff Remedies ...](https://hair.allwomenstalk.com/natural-anti-dandruff-remedies/)
 

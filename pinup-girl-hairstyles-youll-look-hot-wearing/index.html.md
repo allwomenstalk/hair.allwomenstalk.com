@@ -42,16 +42,16 @@ Pinup styles are incredibly attractive, so don't hesitate to try them all out! A
 
 ## Related Posts
 
-- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
 - [long hairstyles for interview](https://hair.allwomenstalk.com/interview-hairstyles-to-create-a-great-first-impression/)
+- [rihanna grey hair](https://hair.allwomenstalk.com/lets-get-all-kinds-of-inspo-from-rihannas-hair-over-the-years/)
+- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
+- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
 - [different bangs for different face shapes](https://hair.allwomenstalk.com/what-are-the-best-bangs-for-your-face-shape/)
 - [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
-- [rihanna grey hair](https://hair.allwomenstalk.com/lets-get-all-kinds-of-inspo-from-rihannas-hair-over-the-years/)
-- [how to wear a headband with a bun](https://hair.allwomenstalk.com/fun-and-flirty-headband-hairstyles-for-summer/)
-- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
-- [deep side part](https://hair.allwomenstalk.com/change-your-look-just-by-parting-your-hair/)
-- [after shower hairstyles](https://hair.allwomenstalk.com/hairstyles-to-use-when-you-dont-have-time-to-shower/)
 - [nose hair braids](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
+- [after shower hairstyles](https://hair.allwomenstalk.com/hairstyles-to-use-when-you-dont-have-time-to-shower/)
+- [how to wear a headband with a bun](https://hair.allwomenstalk.com/fun-and-flirty-headband-hairstyles-for-summer/)
+- [deep side part](https://hair.allwomenstalk.com/change-your-look-just-by-parting-your-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 

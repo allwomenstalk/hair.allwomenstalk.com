@@ -42,16 +42,16 @@ When it comes to **hot hair styles** this year, there’s no one set look. The i
 
 ## Related Posts
 
-- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
-- [hairstyle bob](https://hair.allwomenstalk.com/iconic-bob-hairstyles/)
-- [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
-- [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
-- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
-- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
-- [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
-- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
 - [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
+- [hairstyle bob](https://hair.allwomenstalk.com/iconic-bob-hairstyles/)
+- [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
 - [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
+- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
+- [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
+- [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
+- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
+- [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
+- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Fun Hairstyles for School ...](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
 

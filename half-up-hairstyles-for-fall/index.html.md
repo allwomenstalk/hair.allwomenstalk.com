@@ -56,16 +56,16 @@ It's hard to choose which hairstyle to use when they're all so adorable! Which o
 
 ## Related Posts
 
-- [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
-- [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
-- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
 - [cute casual hairstyles](https://hair.allwomenstalk.com/messy-hairstyles-to-look-casual-for-class/)
+- [totally stunning every](https://hair.allwomenstalk.com/major-hair-envy-check-out-this-just-gorgeous-hair-id-die-for-in-photos/)
 - [natural hair celebrities](https://hair.allwomenstalk.com/sexy-natural-hairstyles-inspired-by-celebrities/)
 - [hairstyles for little girls](https://hair.allwomenstalk.com/the-best-back-to-school-hairstyles-for-lazy-girls/)
-- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
-- [blonde tips girl](https://hair.allwomenstalk.com/hair-tips-for-all-of-you-beautiful-blonde-ladies/)
-- [forehead haircut female](https://hair.allwomenstalk.com/the-best-hairstyles-for-women-with-large-foreheads/)
 - [easy nursing hairstyles](https://hair.allwomenstalk.com/monday-morning-hairstyles-that-are-simple-and-sweet/)
+- [country bandana hairstyles](https://hair.allwomenstalk.com/hipster-hairstyles-anyone-can-pull-off/)
+- [short wavy curls](https://hair.allwomenstalk.com/super-chic-curly-hairstyles-for-short-hair/)
+- [forehead haircut female](https://hair.allwomenstalk.com/the-best-hairstyles-for-women-with-large-foreheads/)
+- [blonde tips girl](https://hair.allwomenstalk.com/hair-tips-for-all-of-you-beautiful-blonde-ladies/)
+- [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
 - [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

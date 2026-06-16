@@ -32,16 +32,16 @@ Split ends can be an issue all year round but they are particularly pesky in the
 
 ## Related Posts
 
-- [how to make second day hair look good](https://hair.allwomenstalk.com/ways-to-style-second-day-hair/)
 - [ready for selfie](https://hair.allwomenstalk.com/how-to-keep-your-hair-selfie-ready/)
-- [hair thinning root cause](https://hair.allwomenstalk.com/the-root-causes-of-hair-thinning/)
-- [thick hair female](https://hair.allwomenstalk.com/how-to-fake-your-way-to-the-thick-hair-look/)
-- [hair straightener evolution](https://hair.allwomenstalk.com/signs-you-need-a-new-hair-straightener/)
-- [does colgate remove hair permanently](https://beauty.allwomenstalk.com/minutes-permanent-hair-removal/)
 - [how to make hair straight without heat](https://hair.allwomenstalk.com/pro-tips-on-how-to-get-straight-hair-without-heat/)
+- [thick hair female](https://hair.allwomenstalk.com/how-to-fake-your-way-to-the-thick-hair-look/)
 - [hair buyers](https://hair.allwomenstalk.com/the-hair-extension-guide-for-first-time-buyers/)
 - [homemade hair thickener](https://hair.allwomenstalk.com/natural-ways-to-thicken-your-hair/)
+- [how to make second day hair look good](https://hair.allwomenstalk.com/ways-to-style-second-day-hair/)
+- [does colgate remove hair permanently](https://beauty.allwomenstalk.com/minutes-permanent-hair-removal/)
 - [Why Does Hair Turn Gray?](https://allwomenstalk.com/why-does-hair-turn-gray/)
+- [hair straightener evolution](https://hair.allwomenstalk.com/signs-you-need-a-new-hair-straightener/)
+- [hair thinning root cause](https://hair.allwomenstalk.com/the-root-causes-of-hair-thinning/)
 - [Summer Hair Care Tips for Dry Hair ...](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
 - [Natural Hair Problem Solutions ...](https://allwomenstalk.com/natural-hair-problem-solutions/)
 

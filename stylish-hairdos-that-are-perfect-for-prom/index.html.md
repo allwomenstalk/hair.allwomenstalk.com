@@ -44,16 +44,16 @@ Top Photo Credit: [zircon3035](https://www.flickr.com/photos/ian_martin/86882931
 
 ## Related Posts
 
-- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
-- [hair colouring ideas](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
-- [super longhair](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
+- [soft up styles hair](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
 - [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
 - [wedding hair tutorials half up](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
-- [soft up styles hair](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
-- [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
-- [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
-- [hairstyle with scarf](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
 - [color le stylo hollywood icon](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
+- [hairstyle with scarf](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
+- [super longhair](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
+- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
+- [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
+- [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
+- [hair colouring ideas](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
 - [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 

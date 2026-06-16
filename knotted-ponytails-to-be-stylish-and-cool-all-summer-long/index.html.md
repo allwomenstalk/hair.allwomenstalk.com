@@ -78,16 +78,16 @@ Celebrate your style in ultimate lazy-girl fashion. This super easy look is so s
 
 ## Related Posts
 
+- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
 - [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
-- [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
 - [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
 - [lazy easy hairstyles for school](https://hair.allwomenstalk.com/most-awesomely-easy-hairstyles-any-lazy-girl-can-do-quickly/)
+- [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
+- [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
 - [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
 - [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
-- [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
-- [pin up doll ashley marie](https://hair.allwomenstalk.com/fabulous-pinup-hair-tutorials/)
 - [haircuts for long hair women](https://hair.allwomenstalk.com/layered-haircuts-for-every-face-shape/)
-- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
+- [pin up doll ashley marie](https://hair.allwomenstalk.com/fabulous-pinup-hair-tutorials/)
 - [8 Accessories to Liven up Your Ponytail ...](https://hair.allwomenstalk.com/8-accessories-to-liven-up-your-ponytail/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 

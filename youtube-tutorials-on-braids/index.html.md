@@ -44,16 +44,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/10759098/tumbl
 
 ## Related Posts
 
+- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 - [hair colouring ideas](https://hair.allwomenstalk.com/hair-color-ideas-for-a-fresh-look/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
-- [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 - [color le stylo hollywood icon](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 - [super longhair](https://hair.allwomenstalk.com/styles-for-super-long-hair/)
-- [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
 - [soft up styles hair](https://hair.allwomenstalk.com/stylish-ways-to-wear-your-hair-this-season/)
-- [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
 - [wedding hair tutorials half up](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
-- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
+- [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
+- [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
+- [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
 - [7 Tips for Creating a Fishtail Braid ...](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

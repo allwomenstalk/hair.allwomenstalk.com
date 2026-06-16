@@ -44,16 +44,16 @@ Top Image Source: _tumblr.com_
 
 ## Related Posts
 
-- [sage grey hair before after](https://hair.allwomenstalk.com/natural-recipes-for-restoring-the-color-of-graying-hair/)
-- [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
-- [hair care youtube](https://hair.allwomenstalk.com/best-youtube-channels-for-hair/)
-- [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
-- [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
 - [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
-- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
-- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
-- [living proof thinning hair](https://hair.allwomenstalk.com/very-best-products-for-thin-hair/)
 - [facts about brown hair and blue eyes](https://hair.allwomenstalk.com/facts-you-should-know-about-keratin-treatments-for-your-hair/)
+- [hair care youtube](https://hair.allwomenstalk.com/best-youtube-channels-for-hair/)
+- [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
+- [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
+- [sage grey hair before after](https://hair.allwomenstalk.com/natural-recipes-for-restoring-the-color-of-graying-hair/)
+- [living proof thinning hair](https://hair.allwomenstalk.com/very-best-products-for-thin-hair/)
+- [mark hill plumping powder](https://hair.allwomenstalk.com/amazing-products-to-get-big-hair/)
+- [best organic hair oils](https://hair.allwomenstalk.com/best-natural-oils-to-use-for-your-hair/)
+- [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
 - [8 Incredibly Amazing Ways to Get Lovely Shiny Hair...](https://hair.allwomenstalk.com/incredibly-amazing-ways-to-get-lovely-shiny-hair/)
 - [15 Tips for Shiny Hair ...](https://hair.allwomenstalk.com/tips-for-shiny-hair/)
 
