@@ -3,7 +3,7 @@ title: "8 Iconic Bob Hairstyles ..."
 description: "The Coco Chanel; The Anna Wintour; The Gwyneth Paltrow; The Louise Brooks; The Vidal Sassoon; More ..."
 url: "https://hair.allwomenstalk.com/iconic-bob-hairstyles/"
 category: "hair"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 8 Iconic Bob Hairstyles ...
@@ -64,16 +64,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/10607265)
 
 ## Related Posts
 
-- [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
-- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
 - [loreal paris riche stylo infinite](https://hair.allwomenstalk.com/classy-but-easy-to-do-hairstyles-for-super-long-hair/)
+- [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
+- [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
+- [video on how to braid hair](https://hair.allwomenstalk.com/awesome-video-tutorials-on-dutch-braids/)
+- [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
+- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
+- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
+- [how to layer your own curly hair](https://hair.allwomenstalk.com/videos-on-cutting-curly-hair/)
 - [party hairstyles for curly hair](https://hair.allwomenstalk.com/fab-ways-to-style-curly-hair/)
 - [one-named supermodel](https://hair.allwomenstalk.com/top-supermodel-hair-heroes/)
-- [dark blue hair on black girl](https://hair.allwomenstalk.com/interesting-hair-color-meanings/)
-- [hairstyles you can do with curly hair](https://hair.allwomenstalk.com/work-appropriate-hairstyles-for-curly-hair/)
-- [riche le shadow primped and previous](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
-- [special occasion hairstyles for short hair](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
-- [black hair and beauty magazine](https://hair.allwomenstalk.com/fabulous-hair-magazines-youve-got-to-flip-through/)
 - [8 Sexiest Badass Celebrity Hair Styles ...](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 - [8 Beautiful Boho Hairstyles ...](https://hair.allwomenstalk.com/beautiful-boho-hairstyles/)
 
