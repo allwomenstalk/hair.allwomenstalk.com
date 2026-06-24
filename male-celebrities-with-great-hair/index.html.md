@@ -3,7 +3,7 @@ title: "7 Male Celebrities with Great Hair ..."
 description: "Jared Leto; Kendrick Lamar; Harry Styles; Chris Hemsworth; James Franco; More ..."
 url: "https://hair.allwomenstalk.com/male-celebrities-with-great-hair/"
 category: "hair"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Male Celebrities with Great Hair ...
@@ -56,16 +56,16 @@ These men have really mastered the art of perfect hair. I love how each of these
 
 ## Related Posts
 
-- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
-- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
-- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
-- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
-- [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
-- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
 - [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
 - [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
+- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
+- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
+- [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
 - [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
+- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
+- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
+- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [Top 7 Celebrity Hair Styles of Today ...](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
 
