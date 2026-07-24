@@ -3,7 +3,7 @@ title: "11 Crazy Hair Colors You Wish You Had ..."
 description: "Bright Red; Purple Hair; Royal Blue; Grey/Silver Hair; Rainbow Hair; More ..."
 url: "https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/"
 category: "hair"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 11 Crazy Hair Colors You Wish You Had ...
@@ -58,16 +58,16 @@ When picking your color, keep in mind that some colors don’t last as long as o
 
 ## Related Posts
 
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
 - [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
-- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
-- [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
-- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
-- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
-- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
 - [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
 - [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
+- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
+- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
 - [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
+- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
+- [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 - [10 Tips on How to Pick the Right Hair Color ...](https://allwomenstalk.com/10-tips-on-how-to-pick-the-right-hair-color/)
 
