@@ -3,7 +3,7 @@ title: "The History of Armpit Shaving ..."
 description: "Ancient Egyptians Went a Little Overboard; Ancient Roman Sexism; The 1700s; Shavers Were for Men; Probably All of the Women on the Titanic Had Hairy Armpits; More ..."
 url: "https://hair.allwomenstalk.com/the-history-of-armpit-shaving/"
 category: "hair"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # The History of Armpit Shaving ...
@@ -38,15 +38,15 @@ Where do you think shaving will take us in the next twenty years? Do you follow 
 
 ## Related Posts
 
-- [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
-- [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
-- [when does iris get her powers](https://movies.allwomenstalk.com/times-iris-west-proved-you-didnt-need-powers-to-be-a-hero/)
-- [tv show married to medicine](https://movies.allwomenstalk.com/how-married-to-medicine-surpassed-real-housewives/)
-- [wendy yap](https://inspiration.allwomenstalk.com/lifes-journey-by-wendy-yap/)
-- [if i should grow frail poem](https://inspiration.allwomenstalk.com/the-last-battle-poem/)
-- [sayings for kindness rocks](https://diy.allwomenstalk.com/origin-of-the-kindness-rocks-project/)
 - [not eric hanson poem](https://inspiration.allwomenstalk.com/who-would-remember-by-erin-hanson/)
+- [wendy yap](https://inspiration.allwomenstalk.com/lifes-journey-by-wendy-yap/)
+- [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
+- [sayings for kindness rocks](https://diy.allwomenstalk.com/origin-of-the-kindness-rocks-project/)
+- [tv show married to medicine](https://movies.allwomenstalk.com/how-married-to-medicine-surpassed-real-housewives/)
+- [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/magical-sensations-of-autumn/)
+- [when does iris get her powers](https://movies.allwomenstalk.com/times-iris-west-proved-you-didnt-need-powers-to-be-a-hero/)
+- [if i should grow frail poem](https://inspiration.allwomenstalk.com/the-last-battle-poem/)
 - [michael jackson problems](https://celebs.allwomenstalk.com/the-michael-jackson-problem/)
 - [Foot Massage ...](https://allwomenstalk.com/foot-massage/)
 - [A Good Shave is Hard to Find ...](https://allwomenstalk.com/a-good-shave-is-hard-to-find-3/)
