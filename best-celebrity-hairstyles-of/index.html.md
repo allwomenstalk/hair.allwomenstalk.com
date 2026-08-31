@@ -3,7 +3,7 @@ title: "20 Best Celebrity Hairstyles of 2012 ..."
 description: "Blake Lively’s Romantic Braids; Scarlett Johansson’s Milk Maid up do; Cameron Diaz’s Short Waves; Mila Jovovich 1930’s Glam; Michelle Williams’s Adorable Pixie; More ..."
 url: "https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/"
 category: "hair"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 20 Best Celebrity Hairstyles of 2012 ...
@@ -136,14 +136,14 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11151417)
 
 ## Related Posts
 
-- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
 - [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
-- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
 - [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
 - [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
-- [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
+- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
+- [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
 - [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
 - [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
