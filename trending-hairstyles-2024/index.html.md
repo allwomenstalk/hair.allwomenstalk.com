@@ -74,16 +74,16 @@ As we've savored the cascade of curls and surfed the waves of trends, it's clear
 
 ## Related Posts
 
-- [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
-- [trends of 2012](https://fashion.allwomenstalk.com/must-do-trends-for/)
-- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/affordable-spring-trends/)
 - [Top 15 Beauty Trends of 2024 …](https://beauty.allwomenstalk.com/beauty-trends-2024/)
 - [17 Hottest Fashion Trends of 2024 …](https://fashion.allwomenstalk.com/hottest-fashion-trends/)
-- [5 Flowers for 2011 ...](https://gardening.allwomenstalk.com/flowers-for/)
-- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
+- [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [2012 wedding trends](https://wedding.allwomenstalk.com/new-wedding-trends-for-2012/)
 - [2011 wedding trends](https://wedding.allwomenstalk.com/hot-color-palette-trends-for-your-wedding/)
+- [trends of 2012](https://fashion.allwomenstalk.com/must-do-trends-for/)
+- [5 Flowers for 2011 ...](https://gardening.allwomenstalk.com/flowers-for/)
+- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/affordable-spring-trends/)
+- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 - [6 Hottest Hairstyle Trends for 2010 ...](https://allwomenstalk.com/hot-new-hair-style-trends-for/)
 

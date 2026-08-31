@@ -70,16 +70,16 @@ This article was written in collaboration with editor Eliza Martinez
 
 ## Related Posts
 
-- [side braid wavy hair](https://hair.allwomenstalk.com/gorgeous-braids-for-curly-hair-perfect-for-the-sweltering-summer/)
-- [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
 - [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
-- [side swept ponytail hairstyles](https://hair.allwomenstalk.com/gorgeous-sideswept-styles-that-you-should-try-this-season/)
 - [7th birthday hairstyle](https://hair.allwomenstalk.com/wonderful-reasons-to-change-your-hairstyle-thatll-make-you-visit-your-stylist-right-away/)
+- [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
 - [2020 hair color trends](https://hair.allwomenstalk.com/fabulous-hair-color-trends-for-fall-we-just-love/)
-- [updo for hair](https://hair.allwomenstalk.com/easy-updos-that-you-can-do-in-under-5-minutes/)
-- [signs it's time for a haircut](https://hair.allwomenstalk.com/signs-its-time-for-a-hair-makeover/)
-- [strange hair styles](https://hair.allwomenstalk.com/strange-hair-trends-that-are-only-for-the-brave/)
 - [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
+- [updo for hair](https://hair.allwomenstalk.com/easy-updos-that-you-can-do-in-under-5-minutes/)
+- [strange hair styles](https://hair.allwomenstalk.com/strange-hair-trends-that-are-only-for-the-brave/)
+- [side swept ponytail hairstyles](https://hair.allwomenstalk.com/gorgeous-sideswept-styles-that-you-should-try-this-season/)
+- [signs it's time for a haircut](https://hair.allwomenstalk.com/signs-its-time-for-a-hair-makeover/)
+- [side braid wavy hair](https://hair.allwomenstalk.com/gorgeous-braids-for-curly-hair-perfect-for-the-sweltering-summer/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 - [8 Fun Hairdos for Summer ...](https://allwomenstalk.com/8-fun-hairdos-for-summer/)
 

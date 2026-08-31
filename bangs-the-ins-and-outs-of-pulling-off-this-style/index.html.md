@@ -54,16 +54,16 @@ What do you think about these bangs? Would you ever cut your own or are you goin
 
 ## Related Posts
 
-- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
-- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
-- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
-- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
-- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
-- [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
-- [lazy easy hairstyles for school](https://hair.allwomenstalk.com/most-awesomely-easy-hairstyles-any-lazy-girl-can-do-quickly/)
-- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
 - [unique ponytails](https://hair.allwomenstalk.com/knotted-ponytails-to-be-stylish-and-cool-all-summer-long/)
 - [half up curly prom hair](https://hair.allwomenstalk.com/perfect-hairstyles-for-a-gorgeous-look-at-coachella/)
+- [hair trends 2017](https://hair.allwomenstalk.com/must-try-hair-trends-of-that-will-get-heads-turning/)
+- [stylish bang](https://hair.allwomenstalk.com/revamp-your-look-with-trendy-bangs/)
+- [easy 5 minute hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-and-super-cute-minute-updos/)
+- [lazy easy hairstyles for school](https://hair.allwomenstalk.com/most-awesomely-easy-hairstyles-any-lazy-girl-can-do-quickly/)
+- [ombre unicorn hair](https://hair.allwomenstalk.com/unicorn-hair-photos-that-will-inspire-you-to-dye-your-locks-today/)
+- [curling pixie hair](https://hair.allwomenstalk.com/cute-and-classy-pixie-cuts-for-girls-with-short-hair/)
+- [thin hair tutorials](https://hair.allwomenstalk.com/awesome-hairstyles-to-add-volume-to-thin-hair/)
+- [loreal paris stylo blue spark](https://hair.allwomenstalk.com/red-ombre-hair-to-make-you-sizzling-as-hot-as-the-summer-sun/)
 - [Your Guide to Bangs!](https://allwomenstalk.com/your-guide-to-bangs/)
 - [Hair How-to: the Peek-a-boo Braid ...](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
 

@@ -68,16 +68,16 @@ Every girl needs a good hairspray in their hair care arsenal. I hope this list o
 
 ## Related Posts
 
-- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
-- [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
-- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
-- [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
-- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
-- [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
-- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
-- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
-- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
 - [hair products for girls](https://hair.allwomenstalk.com/products-for-girls-with-straight-hair/)
+- [food that contain biotin](https://food.allwomenstalk.com/foods-rich-in-biotin-for-your-hair-and-nails/)
+- [best hair treatment for split ends](https://hair.allwomenstalk.com/exceptional-ways-to-get-rid-of-split-ends/)
+- [hair curler thing](https://hair.allwomenstalk.com/things-you-can-use-to-curl-your-hair-that-are-totally-genius/)
+- [oily hair home remedies](https://hair.allwomenstalk.com/awesome-oily-hair-remedies/)
+- [best hair thicker products](https://hair.allwomenstalk.com/ingredients-in-hair-products-for-thick-hair/)
+- [best oil for repairing damaged hair](https://hair.allwomenstalk.com/natural-oils-for-damaged-hair/)
+- [different hair brushes and their uses](https://hair.allwomenstalk.com/types-of-hairbrushes-explained/)
+- [best smelling hair spray](https://hair.allwomenstalk.com/amazing-hair-mists-for-your-best-smelling-hair-ever/)
+- [oatmeal hair mask recipe](https://hair.allwomenstalk.com/all-natural-hair-masks-to-make-at-home/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 of My Favorite Hairstyling Products ...](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
 

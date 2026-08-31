@@ -42,8 +42,9 @@ Your boyfriend will love you, no matter what your hair looks like. Of course, it
 
 ## Related Posts
 
-- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
 - [hairstyles for thin hair girls](https://hair.allwomenstalk.com/sexy-styles-for-anyone-with-fine-hair/)
+- [pool hairstyles for long hair](https://hair.allwomenstalk.com/hair-to-rock-at-a-pool-party/)
+- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
 - [top 4 fab hairstyles](https://hair.allwomenstalk.com/the-best-hairstyles-for-a-run/)
 - [paris color stylo primped](https://hair.allwomenstalk.com/these-heatless-hairstyles-are-more-than-worth-it/)
 - [baseball hat with bangs](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-a-hat/)
@@ -51,7 +52,6 @@ Your boyfriend will love you, no matter what your hair looks like. Of course, it
 - [hollywood hair and makeup](https://hair.allwomenstalk.com/old-hollywood-hair-tutorials-for-those-glam-vibes/)
 - [chinahair4u](https://hair.allwomenstalk.com/hairstyles-for-super-long-hair-think-rapunzel/)
 - [long hair in ponytail](https://hair.allwomenstalk.com/you-must-try-these-ponytail-hacks-today-or-maybe-tomorrow/)
-- [braids pink](https://hair.allwomenstalk.com/rainbow-braids-that-will-make-you-want-to-dye-your-hair-today/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 

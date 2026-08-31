@@ -150,16 +150,16 @@ Are you excited to try hair perfumes? Which one are you planning to buy?
 
 ## Related Posts
 
-- [gris dior macy's](https://perfumes.allwomenstalk.com/non-basic-perfumes-youll-want-to-wear-all-week-long/)
-- [valentines perfumes](https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/)
+- [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
 - [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
-- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
 - [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
+- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
 - [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
 - [perfumes that smell like royalty](https://perfumes.allwomenstalk.com/hollywood-inspired-perfumes-thatll-make-you-smell-like-a-star/)
-- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
-- [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [gris dior macy's](https://perfumes.allwomenstalk.com/non-basic-perfumes-youll-want-to-wear-all-week-long/)
+- [valentines perfumes](https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/)
 - [5 Fun and Flirty Perfumes for Spring ...](https://allwomenstalk.com/5-fun-and-flirty-perfumes-for-spring/)
 - [8 Sexy Summer Perfumes You'll Love ...](https://allwomenstalk.com/8-sexy-summer-perfumes-youll-love/)
 

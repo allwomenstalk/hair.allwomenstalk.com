@@ -65,16 +65,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/30819016)
 
 ## Related Posts
 
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
-- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
-- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
-- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
 - [hair products with spf](https://hair.allwomenstalk.com/cool-sunscreens-for-your-hair/)
-- [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
-- [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
-- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
+- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
+- [hair care chemistry](https://hair.allwomenstalk.com/hair-products-to-protect-your-stressed-hair-during-chemical-treatments/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
+- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
 - [homemade leave in conditioner spray](https://hair.allwomenstalk.com/recipes-for-amazing-diy-leave-in-conditioners/)
+- [homemade hair product](https://hair.allwomenstalk.com/recipes-for-homemade-hair-products-for-super-shiny-hair/)
+- [organic hair care products for african american ha...](https://hair.allwomenstalk.com/best-hair-care-products-for-african-american-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Organic Hair Products ...](https://hair.allwomenstalk.com/organic-hair-products/)
 

@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/27409647)
 
 ## Related Posts
 
-- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
-- [straight hair curly](https://hair.allwomenstalk.com/tips-to-help-you-curl-pin-straight-hair/)
-- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
 - [hair care myths and facts](https://hair.allwomenstalk.com/popular-hair-care-myths/)
-- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
-- [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
-- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
-- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
 - [how to do a weave](https://hair.allwomenstalk.com/smart-tips-on-diy-weaves/)
+- [how to prevent hair colour from fading](https://hair.allwomenstalk.com/ways-to-keep-your-hair-color-from-fading/)
+- [how to make your hair straight for men](https://hair.allwomenstalk.com/ways-to-keep-your-hair-straight-longer/)
 - [lemon for lightening hair](https://hair.allwomenstalk.com/ways-to-naturally-lighten-unwanted-hair/)
+- [how to add volume to asian hair](https://hair.allwomenstalk.com/tricks-to-keep-your-asian-tresses-beautiful/)
+- [how often should you deep condition relaxed hair](https://hair.allwomenstalk.com/helpful-relaxed-hair-care-tips/)
+- [straight hair curly](https://hair.allwomenstalk.com/tips-to-help-you-curl-pin-straight-hair/)
+- [super straight hair](https://hair.allwomenstalk.com/tips-for-super-healthy-straight-hair/)
+- [poufy hair](https://hair.allwomenstalk.com/ways-to-fall-in-love-with-your-natural-hair-texture/)
 - [7 Tips for Choosing the Right Hairstyle for You .....](https://hair.allwomenstalk.com/7-tips-for-choosing-the-right-hairstyle-for-you/)
 - [7 Ways to Naturally Add Color to Your Hair ...](https://hair.allwomenstalk.com/ways-to-naturally-add-color-to-your-hair/)
 

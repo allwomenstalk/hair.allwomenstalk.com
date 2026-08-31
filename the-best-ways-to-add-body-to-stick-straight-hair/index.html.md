@@ -82,16 +82,16 @@ I'm itching to try some of these – my hair is like, “Same!”
 
 ## Related Posts
 
-- [haircut 7](https://hair.allwomenstalk.com/things-to-consider-before-you-get-a-haircut/)
-- [girls w black hair](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-black-tresses/)
-- [hair highlights disadvantages](https://hair.allwomenstalk.com/the-advantages-and-disadvantages-of-being-a-natural-blonde/)
 - [greasy hair pictures](https://hair.allwomenstalk.com/causes-and-ways-to-deal-for-girls-suffering-from-greasy-hair/)
+- [girls w black hair](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-black-tresses/)
+- [haircut 7](https://hair.allwomenstalk.com/things-to-consider-before-you-get-a-haircut/)
 - [ash blonde highlights on curly hair](https://hair.allwomenstalk.com/this-is-how-curly-haired-girls-can-survive-summer/)
+- [hair highlights disadvantages](https://hair.allwomenstalk.com/the-advantages-and-disadvantages-of-being-a-natural-blonde/)
 - [how to thicken black hair](https://hair.allwomenstalk.com/mind-blowing-expert-ways-to-thicken-your-hair/)
+- [girls hair removal](https://beauty.allwomenstalk.com/hair-removal-mistakes-you-could-be-making-for-girls-with-hair-troubles/)
 - [best sunscreen for redheads](https://skincare.allwomenstalk.com/sun-protection-tips-for-redheaded-beauties/)
 - [are split ends bad](https://hair.allwomenstalk.com/girls-with-split-ends-need-to-stop-doing-this/)
 - [tame hair meaning](https://hair.allwomenstalk.com/how-to-tame-your-curly-hair-best-youtube-tutorials-ever/)
-- [girls hair removal](https://beauty.allwomenstalk.com/hair-removal-mistakes-you-could-be-making-for-girls-with-hair-troubles/)
 - [8 Tips for Silky Straight Locks ...](https://hair.allwomenstalk.com/tips-for-silky-straight-locks/)
 - [8 Ways to Strengthen Your Hair ...](https://hair.allwomenstalk.com/ways-to-strengthen-your-hair/)
 

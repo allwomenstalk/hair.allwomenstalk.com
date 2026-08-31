@@ -94,16 +94,16 @@ Top Photo Credit: [thekraftroom](https://www.flickr.com/photos/35784364@N05/4712
 
 ## Related Posts
 
-- [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
-- [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
-- [cheap christmas craft](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
-- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
-- [homemade paper christmas ornaments](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
-- [facts about etsy](https://lifestyle.allwomenstalk.com/fun-facts-about-etsy-shop-crafted-by-lindy/)
 - [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
+- [homemade paper christmas ornaments](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
+- [facts about etsy](https://lifestyle.allwomenstalk.com/fun-facts-about-etsy-shop-crafted-by-lindy/)
+- [cheap christmas craft](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
+- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
+- [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
+- [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
 - [8 Accessories to Liven up Your Ponytail ...](https://hair.allwomenstalk.com/8-accessories-to-liven-up-your-ponytail/)
 - [8 Wild Things to do with Your Hair ...](https://hair.allwomenstalk.com/8-wild-things-to-do-with-your-hair/)
 

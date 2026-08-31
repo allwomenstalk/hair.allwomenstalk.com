@@ -56,16 +56,16 @@ Do you have bangs? What other tips do you have for styling them?
 
 ## Related Posts
 
+- [how do i know if i'll look good with bangs](https://hair.allwomenstalk.com/are-bangs-right-for-you/)
 - [dandruff after cutting hair short](https://hair.allwomenstalk.com/why-you-wont-regret-cutting-your-hair-short/)
-- [how to make dyed hair last longer](https://hair.allwomenstalk.com/how-to-help-your-dyed-hair-color-stay-in-longer/)
-- [what can i use instead of hair gel](https://hair.allwomenstalk.com/tricks-for-getting-your-hair-to-remain-in-place/)
-- [why does my hair look so unhealthy](https://hair.allwomenstalk.com/how-to-avoid-unhealthy-hair/)
+- [debra messing natural hair](https://hair.allwomenstalk.com/how-to-create-the-best-curls-in-your-hair/)
+- [panel hair coloring technique](https://hair.allwomenstalk.com/how-to-create-smokestack-hair/)
 - [80s curling iron](https://hair.allwomenstalk.com/tips-and-tricks-to-get-the-most-from-your-curling-iron/)
+- [how to make dyed hair last longer](https://hair.allwomenstalk.com/how-to-help-your-dyed-hair-color-stay-in-longer/)
+- [why does my hair look so unhealthy](https://hair.allwomenstalk.com/how-to-avoid-unhealthy-hair/)
+- [what can i use instead of hair gel](https://hair.allwomenstalk.com/tricks-for-getting-your-hair-to-remain-in-place/)
 - [growing out fine hair](https://hair.allwomenstalk.com/ways-to-add-tons-of-volume-to-even-the-finest-hair/)
 - [how to make your hair smell good after washing it](https://hair.allwomenstalk.com/make-your-hair-smell-incredible-with-these-tips/)
-- [panel hair coloring technique](https://hair.allwomenstalk.com/how-to-create-smokestack-hair/)
-- [how do i know if i'll look good with bangs](https://hair.allwomenstalk.com/are-bangs-right-for-you/)
-- [debra messing natural hair](https://hair.allwomenstalk.com/how-to-create-the-best-curls-in-your-hair/)
 - [7 Amazingly Helpful Tips on How to Cut Your Own Ba...](https://hair.allwomenstalk.com/amazingly-helpful-tips-on-how-to-cut-your-own-bangs/)
 - [7 Interesting Ways to Style Your Bangs ...](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
 

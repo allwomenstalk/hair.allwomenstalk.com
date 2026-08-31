@@ -56,16 +56,16 @@ Ha! Bet you didn’t think there are so many brunette myths being passed around!
 
 ## Related Posts
 
-- [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
-- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
-- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
-- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
-- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
-- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
-- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
-- [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
 - [geographical facts about mount fuji japan](https://travel.allwomenstalk.com/geographical-facts-of-japan/)
+- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
+- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
+- [interesting facts about whaling](https://lifestyle.allwomenstalk.com/facts-about-whaling/)
+- [ryan gosling candids](https://celebs.allwomenstalk.com/intriguing-facts-about-ryan-gosling/)
+- [honey fun facts](https://health.allwomenstalk.com/interesting-facts-about-honey/)
+- [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
 - [marilyn monroe facts](https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/)
+- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [5 Vampire Myths ...](https://twilight.allwomenstalk.com/5-vampire-myths/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

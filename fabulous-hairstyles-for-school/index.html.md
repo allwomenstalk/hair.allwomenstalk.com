@@ -56,16 +56,16 @@ Deciding how to style your hair is one of the most common struggles girls face o
 
 ## Related Posts
 
-- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
 - [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
-- [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
-- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
+- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
+- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
 - [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
+- [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
+- [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
+- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
 - [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
 - [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
-- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
-- [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
+- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
 - [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

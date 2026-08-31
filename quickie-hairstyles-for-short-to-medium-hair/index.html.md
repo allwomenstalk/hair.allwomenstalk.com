@@ -42,16 +42,16 @@ See? There are lots of amazing cute hairstyles for [short hair](https://hair.all
 
 ## Related Posts
 
-- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
-- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
-- [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
 - [wedding headpiece for short hair](https://diy.allwomenstalk.com/gorgeous-diy-bridal-hair-pieces/)
-- [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
-- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
-- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
+- [famous hairstyles](https://hair.allwomenstalk.com/iconic-hairstyles-that-everyone-should-have/)
 - [holidays hairstyles](https://hair.allwomenstalk.com/hot-holiday-hairstyles/)
-- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
+- [cocktail hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-last-minute-party-hairstyles-for-long-hair/)
+- [long hair tutorials](https://hair.allwomenstalk.com/great-hair-tutorials-for-gorgeous-long-wavy-hair/)
+- [hairstyle for flower crown](https://wedding.allwomenstalk.com/gorgeous-bridal-floral-crown-hairstyles/)
 - [bold hair colours](https://hair.allwomenstalk.com/daring-hair-color-ideas/)
+- [fab hair and nails](https://hair.allwomenstalk.com/new-years-hair-resolutions-to-make/)
+- [riche stylo eye timeless spark](https://hair.allwomenstalk.com/hottest-celebrity-hair-color-changes-this-season/)
+- [low bun hairstyles](https://hair.allwomenstalk.com/low-bun-hairstyles-to-wear-this-fall/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

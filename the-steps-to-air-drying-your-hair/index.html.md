@@ -58,16 +58,16 @@ These are 7 steps to help you make air drying your hair a success. Do you air dr
 
 ## Related Posts
 
-- [paris riche stylo eternal sunshine](https://hair.allwomenstalk.com/heres-what-causes-your-dry-hair/)
-- [Are You Blow Drying Your Hair Wrong?](https://hair.allwomenstalk.com/are-you-blow-drying-your-hair-wrong/)
 - [Everything You Need to Know about Putting on and C...](https://hair.allwomenstalk.com/how-to-put-on-and-care-for-your-hair-extensions/)
-- [Here's Howto Find the Right Flat Iron for Your Hai...](https://hair.allwomenstalk.com/what-type-of-flat-iron-fits-your-hair-type/)
-- [2nd day hair ideas](https://hair.allwomenstalk.com/pretty-polished-styles-for-second-or-third-day-hair/)
 - [teased hair with headband](https://hair.allwomenstalk.com/this-is-what-to-do-with-your-hair-if-you-only-have-minutes/)
-- [holly madison natural hair color](https://hair.allwomenstalk.com/want-to-go-blond-read-this-first/)
+- [Here's Howto Find the Right Flat Iron for Your Hai...](https://hair.allwomenstalk.com/what-type-of-flat-iron-fits-your-hair-type/)
 - [9 Ways to Deal with Uncontrollable Hair Every Girl...](https://hair.allwomenstalk.com/ways-to-deal-with-uncontrollable-hair-every-girl-should-know/)
 - [How to Handle Unruly Hair in the Summer Heat ...](https://hair.allwomenstalk.com/how-to-handle-unruly-hair-in-the-summer-heat/)
 - [Do These Things to Wake up with Great Hair ...](https://hair.allwomenstalk.com/do-these-things-to-wake-up-with-great-hair/)
+- [paris riche stylo eternal sunshine](https://hair.allwomenstalk.com/heres-what-causes-your-dry-hair/)
+- [Are You Blow Drying Your Hair Wrong?](https://hair.allwomenstalk.com/are-you-blow-drying-your-hair-wrong/)
+- [2nd day hair ideas](https://hair.allwomenstalk.com/pretty-polished-styles-for-second-or-third-day-hair/)
+- [holly madison natural hair color](https://hair.allwomenstalk.com/want-to-go-blond-read-this-first/)
 - [7 Steps to Make Your Own Dry Shampoo ...](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
 - [7 Great but Effortless Remedies for Dry Hair ...](https://hair.allwomenstalk.com/great-but-effortless-remedies-for-dry-hair/)
 

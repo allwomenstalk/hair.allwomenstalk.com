@@ -413,16 +413,16 @@ Are you ready for some serious blond hair inspo? I know you'll all be taking tri
 
 ## Related Posts
 
-- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
+- [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
+- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
+- [withoomph](https://hair.allwomenstalk.com/the-best-tips-for-girls-who-want-ponytails-with-oomph/)
+- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
+- [peinados de rock](https://hair.allwomenstalk.com/hairstyles-to-rock-for-girls-who-are-always-hot/)
+- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
+- [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
 - [how to style wavy pixie cut](https://hair.allwomenstalk.com/these-pixie-cut-tutorials-are-perfect-for-short-haired-girls/)
 - [how to make fake short hair](https://hair.allwomenstalk.com/hair-hacks-for-faking-a-shorter-style/)
-- [girl with locks](https://hair.allwomenstalk.com/hairstyles-every-woman-with-long-locks-should-master/)
-- [frizzy hair black girl](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)
-- [short mermaid hair](https://hair.allwomenstalk.com/mermaid-hair-tutorials-for-beach-babes/)
-- [loreal color stylo primped previous](https://hair.allwomenstalk.com/lovely-hairstyles-for-ladies-with-lots-of-curls/)
-- [peinados de rock](https://hair.allwomenstalk.com/hairstyles-to-rock-for-girls-who-are-always-hot/)
-- [hair colours 2016](https://hair.allwomenstalk.com/best-hair-colors-for-fall-for-girls-who-want-to-mix-things-up/)
-- [withoomph](https://hair.allwomenstalk.com/the-best-tips-for-girls-who-want-ponytails-with-oomph/)
+- [elaborate braids](https://hair.allwomenstalk.com/stunningly-creative-braids-that-will-make-heads-turn/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [8 Cute Hairstyles for Teenage Girls ...](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
 

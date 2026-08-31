@@ -106,16 +106,16 @@ This post was written in collaboration with editor Heather Jensen.
 
 ## Related Posts
 
-- [how to keep color in hair longer](https://hair.allwomenstalk.com/ways-to-make-your-hair-color-last-longer/)
-- [curling iron tricks](https://hair.allwomenstalk.com/curling-iron-tricks-to-try-to-keep-your-curls-perfect/)
-- [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
-- [how to increase hair volume instantly](https://hair.allwomenstalk.com/ways-to-increase-hair-volume/)
 - [emitaz ex boyfriend](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-2/)
 - [broken hair brush](https://hair.allwomenstalk.com/tips-for-damaged-hair/)
-- [hairstyles to prevent scalp sunburn](https://hair.allwomenstalk.com/ways-to-protect-your-hair-from-the-sun/)
 - [how to curl hair with paper towels](https://hair.allwomenstalk.com/must-know-tips-for-women-with-curly-hair/)
-- [what is hair chalk](https://hair.allwomenstalk.com/essential-tips-for-hair-chalking-like-a-pro/)
+- [hair damage tips](https://hair.allwomenstalk.com/tips-on-how-to-avoid-hair-damage/)
+- [how to keep color in hair longer](https://hair.allwomenstalk.com/ways-to-make-your-hair-color-last-longer/)
+- [hairstyles to prevent scalp sunburn](https://hair.allwomenstalk.com/ways-to-protect-your-hair-from-the-sun/)
+- [how to increase hair volume instantly](https://hair.allwomenstalk.com/ways-to-increase-hair-volume/)
+- [curling iron tricks](https://hair.allwomenstalk.com/curling-iron-tricks-to-try-to-keep-your-curls-perfect/)
 - [hair care myths and facts](https://hair.allwomenstalk.com/ridiculous-hair-myths-you-need-to-stop-believing/)
+- [what is hair chalk](https://hair.allwomenstalk.com/essential-tips-for-hair-chalking-like-a-pro/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

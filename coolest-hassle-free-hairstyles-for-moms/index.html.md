@@ -136,16 +136,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
-- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
-- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
-- [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
-- [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
-- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
 - [hairstyles for restaurant workers](https://hair.allwomenstalk.com/easy-hairstyles-you-can-do-on-the-go/)
-- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
-- [what kind of hair is most attractive](https://hair.allwomenstalk.com/hairstyles-guys-love/)
+- [shoulder length plait hairstyles](https://hair.allwomenstalk.com/fantastic-braided-hairstyles-for-medium-length-hair/)
+- [best hairstyles to grow hair](https://hair.allwomenstalk.com/best-hairstyles-to-grow-out-relaxed-hair/)
 - [hairstyles for really short hair](https://hair.allwomenstalk.com/quickie-hairstyles-for-short-to-medium-hair/)
+- [fashion week hair](https://hair.allwomenstalk.com/cool-fall-fashion-week-hair-styles/)
+- [are sideburns cool](https://hair.allwomenstalk.com/best-sideburns-to-date/)
+- [short hair girl riding](https://hair.allwomenstalk.com/great-hairstyles-for-riding-a-bike/)
+- [crazy highlights for hair](https://hair.allwomenstalk.com/crazy-hair-colors-you-wish-you-had/)
+- [what kind of hair is most attractive](https://hair.allwomenstalk.com/hairstyles-guys-love/)
+- [office hairstyle for long hair](https://hair.allwomenstalk.com/understated-fashionable-hairstyles-for-the-office/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

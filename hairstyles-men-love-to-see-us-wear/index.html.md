@@ -114,16 +114,16 @@ Slicked back and out of your face! Kim K rocks this look often! Looking good!
 
 ## Related Posts
 
-- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
 - [paris color le stylo blinged and brilliant](https://hair.allwomenstalk.com/stylists-say-these-will-be-the-biggest-hair-trends-of/)
-- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
+- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
+- [new years hairstyles](https://hair.allwomenstalk.com/selfie-ready-party-hairstyles-for-new-years-eve/)
+- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
 - [slik back hair](https://hair.allwomenstalk.com/slick-hairstyles-thatll-make-your-hair-look-wet-and-wild/)
 - [hair inspos](https://hair.allwomenstalk.com/sexy-hair-inspos-you-must-see-and-try-yourself/)
-- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
-- [hair extension looks](https://hair.allwomenstalk.com/the-best-hair-extension-looks-from-instagram/)
 - [unnatural hair colors for blue eyes](https://hair.allwomenstalk.com/unnatural-hair-colors-that-wont-look-too-crazy/)
-- [short hairstyles for over 70 with glasses straight...](https://hair.allwomenstalk.com/the-hottest-hairstyles-to-wear-with-glasses/)
-- [lazy updos for long hair](https://hair.allwomenstalk.com/super-easy-hairstyles-for-lazy-girls/)
+- [braided flower](https://hair.allwomenstalk.com/try-these-amazing-flower-braids/)
+- [diy ombre short hair](https://hair.allwomenstalk.com/proof-that-short-haired-ladies-can-rock-ombre-hair-too/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 

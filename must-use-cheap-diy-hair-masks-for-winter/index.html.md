@@ -50,16 +50,16 @@ If you have long hair, you might need to double the ingredients to have enough t
 
 ## Related Posts
 
-- [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
-- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
-- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
-- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
-- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
-- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
-- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
 - [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
+- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
+- [bombshell dry shampoo reviews](https://hair.allwomenstalk.com/how-to-make-dry-shampoo-your-hairs-bff/)
+- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
+- [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
+- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
+- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
 - [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
 - [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
+- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
 - [7 Homemade Revitalizing Masks ...](https://skincare.allwomenstalk.com/homemade-revitalizing-masks/)
 - [7 Amazing Skin Care Products You Simply Need for W...](https://skincare.allwomenstalk.com/amazing-skin-care-products-you-simply-need-for-winter/)
 

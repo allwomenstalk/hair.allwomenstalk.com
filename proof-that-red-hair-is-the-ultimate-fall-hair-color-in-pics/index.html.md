@@ -194,16 +194,16 @@ Source: [How to Get (and Keep)](https://glamradar.com/how-to-get-fit-and-look-ch
 
 ## Related Posts
 
-- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
-- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
-- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
-- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
-- [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
 - [preppy hairstyles curly hair](https://hair.allwomenstalk.com/hairstyles-thatll-bring-out-your-preppy-side/)
-- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
-- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
+- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
+- [how to braid short layered hair](https://hair.allwomenstalk.com/hair-tutorials-for-ladies-with-layered-hair/)
 - [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
+- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
+- [1980s hair styles](https://hair.allwomenstalk.com/80s-hairstyles-its-time-to-bring-back/)
+- [100 different hairstyles](https://hair.allwomenstalk.com/years-of-mens-hairstyles/)
+- [rocking girl](https://hair.allwomenstalk.com/girls-who-know-how-to-rock-their-dreadlocks/)
+- [updos that don t damage hair](https://hair.allwomenstalk.com/hairstyles-that-work-well-on-damaged-hair/)
 - [7 Hottest Hair Trends This Fall ...](https://allwomenstalk.com/7-hottest-hair-trends-this-fall/)
 - [Top 10 Awesome Nail Colors for Fall ...](https://nails.allwomenstalk.com/top-awesome-nail-colors-for-fall/)
 

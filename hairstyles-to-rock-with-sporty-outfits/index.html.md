@@ -46,15 +46,15 @@ Found a hairstyle to go with a sporty outfit yet? Great! So which one will it be
 
 ## Related Posts
 
-- [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
-- [riche smoky bottomless](https://hair.allwomenstalk.com/trendy-styles-for-long-hair/)
-- [front cut hairstyle](https://hair.allwomenstalk.com/easy-breezy-summer-hairstyles/)
 - [fall hair colors 2023](https://hair.allwomenstalk.com/stylish-hair-color-ideas-to-try/)
-- [fabulous hairstyles](https://hair.allwomenstalk.com/quick-fabulous-hairstyles-that-take-less-than-10-minutes/)
-- [short hairstyles me](https://hair.allwomenstalk.com/adorable-short-hairstyles-to-keep-you-cool-in-the-summer/)
-- [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
-- [easy updo wavy hair](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
+- [riche smoky bottomless](https://hair.allwomenstalk.com/trendy-styles-for-long-hair/)
 - [romper hairstyles](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
+- [short hairstyles me](https://hair.allwomenstalk.com/adorable-short-hairstyles-to-keep-you-cool-in-the-summer/)
+- [easy updo wavy hair](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
+- [front cut hairstyle](https://hair.allwomenstalk.com/easy-breezy-summer-hairstyles/)
+- [fabulous hairstyles](https://hair.allwomenstalk.com/quick-fabulous-hairstyles-that-take-less-than-10-minutes/)
+- [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
+- [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
 - [side swept fishtail braid](https://hair.allwomenstalk.com/different-ways-to-braid-your-hair/)
 - [8 Ways to Wear Your Hair This Fall ...](https://hair.allwomenstalk.com/ways-to-wear-your-hair-this-fall/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)

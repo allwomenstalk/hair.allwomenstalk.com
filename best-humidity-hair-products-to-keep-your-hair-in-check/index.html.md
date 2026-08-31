@@ -74,16 +74,16 @@ So ladies, there you have it! My secret weapons in the form of humidity hair pro
 
 ## Related Posts
 
-- [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
-- [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
-- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
-- [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
-- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
 - [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
-- [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
+- [home made hair treatments](https://hair.allwomenstalk.com/home-made-hair-treatments/)
+- [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
+- [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
+- [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
+- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
+- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Hair-Care Hints for Humid Weather ...](https://hair.allwomenstalk.com/hair-care-hints-for-humid-weather/)
 

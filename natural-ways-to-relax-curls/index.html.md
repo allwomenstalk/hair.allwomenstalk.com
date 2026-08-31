@@ -78,16 +78,16 @@ This article writtten in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
+- [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
 - [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
+- [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
+- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
+- [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
 - [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
 - [home remedies for achy feet](https://shoes.allwomenstalk.com/home-remedies-for-dry-sore-feet/)
-- [for ove and lemons](https://lifestyle.allwomenstalk.com/home-remedies-using-lemons/)
-- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
 - [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
-- [loreal riche le stylo smoky shadow glistening garn...](https://hair.allwomenstalk.com/awesome-tips-for-an-invigorating-scalp-massage/)
-- [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [bath recipes](https://skincare.allwomenstalk.com/relaxing-and-beneficial-bath-recipes-to-try/)
+- [for ove and lemons](https://lifestyle.allwomenstalk.com/home-remedies-using-lemons/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 - [10 Tips to Tame Your Frizzy Hair ...](https://hair.allwomenstalk.com/10-tips-to-tame-your-frizzy-hair/)
 

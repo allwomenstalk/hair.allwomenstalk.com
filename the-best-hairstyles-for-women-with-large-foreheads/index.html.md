@@ -56,16 +56,16 @@ Do you have a big forehead? What style do you like?
 
 ## Related Posts
 
-- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
-- [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
-- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
-- [lob's girl questions and answers class 6](https://hair.allwomenstalk.com/the-lob-is-this-hot-hairstyle-right-for-you/)
-- [diy 1920s hair](https://hair.allwomenstalk.com/grab-a-headband-to-create-these-sexy-hairstyles/)
-- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
-- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
-- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
 - [hairstyles for growing out your hair](https://hair.allwomenstalk.com/hairstyles-to-use-when-youre-growing-out-your-bangs/)
+- [cute hairstyles for extensions](https://hair.allwomenstalk.com/the-best-hairstyles-to-wear-with-your-extensions/)
+- [purple front hair](https://hair.allwomenstalk.com/heres-why-galaxy-hair-is-the-hot-new-trend/)
 - [auburn hair fall](https://hair.allwomenstalk.com/proof-that-red-hair-is-the-ultimate-fall-hair-color-in-pics/)
+- [natural hairstyles for rainy days](https://hair.allwomenstalk.com/rainy-day-hairstyles-thatll-stay-in-place/)
+- [guy buns](https://hair.allwomenstalk.com/man-buns-thatll-make-you-stop-hating-the-trend/)
+- [sea mermaid hair dye](https://hair.allwomenstalk.com/mesmerizing-photos-of-mermaid-hair/)
+- [diy 1920s hair](https://hair.allwomenstalk.com/grab-a-headband-to-create-these-sexy-hairstyles/)
+- [haircuts for 70 year old woman with glasses](https://hair.allwomenstalk.com/hairstyles-thatll-make-you-look-older-than-your-age/)
+- [lob's girl questions and answers class 6](https://hair.allwomenstalk.com/the-lob-is-this-hot-hairstyle-right-for-you/)
 - [The 4 Best Hairstyles for Busy Moms ...](https://allwomenstalk.com/the-4-best-hairstyles-for-busy-moms/)
 - [Tame Your Tresses with These Gorgeous Hairstyles f...](https://hair.allwomenstalk.com/tame-your-tresses-with-these-gorgeous-hairstyles-for-thick-hair/)
 

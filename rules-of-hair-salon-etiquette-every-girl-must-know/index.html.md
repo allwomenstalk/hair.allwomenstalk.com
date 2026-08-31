@@ -56,16 +56,16 @@ These’re some helpful hints when it comes to hair salon etiquette. Which of th
 
 ## Related Posts
 
-- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
-- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
-- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
-- [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
 - [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
+- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
+- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
 - [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
+- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
 - [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
+- [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
 - [twisting hair for curls overnight](https://hair.allwomenstalk.com/heatless-tricks-for-curling-your-hair/)
 - [velcro rollers how to use](https://hair.allwomenstalk.com/tips-and-tricks-for-using-hair-rollers/)
-- [how to make long curls](https://hair.allwomenstalk.com/how-to-make-your-curls-last-all-day-long/)
+- [thicky trick](https://hair.allwomenstalk.com/tricks-your-thick-hair-will-thank-you-for/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

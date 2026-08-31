@@ -42,16 +42,16 @@ If you can avoid doing these worst things to your locks, you will be amazed at h
 
 ## Related Posts
 
-- [why you shouldn't wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
-- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
-- [bangs to hide forehead wrinkles](https://hair.allwomenstalk.com/things-to-think-about-before-cutting-your-bangs/)
-- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
 - [the who cut my hair](https://hair.allwomenstalk.com/reasons-to-cut-your-hair-for-summer/)
-- [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
+- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
 - [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
 - [curly hair boy kids](https://parenting.allwomenstalk.com/tips-for-caring-for-curly-haired-kids/)
+- [bangs to hide forehead wrinkles](https://hair.allwomenstalk.com/things-to-think-about-before-cutting-your-bangs/)
 - [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
+- [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
 - [how to hide grey roots](https://hair.allwomenstalk.com/ways-to-hide-roots-and-greys-between-dye-jobs/)
+- [why you shouldn't wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
+- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [Top 8 Hair Care Mistakes to Avoid ...](https://hair.allwomenstalk.com/top-8-hair-care-mistakes-to-avoid/)
 

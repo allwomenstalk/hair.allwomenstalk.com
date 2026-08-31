@@ -60,15 +60,15 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
+- [wavy hair techniques](https://hair.allwomenstalk.com/tips-for-getting-perfectly-wavy-hair/)
 - [easy ways to change your hair](https://hair.allwomenstalk.com/tips-for-dramatically-changing-your-hair-color/)
 - [tight overnight curls](https://hair.allwomenstalk.com/tutorials-on-how-to-stretch-tight-curls/)
+- [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
+- [epilate vs shave](https://skincare.allwomenstalk.com/hair-removal-dos-and-donts/)
+- [common hair mistakes](https://hair.allwomenstalk.com/most-common-hair-care-mistakes/)
+- [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
 - [uses of hair dryer](https://lifestyle.allwomenstalk.com/surprising-uses-for-a-hair-dryer/)
 - [do it yourself blonde highlights](https://hair.allwomenstalk.com/tips-for-doing-your-own-highlights/)
-- [common hair mistakes](https://hair.allwomenstalk.com/most-common-hair-care-mistakes/)
-- [tips on hair straightening](https://hair.allwomenstalk.com/foolproof-tips-for-straightening-your-hair/)
-- [indian girls pic](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-indian-girls/)
-- [epilate vs shave](https://skincare.allwomenstalk.com/hair-removal-dos-and-donts/)
-- [wavy hair techniques](https://hair.allwomenstalk.com/tips-for-getting-perfectly-wavy-hair/)
 - [hair sock](https://hair.allwomenstalk.com/extra-tips-for-a-perfect-sock-bun/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)

@@ -254,16 +254,16 @@ So ladies, did you see any braided hairstyles that you'd like to try out? I thou
 
 ## Related Posts
 
-- [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
-- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
-- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
 - [curls 'n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
-- [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
-- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
 - [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
 - [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
+- [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
+- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
 - [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
+- [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
+- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
+- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
+- [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [7 Movie Inspired Braided Hairstyles to Try ...](https://hair.allwomenstalk.com/movie-inspired-braided-hairstyles-to-try/)
 

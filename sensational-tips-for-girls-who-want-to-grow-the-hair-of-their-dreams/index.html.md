@@ -74,16 +74,16 @@ While we all would love a secret recipe to help hair grow an inch per day, the r
 
 ## Related Posts
 
-- [tricks to make your hair grow faster](https://hair.allwomenstalk.com/how-to-make-hair-grow-faster/)
-- [how to test your hair type](https://hair.allwomenstalk.com/hair-porosity-test/)
 - [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
+- [different kinds of perms for short hair](https://hair.allwomenstalk.com/care-tips-for-short-permed-hair/)
 - [how to lighten hair](https://hair.allwomenstalk.com/how-to-lighten-your-hair-at-home/)
 - [how to protect hair from sun damage](https://hair.allwomenstalk.com/how-do-i-protect-my-hair-from-sun-damage/)
-- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
-- [different kinds of perms for short hair](https://hair.allwomenstalk.com/care-tips-for-short-permed-hair/)
-- [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
 - [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
+- [how to test your hair type](https://hair.allwomenstalk.com/hair-porosity-test/)
+- [tricks to make your hair grow faster](https://hair.allwomenstalk.com/how-to-make-hair-grow-faster/)
 - [how do you trim bangs](https://hair.allwomenstalk.com/how-to-trim-your-own-bangs/)
+- [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
+- [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 - [10 Tips for Growing out Your Hair ...](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair/)
 

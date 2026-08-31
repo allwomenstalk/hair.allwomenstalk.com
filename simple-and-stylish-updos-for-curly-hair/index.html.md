@@ -92,16 +92,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
-- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [2020 hair color trends](https://hair.allwomenstalk.com/fabulous-hair-color-trends-for-fall-we-just-love/)
-- [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
-- [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
 - [strange hair styles](https://hair.allwomenstalk.com/strange-hair-trends-that-are-only-for-the-brave/)
-- [vintage hairstyles for medium hair](https://hair.allwomenstalk.com/vintage-hairstyles-to-try-today/)
 - [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
-- [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
+- [first date hairstyles](https://hair.allwomenstalk.com/time-saving-heatless-hairstyles-you-can-pull-off-with-a-single-wash/)
+- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
+- [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
+- [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
+- [vintage hairstyles for medium hair](https://hair.allwomenstalk.com/vintage-hairstyles-to-try-today/)
+- [cool back to school hairstyles](https://hair.allwomenstalk.com/fabulous-back-to-school-hairstyles-to-rock-this-fall/)
 - [8 Curly Hairstyles to Try ...](https://hair.allwomenstalk.com/curly-hairstyles-to-try/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

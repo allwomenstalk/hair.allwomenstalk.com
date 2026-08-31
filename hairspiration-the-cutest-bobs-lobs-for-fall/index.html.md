@@ -116,16 +116,16 @@ Have any of these celebs inspired you to make the transformation?
 
 ## Related Posts
 
-- [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
+- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
+- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
+- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
 - [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
 - [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
-- [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
-- [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
 - [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
-- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
+- [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
+- [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
 - [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
-- [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
+- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
 - [7 Updated Bob Cuts That Are Hot Right Now ...](https://hair.allwomenstalk.com/updated-bob-cuts-that-are-hot-right-now/)
 - [7 Easy Hairstyles for Fall ...](https://hair.allwomenstalk.com/easy-hairstyles-for-fall/)
 

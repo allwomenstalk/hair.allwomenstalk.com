@@ -56,16 +56,16 @@ Do you like to put ribbons in your hair? I have several cut ribbons that I keep 
 
 ## Related Posts
 
-- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
+- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
 - [disney gemini celebrities](https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/)
-- [2014 haircuts](https://hair.allwomenstalk.com/of-the-most-popular-haircuts-of/)
-- [fire hydrant red hair](https://hair.allwomenstalk.com/hair-inspirations-for-changing-up-your-style/)
-- [lisa purple hair](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
+- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
 - [updos for hair](https://hair.allwomenstalk.com/sensational-second-day-hair-ideas/)
 - [michelle williams hair color](https://hair.allwomenstalk.com/take-some-fall-hair-color-inspiration-from-these-celebs/)
 - [classic updos](https://hair.allwomenstalk.com/ways-to-switch-up-classic-hairstyles-for-school/)
-- [cameron diaz bob haircut the holiday](https://hair.allwomenstalk.com/hairspiration-the-cutest-bobs-lobs-for-fall/)
-- [fabulous hair styles](https://hair.allwomenstalk.com/fabulous-hairstyles-for-school/)
+- [lisa purple hair](https://hair.allwomenstalk.com/incredible-hair-looks-by-katy-perry/)
+- [fire hydrant red hair](https://hair.allwomenstalk.com/hair-inspirations-for-changing-up-your-style/)
+- [2014 haircuts](https://hair.allwomenstalk.com/of-the-most-popular-haircuts-of/)
+- [pinterest hair styles](https://hair.allwomenstalk.com/fancy-braided-hairstyle-ideas-from-pinterest/)
 - [4 Sexy Hairstyles to Create on Your Wedding Day .....](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 - [7 Tips for Creating a Fishtail Braid ...](https://hair.allwomenstalk.com/tips-for-creating-a-fishtail-braid/)
 

@@ -46,16 +46,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16590125/)
 
 ## Related Posts
 
-- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
 - [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
-- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
-- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
 - [how to make thick hair lay flat](https://hair.allwomenstalk.com/tips-on-how-to-deal-with-thick-hair/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
-- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
 - [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
-- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
+- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
 - [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
+- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
+- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
+- [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
+- [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
 - [7 Skincare Tips for Summer ...](https://skincare.allwomenstalk.com/skincare-tips-for-summer/)
 - [7 Skincare Tips for Twenty-Somethings ...](https://skincare.allwomenstalk.com/skincare-tips-for-twenty-somethings/)
 

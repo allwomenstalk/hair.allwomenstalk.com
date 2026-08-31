@@ -58,16 +58,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/205062219/)
 
 ## Related Posts
 
-- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
-- [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
-- [accessories rules](https://hair.allwomenstalk.com/8-rules-for-hair-accessories/)
-- [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
-- [hairstyle for fall](https://hair.allwomenstalk.com/ways-to-wear-your-hair-this-fall/)
-- [chic hairstyles that don't require heat or styling...](https://hair.allwomenstalk.com/fabulous-and-easy-hairstyles-that-dont-require-any-heat/)
-- [wedding hair tutorials half up](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
 - [try celebrity hairstyles](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
+- [easy pretty hairstyles for long hair](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
+- [vintage bob hair](https://hair.allwomenstalk.com/variations-on-the-classic-bob/)
+- [wedding hair tutorials half up](https://hair.allwomenstalk.com/great-tutorials-on-wedding-hairstyles/)
+- [ways to wear a ponytail](https://hair.allwomenstalk.com/creative-ways-to-wear-a-ponytail/)
 - [overgrown bangs](https://hair.allwomenstalk.com/interesting-ways-to-style-your-bangs/)
 - [hairstyle with scarf](https://hair.allwomenstalk.com/ways-to-update-your-hairstyle-with-a-scarf/)
+- [chic hairstyles that don't require heat or styling...](https://hair.allwomenstalk.com/fabulous-and-easy-hairstyles-that-dont-require-any-heat/)
+- [accessories rules](https://hair.allwomenstalk.com/8-rules-for-hair-accessories/)
+- [hairstyle for fall](https://hair.allwomenstalk.com/ways-to-wear-your-hair-this-fall/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 - [7 Elegantly Fashionable Ways to Style Your Curly H...](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 

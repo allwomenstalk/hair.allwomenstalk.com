@@ -57,16 +57,16 @@ If you’d like more hair advice, I have more on my website. We also have some f
 
 ## Related Posts
 
-- [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
-- [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
+- [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
+- [hair extensions to fix bad haircut](https://hair.allwomenstalk.com/reasons-not-to-let-a-bad-haircut-freak-you-out/)
 - [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
 - [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
 - [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
-- [hair extensions to fix bad haircut](https://hair.allwomenstalk.com/reasons-not-to-let-a-bad-haircut-freak-you-out/)
-- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
-- [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
 - [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
-- [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
+- [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
+- [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
+- [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
+- [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
 - [7 Possible Reasons for Hair Loss ...](https://hair.allwomenstalk.com/7-possible-reasons-for-hair-loss/)
 - [8 Tips to Prevent Split Ends ...](https://hair.allwomenstalk.com/8-tips-to-prevent-split-ends/)
 

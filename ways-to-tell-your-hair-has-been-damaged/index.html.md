@@ -48,16 +48,16 @@ Top Image Source: [volvoretas.wordpress.com/](https://volvoretas.wordpress.com/)
 
 ## Related Posts
 
+- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
 - [taking care of hair extensions](https://hair.allwomenstalk.com/tips-on-how-to-care-for-your-hair-extensions/)
-- [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
-- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
-- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
 - [shampooing tips](https://hair.allwomenstalk.com/tips-for-shampooing-your-hair-like-a-pro/)
 - [can i relax my baby hair](https://hair.allwomenstalk.com/reasons-not-to-relax-your-childs-hair/)
-- [do i need shampoo](https://hair.allwomenstalk.com/compelling-reasons-not-to-wash-your-hair/)
-- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
+- [how to get big volume hair](https://hair.allwomenstalk.com/tips-for-the-perfect-big-hair/)
+- [cbg glam curl](https://hair.allwomenstalk.com/things-to-include-in-your-hair-emergency-kit/)
 - [emitaz age](https://hair.allwomenstalk.com/frequently-asked-questions-on-hair-salon-etiquette/)
+- [why does my hair straightener smell](https://hair.allwomenstalk.com/ways-to-make-your-hair-smell-good-all-day/)
 - [dermatologist recommended hair care routine](https://hair.allwomenstalk.com/hair-care-tips-from-dermatologists/)
+- [80s hair blowout](https://hair.allwomenstalk.com/ways-to-make-your-blowout-last/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [7 Signs of Healthy Hair ...](https://hair.allwomenstalk.com/7-signs-of-healthy-hair/)
 

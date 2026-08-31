@@ -56,16 +56,16 @@ If you have just colored your hair, don’t use any clarifying shampoo, either s
 
 ## Related Posts
 
-- [best semipermanent hair color](https://hair.allwomenstalk.com/best-semi-permanent-hair-color-brands/)
-- [hair color that won't damage hair](https://hair.allwomenstalk.com/natural-hair-dyes/)
-- [biotin-rich foods](https://diet.allwomenstalk.com/biotin-rich-foods/)
+- [best oil for moisturizing hair](https://hair.allwomenstalk.com/best-moisturizing-oils-for-your-hair/)
 - [herbs for healthy hair](https://hair.allwomenstalk.com/best-herbs-for-healthy-hair/)
-- [ionic flat irons](https://hair.allwomenstalk.com/best-flat-irons/)
 - [diy scalp treatment for hair growth](https://hair.allwomenstalk.com/diy-recipes-for-hair-growth/)
+- [ionic flat irons](https://hair.allwomenstalk.com/best-flat-irons/)
 - [biotin-rich foods vegetarian](https://beauty.allwomenstalk.com/biotin-rich-foods-to-keep-you-beautiful/)
 - [5 oils for skin](https://skincare.allwomenstalk.com/best-beauty-oils/)
+- [best semipermanent hair color](https://hair.allwomenstalk.com/best-semi-permanent-hair-color-brands/)
 - [hair loss female home remedies](https://hair.allwomenstalk.com/natural-remedies-for-hair-loss/)
-- [best oil for moisturizing hair](https://hair.allwomenstalk.com/best-moisturizing-oils-for-your-hair/)
+- [hair color that won't damage hair](https://hair.allwomenstalk.com/natural-hair-dyes/)
+- [biotin-rich foods](https://diet.allwomenstalk.com/biotin-rich-foods/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 

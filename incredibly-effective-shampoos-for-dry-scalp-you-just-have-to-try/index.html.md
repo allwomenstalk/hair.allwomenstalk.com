@@ -87,15 +87,15 @@ This article was written in collaboration with editor Lydia Sheehan.
 ## Related Posts
 
 - [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
-- [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
+- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
+- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
 - [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
 - [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
 - [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
-- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
-- [best shampoos for very dry hair](https://beauty.allwomenstalk.com/best-shampoos-for-dry-hair/)
+- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
+- [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
 - [conair vs revlon hair dryer](https://hair.allwomenstalk.com/best-hair-dryers-for-fabulous-and-safe-hair-styling/)
 - [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
-- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
 - [15 Best Shampoos for Girls with Oily Hair ...](https://allwomenstalk.com/12-best-shampoos-for-oily-hair/)
 - [15 Best Shampoos for Dry Hair ...](https://allwomenstalk.com/10-best-shampoos-for-dry-hair/)
 

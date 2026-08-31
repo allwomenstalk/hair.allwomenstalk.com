@@ -42,16 +42,16 @@ What do you think is the worst hair habit you have?
 
 ## Related Posts
 
-- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
-- [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
-- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
-- [panel hair coloring technique](https://hair.allwomenstalk.com/how-to-create-smokestack-hair/)
-- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
-- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
-- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
 - [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
+- [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
+- [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
+- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
 - [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
+- [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
+- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
+- [panel hair coloring technique](https://hair.allwomenstalk.com/how-to-create-smokestack-hair/)
 - [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
+- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [9 Ways to Avoid a Bad Hair Day ...](https://hair.allwomenstalk.com/9-ways-to-avoid-a-bad-hair-day/)
 

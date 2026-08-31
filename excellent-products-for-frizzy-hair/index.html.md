@@ -24,16 +24,16 @@ For those dealing with dry, frizzy hair, a moisturizing shampoo is a must. This 
 
 ## Related Posts
 
-- [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
-- [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
-- [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
-- [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
-- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
-- [how to get rid of dandruff natural ways](https://hair.allwomenstalk.com/natural-anti-dandruff-remedies/)
-- [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
-- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
 - [organic hair products](https://hair.allwomenstalk.com/organic-hair-products/)
+- [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
+- [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
 - [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
+- [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
+- [how to get rid of dandruff natural ways](https://hair.allwomenstalk.com/natural-anti-dandruff-remedies/)
+- [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
+- [best remedy for oily hair](https://hair.allwomenstalk.com/best-oily-hair-treatments/)
+- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
+- [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [Top 7 Oily Hair Products ...](https://hair.allwomenstalk.com/top-oily-hair-products/)
 

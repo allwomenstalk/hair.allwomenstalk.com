@@ -44,16 +44,16 @@ Top Photo Credit: [Evil Erin](https://www.flickr.com/photos/evilerin/3435417453/
 
 ## Related Posts
 
-- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
-- [10 Definite Don'ts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
 - [10 Second Secrets to Salon Perfect Hair](https://allwomenstalk.com/10-second-secrets-to-salon-perfect-hair/)
+- [10 Definite Don'ts of Great Hair Care ...](https://allwomenstalk.com/10-definite-donts-of-great-hair-care/)
+- [Bad Hair Day? Helpers on the Way!](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
+- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
+- [10 do's of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
+- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
+- [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
+- [hoco hairstyles](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [dry hair care in summer](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
 - [which shampoo is good for chemically treated hair](https://hair.allwomenstalk.com/ways-to-care-for-chemically-treated-hair/)
-- [10 do's of Great Hair Care ...](https://allwomenstalk.com/10-dos-of-great-hair-care/)
-- [how often to trim fringe](https://hair.allwomenstalk.com/tips-for-trimming-your-own-fringe/)
-- [limp and lifeless hair](https://fashion.allwomenstalk.com/7-ways-to-care-for-limp-hair/)
-- [Bad Hair Day? Helpers on the Way!](https://allwomenstalk.com/bad-hair-day-helpers-on-the-way/)
-- [haircare tips](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [7 Tips for Pony Tail Perfection ...](https://hair.allwomenstalk.com/tips-for-pony-tail-perfection/)
 

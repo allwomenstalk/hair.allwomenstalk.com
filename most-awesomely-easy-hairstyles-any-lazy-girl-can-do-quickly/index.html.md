@@ -30,14 +30,14 @@ Not only are these hair ideas beautiful, but they're quick and easy, allowing yo
 
 - [spiral braid](https://hair.allwomenstalk.com/braid-styles-to-master/)
 - [textured haircut ladies](https://hair.allwomenstalk.com/short-haircuts-for-women/)
-- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
-- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
+- [top knot hairstyle female](https://hair.allwomenstalk.com/what-your-hairstyle-says-about-you/)
+- [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
 - [hair colors for christmas](https://hair.allwomenstalk.com/winter-hair-colors-that-will-make-heads-turn/)
+- [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
+- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
 - [pin up doll ashley marie](https://hair.allwomenstalk.com/fabulous-pinup-hair-tutorials/)
 - [haircuts for long hair women](https://hair.allwomenstalk.com/layered-haircuts-for-every-face-shape/)
 - [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
-- [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
-- [top knot hairstyle female](https://hair.allwomenstalk.com/what-your-hairstyle-says-about-you/)
 - [8 Gorgeous and Easy 5 Minute Hairstyles ...](https://hair.allwomenstalk.com/gorgeous-and-easy-5-minute-hairstyles/)
 - [25 Super-Easy Hairstyles Only Girls with Long Hair...](https://hair.allwomenstalk.com/super-easy-everyday-hairstyles-for-extremely-long-hair/)
 

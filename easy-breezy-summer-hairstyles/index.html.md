@@ -56,16 +56,16 @@ Spend less time fussing over your hair and more time enjoying the season this su
 
 ## Related Posts
 
-- [vintage hairstyles for medium hair](https://hair.allwomenstalk.com/vintage-hairstyles-to-try-today/)
 - [easy updo wavy hair](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
-- [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
-- [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
-- [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
-- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
 - [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
+- [nudge band for hair pulling](https://hair.allwomenstalk.com/quirky-hair-accessories-that-only-the-brave-can-pull-off/)
+- [riche le stylo smoky shadow a](https://hair.allwomenstalk.com/fun-braided-hairstyles-to-try/)
+- [headband around forehead](https://hair.allwomenstalk.com/wonderful-hairstyles-you-should-definitely-try-this-summer/)
+- [vintage hairstyles for medium hair](https://hair.allwomenstalk.com/vintage-hairstyles-to-try-today/)
 - [short hairstyles me](https://hair.allwomenstalk.com/adorable-short-hairstyles-to-keep-you-cool-in-the-summer/)
-- [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
+- [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
 - [romper hairstyles](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
+- [zooey deschanel hair tutorial](https://hair.allwomenstalk.com/of-my-favorite-video-tutorials-for-diverse-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 

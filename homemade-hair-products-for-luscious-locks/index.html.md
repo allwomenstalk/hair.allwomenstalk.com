@@ -232,16 +232,16 @@ If this list for homemade hair products doesn’t address your particular need, 
 
 ## Related Posts
 
-- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
-- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
-- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
-- [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
-- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
-- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
-- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
-- [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
 - [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
 - [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
+- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
+- [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
+- [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
+- [what is the best food for your hair](https://food.allwomenstalk.com/these-fish-will-make-your-skin-and-hair-look-its-best/)
+- [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
+- [foods for thick shiny hair](https://hair.allwomenstalk.com/want-thick-shiny-hair-these-are-the-foods-you-should-be-putting-on-your-plate/)
+- [hair perfume for locs](https://hair.allwomenstalk.com/locks-of-love-how-to-make-your-hair-smell-amazing-all-day-long/)
+- [egg yolk and mayonnaise hair mask](https://hair.allwomenstalk.com/get-luscious-locks-with-these-diy-hair-masks/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Organic Hair Products ...](https://hair.allwomenstalk.com/organic-hair-products/)
 

@@ -42,16 +42,16 @@ I love how short hair looks sometimes, but I don't want to cut my long hair. It 
 
 ## Related Posts
 
-- [how to wear a headband with ponytail](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
-- [teens hairstyles](https://hair.allwomenstalk.com/trendiest-hairstyles-for-teens-that-you-should-try-today/)
-- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
-- [best tool for loose waves](https://hair.allwomenstalk.com/styling-tools-to-give-your-hair-waves-and-curls/)
-- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
-- [edgy hairstyles for long hair](https://hair.allwomenstalk.com/edgy-haircuts-to-rock-this-year/)
 - [street style hairstyles](https://hair.allwomenstalk.com/streetstyle-hairstyles-thatll-keep-you-looking-fab/)
 - [long hair quotes for man](https://hair.allwomenstalk.com/fun-reasons-to-love-your-long-hair/)
 - [new hairstyle 2023](https://hair.allwomenstalk.com/reasons-to-change-your-hairstyle/)
+- [edgy hairstyles for long hair](https://hair.allwomenstalk.com/edgy-haircuts-to-rock-this-year/)
 - [hairstyles for clean hair](https://hair.allwomenstalk.com/hairstyles-for-when-you-cant-wash-your-hair/)
+- [teens hairstyles](https://hair.allwomenstalk.com/trendiest-hairstyles-for-teens-that-you-should-try-today/)
+- [how to wear a headband with ponytail](https://hair.allwomenstalk.com/gorgeous-ways-to-dress-up-your-ponytail/)
+- [pops of color in hair](https://hair.allwomenstalk.com/stylish-ways-to-add-pops-of-color-to-your-hair/)
+- [cute spring hairstyles](https://hair.allwomenstalk.com/adorable-haircuts-for-spring-that-are-simply-perfect/)
+- [best tool for loose waves](https://hair.allwomenstalk.com/styling-tools-to-give-your-hair-waves-and-curls/)
 - [7 Bridal Hairstyles for Short Hair ...](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

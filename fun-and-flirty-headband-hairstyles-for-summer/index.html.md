@@ -62,15 +62,15 @@ Summer doesn't have to mean being lazy when it comes to hairstyling. It's so sim
 
 ## Related Posts
 
-- [zodiac chart hairstyles](https://hair.allwomenstalk.com/what-type-of-hairstyle-fits-your-zodiac-sign/)
-- [style for gorge](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
-- [rihanna grey hair](https://hair.allwomenstalk.com/lets-get-all-kinds-of-inspo-from-rihannas-hair-over-the-years/)
-- [soccer ponytail hairstyles](https://hair.allwomenstalk.com/these-athletes-show-us-how-to-wear-our-hair-for-sports/)
-- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
-- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
-- [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
-- [after shower hairstyles](https://hair.allwomenstalk.com/hairstyles-to-use-when-you-dont-have-time-to-shower/)
 - [different bangs for different face shapes](https://hair.allwomenstalk.com/what-are-the-best-bangs-for-your-face-shape/)
+- [soccer ponytail hairstyles](https://hair.allwomenstalk.com/these-athletes-show-us-how-to-wear-our-hair-for-sports/)
+- [zodiac chart hairstyles](https://hair.allwomenstalk.com/what-type-of-hairstyle-fits-your-zodiac-sign/)
+- [after shower hairstyles](https://hair.allwomenstalk.com/hairstyles-to-use-when-you-dont-have-time-to-shower/)
+- [half up half down hair tutorials](https://hair.allwomenstalk.com/bow-hair-tutorials-for-an-elegant-look/)
+- [mg hair style](https://hair.allwomenstalk.com/steps-to-rock-the-perfect-celeb-inspired-topknot/)
+- [style for gorge](https://hair.allwomenstalk.com/leaving-the-gym-post-workout-styles/)
+- [above shoulder hair cut](https://hair.allwomenstalk.com/layered-cuts-youve-been-dying-to-try-for-your-long-hair/)
+- [rihanna grey hair](https://hair.allwomenstalk.com/lets-get-all-kinds-of-inspo-from-rihannas-hair-over-the-years/)
 - [long hairstyles for interview](https://hair.allwomenstalk.com/interview-hairstyles-to-create-a-great-first-impression/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)

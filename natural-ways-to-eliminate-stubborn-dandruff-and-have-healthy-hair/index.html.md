@@ -94,16 +94,16 @@ What are some of your favorite ways to treat dandruff? I'd love to hear about th
 
 ## Related Posts
 
-- [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
-- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
-- [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
-- [loreal paris color riche stylo smoky shadow rush](https://hair.allwomenstalk.com/things-you-need-to-remember-when-you-choose-a-drastic-hair-color-change/)
-- [what heat should i straighten my hair at](https://hair.allwomenstalk.com/things-to-know-before-you-straighten-your-hair/)
-- [how long for bangs to grow an inch](https://hair.allwomenstalk.com/incredible-tips-for-growing-out-your-bangs/)
-- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
 - [yourhairdresser](https://hair.allwomenstalk.com/things-your-hairdresser-wants-you-to-know/)
+- [what heat should i straighten my hair at](https://hair.allwomenstalk.com/things-to-know-before-you-straighten-your-hair/)
+- [hair thicken diet](https://hair.allwomenstalk.com/diet-tips-for-thicker-hair-in-just-one-month/)
 - [hair tangle](https://hair.allwomenstalk.com/ways-to-prevent-your-hair-from-getting-tangled/)
+- [hair products to make hair shiny](https://hair.allwomenstalk.com/ways-to-make-your-hair-shiny-without-pricey-products/)
+- [loreal paris color riche stylo smoky shadow rush](https://hair.allwomenstalk.com/things-you-need-to-remember-when-you-choose-a-drastic-hair-color-change/)
 - [best product for holding curls](https://hair.allwomenstalk.com/easy-tips-to-set-and-hold-curls-in-straight-hair/)
+- [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
+- [long thick curls](https://hair.allwomenstalk.com/tips-for-making-your-thick-hair-hold-its-curls/)
+- [how long for bangs to grow an inch](https://hair.allwomenstalk.com/incredible-tips-for-growing-out-your-bangs/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [7 Ways to Remedy a Dry Scalp ...](https://hair.allwomenstalk.com/ways-to-remedy-a-dry-scalp/)
 

@@ -162,16 +162,16 @@ Any other under-the-radar hair care products you swear by?
 
 ## Related Posts
 
+- [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
 - [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
-- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
 - [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
-- [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
-- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
-- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
 - [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
+- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
+- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
 - [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
 - [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
-- [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
+- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
+- [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Natural Hair Rinses – Get the Hair You Always Wa...](https://hair.allwomenstalk.com/natural-hair-rinses-get-the-hair-you-always-wanted/)
 

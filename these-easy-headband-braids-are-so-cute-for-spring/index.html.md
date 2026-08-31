@@ -32,16 +32,16 @@ So, which of these braids do you plan on trying out this spring?
 
 ## Related Posts
 
-- [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
 - [cute hair styles for homecoming](https://hair.allwomenstalk.com/prom-styles-for-girls-with-short-hair/)
 - [cool girl hair styles](https://hair.allwomenstalk.com/prom-styles-for-girls-with-long-hair/)
+- [down hairdos](https://hair.allwomenstalk.com/the-hottest-half-uphalf-down-hairdos-around/)
 - [cute festival hairstyles](https://hair.allwomenstalk.com/festival-friendly-hairstyles-you-can-rock-out-with/)
 - [elegant black ladies](https://hair.allwomenstalk.com/elegant-hairstyles-for-beautiful-black-women-to-wear-to-weddings/)
-- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
 - [ultimate hairstyle try-on](https://apps.allwomenstalk.com/hair-apps-to-get-you-out-of-a-style-rut/)
-- [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
-- [down hairdos](https://hair.allwomenstalk.com/the-hottest-half-uphalf-down-hairdos-around/)
 - [hair vocabulary](https://hair.allwomenstalk.com/these-hair-infographics-will-make-styling-even-easier/)
+- [down prom hair](https://hair.allwomenstalk.com/prom-hairstyles-that-wont-come-undone-while-dancing/)
+- [gorgeous black ladies](https://hair.allwomenstalk.com/hair-tutorials-for-gorgeous-black-ladies/)
+- [cute korean girl with flower crown](https://hair.allwomenstalk.com/welcome-spring-by-wearing-these-flowers-in-your-hair/)
 - [5 Tips for Wearing Headbands. This Season's Hottes...](https://allwomenstalk.com/5-tips-for-wearing-headbands-this-seasons-hottest-accessory/)
 - [7 Gorgeous Skinny Headbands ...](https://allwomenstalk.com/7-gorgeous-skinny-headbands/)
 

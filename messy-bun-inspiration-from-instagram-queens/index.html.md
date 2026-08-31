@@ -106,16 +106,16 @@ Her hair is perfect, though, really.
 
 ## Related Posts
 
-- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
-- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
-- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
-- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
-- [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
-- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
-- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
-- [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
 - [sleep in hairstyles](https://hair.allwomenstalk.com/hairstyles-you-can-sleep-in-overnight-and-into-the-morning/)
+- [shoulder length braid styles](https://hair.allwomenstalk.com/medium-hair-dont-care-sassy-braids-for-shoulder-length-locks/)
+- [mohawk hairstyles for natural hair](https://hair.allwomenstalk.com/women-with-natural-hair-should-try-these-styles/)
 - [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
+- [blonde braids men](https://lifestyle.allwomenstalk.com/move-over-man-bun-because-the-man-braid-is-here/)
+- [braid into pigtails](https://hair.allwomenstalk.com/show-off-your-beauty-in-these-braided-pigtails/)
+- [relaxer hairstyles](https://hair.allwomenstalk.com/everyone-needs-to-try-these-relaxed-hairstyles/)
+- [what is a hot roller](https://hair.allwomenstalk.com/hairstyles-you-can-create-with-hot-rollers/)
+- [swirl hair style](https://hair.allwomenstalk.com/cinnamon-swirl-hair-is-a-sexy-new-style/)
+- [valentines hair color](https://hair.allwomenstalk.com/sexy-hair-inspos-for-valentines-day/)
 - [Here Are the Most Popular Hairstyles Blowing up In...](https://hair.allwomenstalk.com/here-are-the-most-popular-hairstyles-blowing-up-instagram/)
 - [21 Instagram Queens That'll Make You Embrace Your ...](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
 

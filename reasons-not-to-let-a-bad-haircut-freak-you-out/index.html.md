@@ -42,15 +42,15 @@ When you end up with a bad cut, it can make you want to weep. At best you feel d
 
 ## Related Posts
 
-- [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
-- [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
-- [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
-- [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
+- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
 - [types of curlers](https://hair.allwomenstalk.com/tricks-to-using-hot-rollers-that-give-you-gorgeous-waves/)
+- [winter hair care tips for natural hair](https://hair.allwomenstalk.com/winter-hair-care-tips-for-naturally-curly-hair/)
 - [how to keep extensions from getting dry](https://hair.allwomenstalk.com/ways-to-keep-your-hair-extensions-from-drying-out/)
 - [hairdressing tips](https://hair.allwomenstalk.com/hair-salon-etiquette-tips-that-will-make-your-hairstylist-love-you/)
-- [apl hair](https://hair.allwomenstalk.com/natural-hair-and-transitioning-terms-decoded/)
+- [lime for dandruff](https://hair.allwomenstalk.com/natural-ways-to-eliminate-stubborn-dandruff-and-have-healthy-hair/)
+- [hairstyles for running long hair](https://fitness.allwomenstalk.com/tips-to-keep-your-hair-in-place-during-a-workout/)
 - [good deep conditioning treatment](https://hair.allwomenstalk.com/steps-for-the-perfect-deep-conditioning-treatment-for-your-hair/)
+- [curly split ends](https://hair.allwomenstalk.com/worst-things-to-do-to-curly-hair/)
 - [static hair in summer](https://hair.allwomenstalk.com/helpful-pointers-on-getting-rid-of-static-hair/)
 - [7 Ways to Cope with a Bad Haircut ...](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
 - [Coping with a Bad Haircut ...](https://allwomenstalk.com/coping-with-a-bad-haircut/)

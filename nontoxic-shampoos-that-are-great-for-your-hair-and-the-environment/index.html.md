@@ -56,15 +56,15 @@ If you are looking for a nontoxic shampoo, any of these would be a great option.
 
 ## Related Posts
 
-- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
-- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
-- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
 - [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
+- [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
+- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
 - [worst ingredients in hair products](https://hair.allwomenstalk.com/worst-ingredients-for-your-hair/)
 - [butter milk for hair](https://food.allwomenstalk.com/foods-to-put-on-your-hair-to-make-it-shiny-and-radiant/)
+- [john frieda frizz ease glossing mist](https://hair.allwomenstalk.com/shine-sprays-to-give-your-hair-enviable-sheen/)
 - [best leave in conditioner for soft hair](https://hair.allwomenstalk.com/best-leave-in-conditioners-for-soft-hair/)
+- [organic hair care lines](https://hair.allwomenstalk.com/organic-hair-care-brands-to-try-now/)
 - [percy and reed dry shampoo](https://hair.allwomenstalk.com/best-dry-conditioners-for-when-you-need-a-lift-me-up/)
-- [aveda dry remedy mask](https://hair.allwomenstalk.com/deep-moisturising-treatments-for-gorgeous-hair/)
 - [naturally curly hair tools](https://hair.allwomenstalk.com/helpful-tools-for-naturally-curly-hair/)
 - [7 Shampoos for Color-Treated Hair ...](https://allwomenstalk.com/7-shampoos-for-color-treated-hair/)
 - [7 Awesome Hair Products to Try ...](https://allwomenstalk.com/7-awesome-hair-products-to-try/)

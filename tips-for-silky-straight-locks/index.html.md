@@ -48,16 +48,16 @@ Top Photo Credit: [Shandi-lee](https://www.flickr.com/photos/shandilee/570502400
 
 ## Related Posts
 
+- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
-- [hat that doesn't mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
-- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
-- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
 - [interesting hair facts](https://hair.allwomenstalk.com/amazing-hair-facts-you-should-know/)
 - [celebrities with hair extensions before and after](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
-- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
-- [7 Fabulous Tips to Keep Your Hair Beautifully Heal...](https://hair.allwomenstalk.com/fabulous-tips-to-keep-your-hair-beautifully-healthy-between-cuts/)
-- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
 - [how to fix bad hair day](https://hair.allwomenstalk.com/quick-fixes-for-a-bad-hair-day/)
+- [does hairspray dry nails](https://hair.allwomenstalk.com/ways-to-use-hairspray/)
+- [close up of split ends](https://hair.allwomenstalk.com/easily-avoidable-ways-you-could-get-split-ends/)
+- [how to choose hair colour](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
+- [hat that doesn't mess up hair](https://hair.allwomenstalk.com/hair-tips-ways-to-avoid-hat-squished-hair/)
+- [hair care for african americans](https://hair.allwomenstalk.com/essential-african-american-hair-care-tips/)
 - [8 Tips for Curling Your Hair ...](https://hair.allwomenstalk.com/8-tips-for-curling-your-hair/)
 - [7 Ways to Give Body to Straight Hair ...](https://hair.allwomenstalk.com/ways-to-give-body-to-straight-hair/)
 

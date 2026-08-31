@@ -68,12 +68,12 @@ We’d love to hear (and so would interested readers) to hear from natural hair 
 
 ## Related Posts
 
-- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
 - [how to get rid of brassy hair home remedies](https://hair.allwomenstalk.com/try-these-diy-remedies-for-dandruff/)
+- [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
+- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
 - [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
 - [best products for extremely damaged hair](https://hair.allwomenstalk.com/great-products-for-super-dry-and-damaged-hair/)
 - [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
-- [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
 - [bad hair day tlc](https://hair.allwomenstalk.com/give-your-hair-tlc-with-these-shampoo-and-conditioner-duos/)
 - [fave4 curls and kisses](https://hair.allwomenstalk.com/these-underrated-hair-products-will-always-get-the-job-done/)
 - [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)

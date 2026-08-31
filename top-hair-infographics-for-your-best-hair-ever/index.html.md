@@ -93,15 +93,15 @@ These are some of my favorite hair infographics. Which is your favorite?
 ## Related Posts
 
 - [pearl hairstyles](https://hair.allwomenstalk.com/adorable-little-girl-hairstyles-your-daughter-will-love/)
-- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
-- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
-- [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
-- [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
-- [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
-- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
-- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
 - [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
+- [sequin dress hairstyles](https://hair.allwomenstalk.com/sexy-hairstyles-to-try-out-for-your-next-date-night/)
+- [long hair divas](https://hair.allwomenstalk.com/inspirational-natural-hair-divas/)
 - [extreme pompadour](https://hair.allwomenstalk.com/fierce-cuts-for-a-bold-natural-you/)
+- [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
+- [low bun wedding](https://wedding.allwomenstalk.com/wedding-hairstyles-for-girls-with-short-hair/)
+- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
+- [new wedding hairstyles](https://wedding.allwomenstalk.com/stunning-wedding-hairstyles-for-your-big-day/)
+- [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
 - [7 Tips for Fantastic Hair Everyday ...](https://hair.allwomenstalk.com/7-tips-for-fantastic-hair-everyday/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 

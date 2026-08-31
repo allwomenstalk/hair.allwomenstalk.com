@@ -80,16 +80,16 @@ Fierce haircuts range from classy and simple to edgy and sexy. No matter which s
 
 ## Related Posts
 
-- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
 - [haircuts good for heart shaped faces](https://hair.allwomenstalk.com/sweet-hairstyles-for-your-heart-shaped-face/)
-- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
 - [long bob hairstyles for square face](https://hair.allwomenstalk.com/hairstyles-to-show-off-your-square-face-beautifully/)
-- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
 - [good hairstyles for oval face](https://hair.allwomenstalk.com/hairstyles-to-enhance-your-lovely-oval-shaped-face/)
-- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
-- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
+- [black woman purple hair](https://hair.allwomenstalk.com/girls-rocking-pastel-hair/)
 - [middle part pulled back](https://hair.allwomenstalk.com/hairspo-photos-for-the-office/)
+- [braids wet hair](https://hair.allwomenstalk.com/styles-for-wet-hair/)
+- [shoulder length hair shaped around face](https://hair.allwomenstalk.com/flattering-hairstyles-for-round-faces/)
 - [long pony hairstyles](https://hair.allwomenstalk.com/puffy-ponytails-to-pep-up-your-style/)
+- [is wearing hair cuffs cultural appropriation](https://hair.allwomenstalk.com/gorgeous-hair-styles-for-lazy-girls-like-me/)
+- [diamond face eyebrow shape](https://hair.allwomenstalk.com/hairstyles-for-your-diamond-shape-face/)
 - [7 Hair Styling Tips for Every Day ...](https://hair.allwomenstalk.com/7-hair-styling-tips-for-every-day/)
 - [7 Quick Hair Makeover Tips ...](https://hair.allwomenstalk.com/quick-hair-makeover-tips/)
 

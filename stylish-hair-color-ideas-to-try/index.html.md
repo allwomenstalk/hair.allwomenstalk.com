@@ -56,16 +56,16 @@ Something about summer time always inspires me to try a new hair style or color.
 
 ## Related Posts
 
-- [romper hairstyles](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
-- [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
 - [short hairstyles me](https://hair.allwomenstalk.com/adorable-short-hairstyles-to-keep-you-cool-in-the-summer/)
-- [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
 - [side swept fishtail braid](https://hair.allwomenstalk.com/different-ways-to-braid-your-hair/)
-- [riche smoky bottomless](https://hair.allwomenstalk.com/trendy-styles-for-long-hair/)
-- [front cut hairstyle](https://hair.allwomenstalk.com/easy-breezy-summer-hairstyles/)
-- [fabulous hairstyles](https://hair.allwomenstalk.com/quick-fabulous-hairstyles-that-take-less-than-10-minutes/)
 - [easy updo wavy hair](https://hair.allwomenstalk.com/simple-and-stylish-updos-for-curly-hair/)
 - [how to do a slick ponytail](https://hair.allwomenstalk.com/ways-to-wear-a-ponytail-so-you-can-look-stylish-during-your-next-workout/)
+- [updos for the beach](https://hair.allwomenstalk.com/beautiful-beach-ready-hairstyles/)
+- [riche smoky bottomless](https://hair.allwomenstalk.com/trendy-styles-for-long-hair/)
+- [celebrity cornrows](https://beauty.allwomenstalk.com/awesome-celebrity-cornrow-looks-youll-love/)
+- [fabulous hairstyles](https://hair.allwomenstalk.com/quick-fabulous-hairstyles-that-take-less-than-10-minutes/)
+- [front cut hairstyle](https://hair.allwomenstalk.com/easy-breezy-summer-hairstyles/)
+- [romper hairstyles](https://hair.allwomenstalk.com/hairstyles-to-try-this-summer/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [8 Gorgeous Hair Colors to Think about ...](https://hair.allwomenstalk.com/gorgeous-hair-colors-to-think-about/)
 

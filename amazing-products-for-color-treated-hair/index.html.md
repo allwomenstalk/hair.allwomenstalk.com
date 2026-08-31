@@ -62,16 +62,16 @@ There are some really amazing **products for color treated hair** out there, but
 
 ## Related Posts
 
-- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
-- [how to get rid of dandruff natural ways](https://hair.allwomenstalk.com/natural-anti-dandruff-remedies/)
 - [amazon tigi hair products](https://hair.allwomenstalk.com/of-my-favorite-hairstyling-products/)
-- [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
-- [best natural hold hairspray](https://hair.allwomenstalk.com/best-hairsprays-that-i-love/)
-- [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
-- [how to make rosemary water for hair](https://hair.allwomenstalk.com/recipes-for-homemade-hair-growth-treatments/)
+- [nexxus emergency reconstructor](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
 - [scalp mask for oily hair](https://hair.allwomenstalk.com/best-oily-hair-masks/)
+- [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
+- [hair salon secrets](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [how to grow african american hair fast](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
 - [organic hair products](https://hair.allwomenstalk.com/organic-hair-products/)
+- [best natural hold hairspray](https://hair.allwomenstalk.com/best-hairsprays-that-i-love/)
+- [how to make rosemary water for hair](https://hair.allwomenstalk.com/recipes-for-homemade-hair-growth-treatments/)
+- [how to get rid of dandruff natural ways](https://hair.allwomenstalk.com/natural-anti-dandruff-remedies/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 

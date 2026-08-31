@@ -86,15 +86,15 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
-- [can you make fine hair thicker](https://hair.allwomenstalk.com/tips-to-make-thin-hair-thicker/)
-- [best haircut for boys](https://hair.allwomenstalk.com/neat-tricks-for-dealing-with-a-bad-haircut/)
-- [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
-- [- how to choose the right brush](https://hair.allwomenstalk.com/tips-for-choosing-the-right-hair-brush/)
 - [light perm](https://hair.allwomenstalk.com/tips-for-maintaining-a-curly-perm/)
+- [can you make fine hair thicker](https://hair.allwomenstalk.com/tips-to-make-thin-hair-thicker/)
+- [bad hair day tips](https://hair.allwomenstalk.com/simple-tricks-to-avoid-bad-hair-days/)
 - [does being short make you look younger](https://hair.allwomenstalk.com/hair-tweaks-to-make-you-look-younger/)
-- [warm compress for ingrown hair](https://beauty.allwomenstalk.com/useful-tips-for-ingrown-hairs/)
 - [fall hair tips](https://hair.allwomenstalk.com/fabulous-hair-care-tips-for-autumn/)
+- [- how to choose the right brush](https://hair.allwomenstalk.com/tips-for-choosing-the-right-hair-brush/)
+- [tips for growing out fringe](https://hair.allwomenstalk.com/tips-for-growing-out-your-bangs/)
+- [best haircut for boys](https://hair.allwomenstalk.com/neat-tricks-for-dealing-with-a-bad-haircut/)
+- [warm compress for ingrown hair](https://beauty.allwomenstalk.com/useful-tips-for-ingrown-hairs/)
 - [how to clean hair tools](https://hair.allwomenstalk.com/tricks-on-properly-cleaning-your-hair-tools/)
 - [10 Tips on How to Grow Long Hair ...](https://allwomenstalk.com/10-tips-on-how-to-grow-long-hair/)
 - [10 Tips for Growing out Your Hair ...](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair/)

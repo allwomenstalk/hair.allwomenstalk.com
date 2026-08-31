@@ -144,16 +144,16 @@ Instructions here [familyhandyman.com](https://www.familyhandyman.com/project/di
 
 ## Related Posts
 
-- [why does my hair look so unhealthy](https://hair.allwomenstalk.com/how-to-avoid-unhealthy-hair/)
-- [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
 - [panel hair coloring technique](https://hair.allwomenstalk.com/how-to-create-smokestack-hair/)
-- [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
-- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
-- [dandruff after cutting hair short](https://hair.allwomenstalk.com/why-you-wont-regret-cutting-your-hair-short/)
-- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
-- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
-- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
 - [how to make dyed hair last longer](https://hair.allwomenstalk.com/how-to-help-your-dyed-hair-color-stay-in-longer/)
+- [greasy hair updos](https://beauty.allwomenstalk.com/lifesaving-hair-tutorials-for-girls-with-greasy-hair/)
+- [hair tool organizer cabinet](https://hair.allwomenstalk.com/you-must-see-these-storage-hacks-for-all-your-hair-tools/)
+- [quick fix hair](https://hair.allwomenstalk.com/essentials-for-a-quick-hair-fix/)
+- [brunette beauties](https://hair.allwomenstalk.com/unique-hair-tips-meant-for-brunette-beauties/)
+- [dandruff after cutting hair short](https://hair.allwomenstalk.com/why-you-wont-regret-cutting-your-hair-short/)
+- [is it bad to flat iron your hair everyday](https://hair.allwomenstalk.com/how-to-avoid-damaging-your-hair-when-using-a-flat-iron/)
+- [why does my hair look so unhealthy](https://hair.allwomenstalk.com/how-to-avoid-unhealthy-hair/)
+- [unhealthy maria](https://hair.allwomenstalk.com/unhealthy-hair-habits-you-cant-continue/)
 - [7 Tips on Creating Romantic Curls ...](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [14 Tips for Curling Hair ...](https://allwomenstalk.com/14-tips-for-curling-hair/)
 

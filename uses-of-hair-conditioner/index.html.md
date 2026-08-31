@@ -50,16 +50,16 @@ These are all the nifty uses I have come across for hair conditioner, but I’m 
 
 ## Related Posts
 
-- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
 - [hair tips from professionals](https://hair.allwomenstalk.com/secrets-of-healthy-hair-from-the-professionals-themselves/)
-- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
 - [sexy healthy hair](https://hair.allwomenstalk.com/diy-healthy-hair-recipes/)
-- [drugstore hair products](https://hair.allwomenstalk.com/drugstore-hair-care-products-for-hot-hair-on-a-budget/)
-- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
-- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
+- [elegant hair brushes](https://hair.allwomenstalk.com/top-notch-hair-brushes-that-will-blow-you-away/)
 - [how to get rid of greasy hair overnight](https://hair.allwomenstalk.com/quick-fixes-for-greasy-hair-that-work-like-a-charm/)
 - [best shampoo without sulfates and parabens](https://hair.allwomenstalk.com/best-bargain-shampoos-without-sulfates-that-are-fantastic-for-your-hair/)
-- [elegant hair brushes](https://hair.allwomenstalk.com/top-notch-hair-brushes-that-will-blow-you-away/)
+- [layers long hair](https://hair.allwomenstalk.com/essential-tools-and-products-for-layered-hair/)
+- [circle of friends hair care](https://hair.allwomenstalk.com/awesome-hair-care-products-for-kids-that-theyre-sure-to-love/)
+- [7 key nutrients](https://hair.allwomenstalk.com/key-nutrients-for-your-hair-that-you-simply-must-take/)
+- [kenra hair perfume](https://hair.allwomenstalk.com/great-smelling-hair-products-that-actually-work/)
+- [drugstore hair products](https://hair.allwomenstalk.com/drugstore-hair-care-products-for-hot-hair-on-a-budget/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

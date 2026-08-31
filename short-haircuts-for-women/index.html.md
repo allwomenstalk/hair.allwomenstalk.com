@@ -104,16 +104,16 @@ So are you ready to chop off those longer locks and go with one of these sexy sh
 
 ## Related Posts
 
-- [hair colors for christmas](https://hair.allwomenstalk.com/winter-hair-colors-that-will-make-heads-turn/)
-- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
-- [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
-- [snap the whip game](https://hair.allwomenstalk.com/easy-everyday-hairstyles/)
 - [pin up doll ashley marie](https://hair.allwomenstalk.com/fabulous-pinup-hair-tutorials/)
 - [haircuts for long hair women](https://hair.allwomenstalk.com/layered-haircuts-for-every-face-shape/)
-- [spiral braid](https://hair.allwomenstalk.com/braid-styles-to-master/)
 - [tie dye hair color](https://hair.allwomenstalk.com/summer-hair-trends/)
-- [top knot hairstyle female](https://hair.allwomenstalk.com/what-your-hairstyle-says-about-you/)
+- [hair colors for christmas](https://hair.allwomenstalk.com/winter-hair-colors-that-will-make-heads-turn/)
 - [round face hairstyles black female](https://hair.allwomenstalk.com/hairstyles-for-round-faces/)
+- [spiral braid](https://hair.allwomenstalk.com/braid-styles-to-master/)
+- [paris stylo smoky bottomless java](https://hair.allwomenstalk.com/biggest-fall-hair-trends/)
+- [game of thrones hair](https://hair.allwomenstalk.com/game-of-thrones-inspired-hair-video-tutorials/)
+- [top knot hairstyle female](https://hair.allwomenstalk.com/what-your-hairstyle-says-about-you/)
+- [snap the whip game](https://hair.allwomenstalk.com/easy-everyday-hairstyles/)
 - [7 Trendiest Short Haircuts ...](https://allwomenstalk.com/7-trendiest-short-haircuts/)
 - [7 Elegant Hairstyles for Short Hair ...](https://hair.allwomenstalk.com/elegant-hairstyles-for-short-hair/)
 

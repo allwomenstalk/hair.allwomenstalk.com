@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/25523108)
 
 ## Related Posts
 
-- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
-- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
-- [beachy braids](https://hair.allwomenstalk.com/cute-versions-of-a-beachy-wave-style/)
-- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
-- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
 - [youtube hair braiding](https://hair.allwomenstalk.com/best-braid-tutorials-on-youtube/)
-- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
-- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
+- [above eyebrow bangs](https://hair.allwomenstalk.com/kinds-of-bangs-and-ways-to-rock-them/)
 - [celebrity haircuts male](https://hair.allwomenstalk.com/best-hollywood-inspired-haircuts-for-men/)
+- [how to do mohawk](https://hair.allwomenstalk.com/fantastic-tutorials-for-a-perfectly-chic-faux-mohawk/)
 - [sexiest hairstyles for long hair](https://hair.allwomenstalk.com/ideas-for-long-sexy-hair/)
+- [hair style with beats](https://hair.allwomenstalk.com/hairstyles-to-beat-the-heat/)
+- [medium length braided wedding hairstyles](https://hair.allwomenstalk.com/perfect-braided-wedding-hairstyles/)
+- [hairstyles 2012](https://hair.allwomenstalk.com/fantastic-celebrity-hairstyles-to-steal-in-fall/)
+- [hair styles for ladies over 40](https://hair.allwomenstalk.com/gorgeous-hairstyles-for-women-over-40/)
+- [beachy braids](https://hair.allwomenstalk.com/cute-versions-of-a-beachy-wave-style/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 

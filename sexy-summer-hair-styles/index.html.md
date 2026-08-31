@@ -42,16 +42,16 @@ There are a lot of different things you can do with your hair this summer, these
 
 ## Related Posts
 
-- [clicknfunny](https://allwomenstalk.com/summer-clothes-from-clicknfunny-shop-2/)
-- [frilly frocks](https://fashion.allwomenstalk.com/frilly-frocks-for-summer/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/fabulous-sun-protection-hats/)
-- [9 Adorable Hats for Summer 2011 ...](https://fashion.allwomenstalk.com/adorable-hats-for-summer/)
 - [8 Essentials for Seaside Style This Summer ...](https://fashion.allwomenstalk.com/essentials-for-seaside-style/)
-- [what to wear to work in the summer](https://fashion.allwomenstalk.com/common-summer-work-wear-mistakes-to-avoid/)
-- [7 Reasons to Wear What You Want in Summer ...](https://fashion.allwomenstalk.com/reasons-to-wear-what-you-want-in-summer/)
-- [riche le stylo smoky shadow unforgettable](https://fashion.allwomenstalk.com/8-springsummer-blazers/)
 - [8 Excellent Beach Cover-Ups ...](https://swimwear.allwomenstalk.com/excellent-beach-cover-ups/)
+- [what to wear to work in the summer](https://fashion.allwomenstalk.com/common-summer-work-wear-mistakes-to-avoid/)
 - [i love the heat](https://fashion.allwomenstalk.com/retro-swimsuits-to-heat-up-your-summer/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/fabulous-sun-protection-hats/)
+- [7 Reasons to Wear What You Want in Summer ...](https://fashion.allwomenstalk.com/reasons-to-wear-what-you-want-in-summer/)
+- [frilly frocks](https://fashion.allwomenstalk.com/frilly-frocks-for-summer/)
+- [riche le stylo smoky shadow unforgettable](https://fashion.allwomenstalk.com/8-springsummer-blazers/)
+- [9 Adorable Hats for Summer 2011 ...](https://fashion.allwomenstalk.com/adorable-hats-for-summer/)
+- [clicknfunny](https://allwomenstalk.com/summer-clothes-from-clicknfunny-shop-2/)
 - [7 Simple Accessories for Summer Hair ...](https://hair.allwomenstalk.com/7-simple-accessories-for-summer-hair/)
 - [7 Sassy Summer Hairstyles ...](https://hair.allwomenstalk.com/sassy-summer-hairstyles/)
 

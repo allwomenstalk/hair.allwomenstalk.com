@@ -34,16 +34,16 @@ Awesome, right?
 
 ## Related Posts
 
-- [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
-- [braid envy](https://hair.allwomenstalk.com/these-photos-are-bound-to-give-you-major-braid-envy/)
-- [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
-- [olivia palermo teeth](https://hair.allwomenstalk.com/steal-these-celeb-hair-stylist-secrets-to-look-your-sexiest/)
 - [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
 - [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
-- [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
-- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
-- [french vs dutch plait](https://hair.allwomenstalk.com/adorable-ways-to-wear-a-dutch-braid/)
 - [beachside hair](https://hair.allwomenstalk.com/its-not-too-early-to-check-out-this-beach-hair-inspiration/)
+- [hairstyles with bangs curly hair](https://hair.allwomenstalk.com/how-to-style-your-curly-bangs-and-look-like-a-bombshell/)
+- [french vs dutch plait](https://hair.allwomenstalk.com/adorable-ways-to-wear-a-dutch-braid/)
+- [olivia palermo teeth](https://hair.allwomenstalk.com/steal-these-celeb-hair-stylist-secrets-to-look-your-sexiest/)
+- [braid envy](https://hair.allwomenstalk.com/these-photos-are-bound-to-give-you-major-braid-envy/)
+- [epic cuts](https://hair.allwomenstalk.com/epic-pixie-cuts-every-woman-will-want-to-wear/)
+- [cool hairstyles](https://hair.allwomenstalk.com/youre-going-to-love-these-casual-cool-girl-hairstyles/)
+- [romantic hairstyles](https://hair.allwomenstalk.com/romantic-hairstyles-that-are-adorable-and-effortless/)
 - [7 Tips on Creating Romantic Curls ...](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [7 YouTube Tutorials on Curls ...](https://hair.allwomenstalk.com/youtube-tutorials-on-curls/)
 

@@ -42,13 +42,13 @@ If you want your neighbors to think you look fashionable during your jogs around
 
 ## Related Posts
 
+- [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
+- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
+- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
 - [tousle dry](https://hair.allwomenstalk.com/5-minute-dos-that-only-need-dry-shampoo/)
 - [lovely braids](https://hair.allwomenstalk.com/date-night-braids-thatll-keep-his-eyes-on-you/)
-- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
-- [styles for pixie cuts](https://hair.allwomenstalk.com/hair-tutorials-for-styling-your-pixie-cut/)
-- [faux side shave](https://hair.allwomenstalk.com/look-like-a-new-woman-with-these-faux-hairstyles/)
-- [two toned hair color](https://hair.allwomenstalk.com/two-toned-hair-color-looks-youd-die-to-try/)
 - [straight hair makeup look](https://hair.allwomenstalk.com/style-tips-for-your-super-straight-hair/)
+- [easy occasion hairstyles](https://hair.allwomenstalk.com/elaborate-hairstyles-fit-for-special-occasions/)
 - [fall fashion scarf](https://hair.allwomenstalk.com/fall-hairstyles-you-can-wear-with-a-scarf/)
 - [how to make my face look thinner](https://hair.allwomenstalk.com/hairstyles-that-can-actually-make-you-look-thinner/)
 - [fun ways to style a bob](https://hair.allwomenstalk.com/hottest-ways-to-style-a-bob/)

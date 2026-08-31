@@ -42,14 +42,14 @@ Don’t spend lots of money on expensive masks, serums and deep conditioning tre
 
 ## Related Posts
 
+- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
 - [homemade hair styling products](https://hair.allwomenstalk.com/homemade-hair-products-for-luscious-locks/)
 - [redken smooth lock](https://hair.allwomenstalk.com/here-are-the-high-end-hair-products-worth-the-splurge/)
-- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
-- [food for your hair](https://food.allwomenstalk.com/foods-that-fight-frizzy-hair/)
-- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
-- [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
 - [shinier hair](https://hair.allwomenstalk.com/cheap-tips-for-healthier-shinier-hair/)
+- [naturally curly hair peanuts](https://hair.allwomenstalk.com/nut-free-products-for-curly-hair/)
+- [pros and cons of reverse hair washing](https://hair.allwomenstalk.com/reasons-and-tips-for-reverse-shampooing-your-curly-hair/)
 - [hair care infographic](https://hair.allwomenstalk.com/transform-your-hair-with-these-amazing-hair-care-infographics/)
+- [homemade hair mask for volume](https://hair.allwomenstalk.com/must-use-cheap-diy-hair-masks-for-winter/)
 - [curl junkie daily fix](https://hair.allwomenstalk.com/great-products-for-tightly-curled-hair/)
 - [plancha jilbere de paris precio](https://hair.allwomenstalk.com/high-end-hair-tools-worth-the-price/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)

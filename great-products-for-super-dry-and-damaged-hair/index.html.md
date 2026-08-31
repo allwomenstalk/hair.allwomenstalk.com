@@ -98,16 +98,16 @@ It will both soften and strengthen your dry, damaged hair simultaneously due to 
 
 ## Related Posts
 
-- [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
-- [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
-- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
-- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
-- [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
-- [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
-- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
-- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
-- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
 - [badly damaged hair](https://hair.allwomenstalk.com/perfect-masks-for-girls-with-damaged-hair/)
+- [redheads moisturizing conditioner](https://hair.allwomenstalk.com/redheads-will-love-these-conditioners/)
+- [fried hair from heat](https://hair.allwomenstalk.com/essential-products-girls-with-heat-fried-hair-will-love/)
+- [hair bomb salon](https://hair.allwomenstalk.com/superb-diy-treatments-for-natural-hair-youll-love/)
+- [greasy hair hairstyles](https://hair.allwomenstalk.com/fixes-that-are-a-godsend-for-girls-with-greasy-hair/)
+- [coconut oil hair mask at home](https://hair.allwomenstalk.com/diy-hair-masks-for-dry-hair-using-superpowered-coconut-oil/)
+- [hair masks for curly hair at home](https://hair.allwomenstalk.com/diy-masks-for-curly-haired-ladies/)
+- [tips for thinning hair female](https://hair.allwomenstalk.com/haircare-tips-for-girls-with-super-thin-hair/)
+- [best product for frizzy hair in humidity](https://hair.allwomenstalk.com/girls-with-frizzy-hair-need-these-anti-humidity-products/)
+- [hair mask for blonde damaged hair](https://hair.allwomenstalk.com/diy-hair-masks-for-blonde-beauties/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Amazing Products for Color Treated Hair ...](https://hair.allwomenstalk.com/amazing-products-for-color-treated-hair/)
 

@@ -42,16 +42,16 @@ I know it seems weird to put milk, sugar, yogurt and papaya on your hair, but th
 
 ## Related Posts
 
-- [broken hair brush](https://hair.allwomenstalk.com/tips-for-damaged-hair/)
+- [how long should i let my hair breathe](https://hair.allwomenstalk.com/ways-to-breathe-new-life-into-damaged-hair/)
 - [how to avoid nicks shaving](https://skincare.allwomenstalk.com/top-tips-to-avoid-shaving-nicks/)
+- [broken hair brush](https://hair.allwomenstalk.com/tips-for-damaged-hair/)
+- [زيت ماء الورد للمنطقه الحساسة](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair/)
+- [how to keep color in hair longer](https://hair.allwomenstalk.com/ways-to-make-your-hair-color-last-longer/)
 - [how to remove hard water from hair naturally](https://hair.allwomenstalk.com/ways-to-deal-with-hard-water-on-your-hair/)
 - [how to curl hair with paper towels](https://hair.allwomenstalk.com/must-know-tips-for-women-with-curly-hair/)
-- [how to keep color in hair longer](https://hair.allwomenstalk.com/ways-to-make-your-hair-color-last-longer/)
-- [emitaz ex boyfriend](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-2/)
-- [زيت ماء الورد للمنطقه الحساسة](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair/)
-- [how long should i let my hair breathe](https://hair.allwomenstalk.com/ways-to-breathe-new-life-into-damaged-hair/)
 - [hair facts](https://hair.allwomenstalk.com/facts-about-your-hair/)
 - [what to do with your hair while growing it out](https://hair.allwomenstalk.com/tips-for-growing-out-your-hair-2/)
+- [emitaz ex boyfriend](https://hair.allwomenstalk.com/ways-to-fight-frizzy-hair-2/)
 - [7 Ways to Make Your Hair Look Healthier ...](https://hair.allwomenstalk.com/7-ways-to-make-your-hair-look-healthier/)
 - [8 Tips to Prevent Split Ends ...](https://hair.allwomenstalk.com/8-tips-to-prevent-split-ends/)
 

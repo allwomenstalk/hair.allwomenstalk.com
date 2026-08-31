@@ -66,16 +66,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/7153943)
 
 ## Related Posts
 
-- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
 - [hair care youtube](https://hair.allwomenstalk.com/best-youtube-channels-for-hair/)
-- [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
-- [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
-- [sage grey hair before after](https://hair.allwomenstalk.com/natural-recipes-for-restoring-the-color-of-graying-hair/)
-- [living proof thinning hair](https://hair.allwomenstalk.com/very-best-products-for-thin-hair/)
 - [facts about brown hair and blue eyes](https://hair.allwomenstalk.com/facts-you-should-know-about-keratin-treatments-for-your-hair/)
 - [nourishing oil for skin](https://beauty.allwomenstalk.com/nourishing-oils-for-your-skin-and-hair/)
 - [pin staright hair](https://hair.allwomenstalk.com/best-products-for-pin-straight-hair/)
+- [deep conditioner for damaged hair](https://hair.allwomenstalk.com/fantastic-deep-hair-conditioners-to-check-out/)
+- [sage grey hair before after](https://hair.allwomenstalk.com/natural-recipes-for-restoring-the-color-of-graying-hair/)
+- [blonde enhancing amika shampoo](https://hair.allwomenstalk.com/best-shampoos-for-blonde-hair/)
+- [homemade hot oil treatment for natural hair](https://hair.allwomenstalk.com/tutorials-for-natural-hot-oil-treatments/)
 - [temporary hair products](https://hair.allwomenstalk.com/products-to-help-you-enjoy-a-cool-yet-temporary-hair-color/)
+- [living proof thinning hair](https://hair.allwomenstalk.com/very-best-products-for-thin-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [8 Organic Hair Products ...](https://hair.allwomenstalk.com/organic-hair-products/)
 

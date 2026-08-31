@@ -56,16 +56,16 @@ Keep in mind when doing these techniques that not everyone's hair curls the same
 
 ## Related Posts
 
-- [bangs to hide forehead wrinkles](https://hair.allwomenstalk.com/things-to-think-about-before-cutting-your-bangs/)
-- [how to hide grey roots](https://hair.allwomenstalk.com/ways-to-hide-roots-and-greys-between-dye-jobs/)
-- [the who cut my hair](https://hair.allwomenstalk.com/reasons-to-cut-your-hair-for-summer/)
-- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
-- [why does second day hair look better](https://hair.allwomenstalk.com/reasons-why-dirty-hair-is-better/)
 - [drastic hair change](https://hair.allwomenstalk.com/tips-to-remember-before-changing-your-hair-drastically/)
 - [curly hair boy kids](https://parenting.allwomenstalk.com/tips-for-caring-for-curly-haired-kids/)
+- [why does second day hair look better](https://hair.allwomenstalk.com/reasons-why-dirty-hair-is-better/)
 - [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
-- [hair changing texture](https://hair.allwomenstalk.com/reasons-why-hair-texture-changes/)
+- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
+- [bangs to hide forehead wrinkles](https://hair.allwomenstalk.com/things-to-think-about-before-cutting-your-bangs/)
+- [how to hide grey roots](https://hair.allwomenstalk.com/ways-to-hide-roots-and-greys-between-dye-jobs/)
 - [10 hairstyles that knock 10 years off your age](https://hair.allwomenstalk.com/styles-to-keep-your-hair-off-your-face-in-the-heat/)
+- [hair changing texture](https://hair.allwomenstalk.com/reasons-why-hair-texture-changes/)
+- [the who cut my hair](https://hair.allwomenstalk.com/reasons-to-cut-your-hair-for-summer/)
 - [7 Tips on Creating Romantic Curls ...](https://hair.allwomenstalk.com/tips-on-creating-romantic-curls/)
 - [8 Ways to Care for Your Curls ...](https://hair.allwomenstalk.com/ways-to-care-for-your-curls/)
 

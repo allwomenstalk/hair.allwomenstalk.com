@@ -42,16 +42,16 @@ Pigtails aren't just for little girls. You can wear them now, or ten years from 
 
 ## Related Posts
 
-- [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
 - [cute braided bun](https://hair.allwomenstalk.com/braided-buns-thatll-create-a-balance-between-cute-and-sexy/)
-- [caribbean curls ig](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
 - [shaved side curly hair](https://hair.allwomenstalk.com/these-haircuts-will-make-you-look-fierce-af/)
-- [spiral braids hairstyles](https://hair.allwomenstalk.com/sexy-braids-for-everyone-with-ethnic-hair/)
 - [headband outfits](https://hair.allwomenstalk.com/amazing-winter-hairstyles-to-wear-with-a-headband/)
-- [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
+- [spiral braids hairstyles](https://hair.allwomenstalk.com/sexy-braids-for-everyone-with-ethnic-hair/)
+- [oil slick wig](https://hair.allwomenstalk.com/photos-thatll-make-you-want-to-try-the-oil-slick-hair-trend/)
 - [paris riche le stylo and brilliant](https://hair.allwomenstalk.com/hair-color-combos-for-beautiful-black-women/)
-- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
+- [womens bowl cut](https://hair.allwomenstalk.com/geometric-hairstyles-that-look-gorgeous/)
 - [moon bangs](https://hair.allwomenstalk.com/and-this-is-why-bangs-are-the-biggest-hair-trend-this-spring/)
+- [beach waves no heat](https://hair.allwomenstalk.com/youll-love-this-overnight-no-heat-curls-video/)
+- [caribbean curls ig](https://hair.allwomenstalk.com/instagram-queens-thatll-make-you-embrace-your-curly-hair/)
 - [7 Tips for a Beautiful Braid ...](https://hair.allwomenstalk.com/tips-for-a-beautiful-braid/)
 - [7 Gorgeous Ways to Wear Your Hair up ...](https://hair.allwomenstalk.com/gorgeous-ways-to-wear-your-hair-up/)
 

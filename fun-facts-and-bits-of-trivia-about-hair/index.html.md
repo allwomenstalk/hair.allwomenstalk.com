@@ -90,16 +90,16 @@ How many of these pieces of hair trivia did you already know?
 
 ## Related Posts
 
-- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
-- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
-- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
-- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
-- [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
-- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
-- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
 - [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
-- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
 - [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
+- [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
+- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
+- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
+- [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
+- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
+- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)
 
