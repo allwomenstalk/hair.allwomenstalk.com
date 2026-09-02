@@ -3,7 +3,7 @@ title: "Care Tips for Short Permed Hair ..."
 description: "TWO TYPES of PERM; WAIT before YOU WASH; AVOID CHLORINATED WATER; DEEP CONDITION and USE SPECIAL SHAMPOO; More ..."
 url: "https://hair.allwomenstalk.com/care-tips-for-short-permed-hair/"
 category: "hair"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # Care Tips for Short Permed Hair ...
@@ -30,15 +30,15 @@ Getting a wavy perm for short hair can help you to get a brand new look. Being a
 
 ## Related Posts
 
-- [highlighting my hair at home](https://hair.allwomenstalk.com/reasons-to-not-try-highlighting-your-hair-at-home/)
 - [what is 2c hair texture](https://hair.allwomenstalk.com/care-tips-for-type-2c-hair/)
 - [black hair personality](https://hair.allwomenstalk.com/what-your-hair-color-says-about-your-personality/)
-- [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
+- [give your hair more volume](https://hair.allwomenstalk.com/ways-to-add-more-volume-to-your-hair/)
 - [how to choose the right hair color](https://hair.allwomenstalk.com/how-to-choose-the-right-hair-color/)
 - [how to lighten hair](https://hair.allwomenstalk.com/how-to-lighten-your-hair-at-home/)
-- [give your hair more volume](https://hair.allwomenstalk.com/ways-to-add-more-volume-to-your-hair/)
-- [how do you trim bangs](https://hair.allwomenstalk.com/how-to-trim-your-own-bangs/)
 - [corte africano](https://hair.allwomenstalk.com/tips-for-how-to-wake-up-with-perfect-hair/)
+- [how do you trim bangs](https://hair.allwomenstalk.com/how-to-trim-your-own-bangs/)
+- [highlighting my hair at home](https://hair.allwomenstalk.com/reasons-to-not-try-highlighting-your-hair-at-home/)
+- [curls queen](https://hair.allwomenstalk.com/ways-for-curly-girls-to-coddle-their-curls/)
 - [silky hair meaning](https://hair.allwomenstalk.com/how-to-get-super-soft-silky-hair/)
 - [Summer Hair Care Tips for Dry Hair ...](https://allwomenstalk.com/summer-hair-care-tips-for-dry-hair/)
 - [Relaxer Hair Care Tips from the Pro ...](https://allwomenstalk.com/relaxer-hair-care-tips-from-the-pro/)
