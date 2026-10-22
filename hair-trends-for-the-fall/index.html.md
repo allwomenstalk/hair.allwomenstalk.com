@@ -3,7 +3,7 @@ title: "8 Hair Trends for the Fall 2011 ..."
 description: "Messy Braid; Hair Parted on the Center; Ponytail; Bouncy Curls/Waves; Messy Buns; More ..."
 url: "https://hair.allwomenstalk.com/hair-trends-for-the-fall/"
 category: "hair"
-last_updated: "2026-09-28"
+last_updated: "2026-10-22"
 ---
 
 # 8 Hair Trends for the Fall 2011 ...
@@ -62,15 +62,15 @@ Top Photo Credit: Rafael Cavalcante_
 
 ## Related Posts
 
-- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
-- [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
-- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
-- [prada 2011 collection](https://fashion.allwomenstalk.com/hot-new-items-from-the-prada-cruise-collection/)
-- [8 Hot Trends for the Spring 2011 ...](https://fashion.allwomenstalk.com/hot-trends-for-the-spring/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/accessories-for-spring/)
 - [Spring Fashion Trend: Beige Leather ...](https://fashion.allwomenstalk.com/spring-fashion-trend-beige-leather/)
 - [fau paux](https://fashion.allwomenstalk.com/hot-fall-fashion-trend-for-fall/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/accessories-for-spring/)
+- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
+- [prada 2011 collection](https://fashion.allwomenstalk.com/hot-new-items-from-the-prada-cruise-collection/)
+- [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
+- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
 - [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
+- [8 Hot Trends for the Spring 2011 ...](https://fashion.allwomenstalk.com/hot-trends-for-the-spring/)
 - [Beach Trends- Nautical ...](https://allwomenstalk.com/beach-trends-nautical/)
 - [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [6 Hottest Hairstyle Trends for 2010 ...](https://allwomenstalk.com/hot-new-hair-style-trends-for/)

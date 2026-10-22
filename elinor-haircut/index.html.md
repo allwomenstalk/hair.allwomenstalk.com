@@ -3,7 +3,7 @@ title: "The Elinor Haircut: Curtain Bangs and Lived-In Waves"
 description: "What the Elinor haircut looks like, how to discuss curtain bangs with your stylist, and a heatless way to get loose waves."
 url: "https://hair.allwomenstalk.com/elinor-haircut/"
 category: "hair"
-last_updated: "2026-10-12"
+last_updated: "2026-10-22"
 ---
 
 # The Elinor Haircut: Curtain Bangs and Lived\-In Waves
