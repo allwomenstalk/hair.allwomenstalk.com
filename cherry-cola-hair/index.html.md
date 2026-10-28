@@ -8,7 +8,11 @@ last_updated: "2026-10-28"
 
 # What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained
 
-Cherry cola hair is a deep brunette with cool cherry-red or burgundy undertones. It may look mostly brown indoors and glow red in daylight, or read as a richer dark red all over. For many dark-haired people, a colorist can create the effect without bleach. The result still depends on your starting shade and color history.
+Cherry cola hair is a deep brunette with cool cherry-red or burgundy undertones. It may look mostly brown indoors and glow red in daylight, or read as a richer dark red all over. For many dark-haired people, a colorist can create the effect without bleach. Your starting shade and color history still decide how visible that red will be, so the photo you bring to a salon may call for a different process than the one your friend needed.
+
+The name is appealing, but it is not a precise formula. Before you choose a shade, see [how cherry cola compares with burgundy and auburn](#cherry-cola-comparison), then consider [what your current hair color can realistically do without bleach](#cherry-cola-dark-hair). A cool red reflection on untouched dark brown hair is a different goal from a bright red result over old permanent dye.
+
+That distinction matters whether you book a colorist or open a box at home. We walk through [the lower-commitment and permanent-color choices, including dye safety](#cherry-cola-at-home), then the [care that keeps red from fading](#cherry-cola-fade-care). There is also an [exit plan](#cherry-cola-exit-plan) to think about before you fall in love with the first glossy photo.
 
 ## Cherry cola, burgundy, and auburn: what's the difference?
 
