@@ -3,7 +3,7 @@ title: "What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained"
 description: "A practical guide to dark cherry brunette hair, salon versus home color, FDA dye safety, and a fade-care routine."
 url: "https://hair.allwomenstalk.com/cherry-cola-hair/"
 category: "hair"
-last_updated: "2026-10-28"
+last_updated: "2026-10-29"
 ---
 
 # What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained
