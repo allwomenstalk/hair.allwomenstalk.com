@@ -50,6 +50,10 @@ A colorist may use [balayage](https://hair.allwomenstalk.com/proof-that-balayage
 
 Prefer less warmth? Ask for beige or neutral pieces and show an example in daylight. A cool result may need different maintenance than a golden one. Our [hair-color choosing guide](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/) can help you collect ideas, but your colorist should judge the final tone against your starting hair.
 
+![Two bronde hair examples on coily and straight textures](https://img.allw.mn/uploads/bronde-hair-inline-1793380179595.jpg)
+
+_Two bronde hair examples on coily and straight textures._
+
 ## Going from blonde to bronde
 
 If your hair has been lightened, going bronde often involves adding depth and tone rather than lifting it further. McMillan says darker color may use glosses or very low-volume developer instead of the stronger processing used to bleach hair. That can make the change gentler than another round of lightening, but no color service is damage-free. Previously bleached ends can be porous and take color unevenly, so ask for a strand test and a plan tailored to your hair.
