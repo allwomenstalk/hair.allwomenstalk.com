@@ -3,7 +3,7 @@ title: "What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained"
 description: "A practical guide to dark cherry brunette hair, salon versus home color, FDA dye safety, and a fade-care routine."
 url: "https://hair.allwomenstalk.com/cherry-cola-hair/"
 category: "hair"
-last_updated: "2026-10-29"
+last_updated: "2026-11-07"
 ---
 
 # What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained
@@ -71,6 +71,8 @@ Wash less often, use color-safe products, limit heat, and ask about a matching g
 ### Is cherry cola hard to remove?
 
 Deep red can be stubborn. Discuss the eventual change back to brown or another color before your appointment.
+
+For a deeper brunette direction with subtle golden warmth, compare our [espresso brown hair guide](https://hair.allwomenstalk.com/espresso-brown-hair/).
 
 ## Site Information
 
