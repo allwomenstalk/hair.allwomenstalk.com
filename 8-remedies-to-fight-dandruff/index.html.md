@@ -3,7 +3,7 @@ title: "Flaky Scalp? Dandruff vs Dry Scalp, Seb Derm and Psoriasis"
 description: "How to compare common causes of scalp flakes, use dandruff shampoo by hair texture, avoid irritating habits and know when to see a dermatologist."
 url: "https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/"
 category: "hair"
-last_updated: "2026-10-29"
+last_updated: "2026-11-10"
 ---
 
 # Flaky Scalp? Dandruff vs Dry Scalp, Seb Derm and Psoriasis
@@ -89,14 +89,14 @@ _Editorial review pending: a board-certified dermatologist should check the comp
 
 - [how to get rid of dandruff natural ways](https://hair.allwomenstalk.com/natural-anti-dandruff-remedies/)
 - [organic hair products](https://hair.allwomenstalk.com/organic-hair-products/)
-- [how to make rosemary water for hair](https://hair.allwomenstalk.com/recipes-for-homemade-hair-growth-treatments/)
-- [best natural hold hairspray](https://hair.allwomenstalk.com/best-hairsprays-that-i-love/)
-- [loreal riche le stylo smoky shadow emerald conques...](https://hair.allwomenstalk.com/must-have-hair-products-for-winter-hair/)
-- [hair straighteners products](https://hair.allwomenstalk.com/best-hair-straighteners-to-invest-in/)
 - [clairol shine happy](https://allwomenstalk.com/review-shine-happy-from-clairol/)
+- [how to make rosemary water for hair](https://hair.allwomenstalk.com/recipes-for-homemade-hair-growth-treatments/)
 - [abba shampoo reviews](https://allwomenstalk.com/review-abba-shampoo/)
+- [best natural hold hairspray](https://hair.allwomenstalk.com/best-hairsprays-that-i-love/)
+- [hair straighteners products](https://hair.allwomenstalk.com/best-hair-straighteners-to-invest-in/)
 - [aussie hair products review](https://allwomenstalk.com/review-aussie-hair-products/)
 - [neutrogena triple moisture conditioner](https://allwomenstalk.com/review-neutrogena-triple-moisture-hair-mask/)
+- [loreal riche le stylo smoky shadow emerald conques...](https://hair.allwomenstalk.com/must-have-hair-products-for-winter-hair/)
 - [8 Ways to Deal with Dry Hair ...](https://hair.allwomenstalk.com/8-ways-to-deal-with-dry-hair/)
 - [7 Ways to Remedy a Dry Scalp ...](https://hair.allwomenstalk.com/ways-to-remedy-a-dry-scalp/)
 

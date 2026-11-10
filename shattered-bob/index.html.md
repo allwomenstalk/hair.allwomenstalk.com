@@ -3,7 +3,7 @@ title: "The Shattered Bob Is Fall's Most Wearable Short Cut: What to Ask For and
 description: "The shattered bob is a soft, textured jaw-to-shoulder cut. What it is, how it differs from a blunt bob, the exact words to tell your stylist and a 5-minute routine."
 url: "https://hair.allwomenstalk.com/shattered-bob/"
 category: "hair"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Shattered Bob Is Fall's Most Wearable Short Cut: What to Ask For and How to Style It

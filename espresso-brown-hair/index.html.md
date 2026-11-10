@@ -3,7 +3,7 @@ title: "Espresso Brown Hair: What to Ask For and How to Keep It Glossy"
 description: "Espresso brown is a deep brunette with a little golden warmth, rather than an inky black or a deliberately gray finish. The appeal is the combination: dark"
 url: "https://hair.allwomenstalk.com/espresso-brown-hair/"
 category: "hair"
-last_updated: "2026-11-07"
+last_updated: "2026-11-10"
 ---
 
 # Espresso Brown Hair: What to Ask For and How to Keep It Glossy

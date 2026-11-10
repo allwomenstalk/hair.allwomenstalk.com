@@ -1,9 +1,9 @@
 ---
 title: "19 Fun Facts and TidBits of Trivia about Hair ..."
-description: "The USA Has the Largest Population of Redheaded People; Blondes Have the Highest Number of Hair Strands; Redheads Need More Anesthetics than Other Hair Colors; Guess What Hair Color Thor Had; Redheads Have a Higher Risk of Developing Skin Cancer; More ..."
+description: "The USA Has the Largest Population of Redheaded People; Blondes Have the Highest Number of Hair Strands; Redheads Need More Anesthetics than Other Hair Colors"
 url: "https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/"
 category: "hair"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 19 Fun Facts and TidBits of Trivia about Hair ...
@@ -92,13 +92,13 @@ How many of these pieces of hair trivia did you already know?
 
 - [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
 - [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
-- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
-- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
-- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
-- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
 - [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
-- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
+- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
+- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
 - [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
+- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
+- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
 - [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
 - [9 Salon Secrets for Beautiful Hair ...](https://hair.allwomenstalk.com/9-salon-secrets-for-beautiful-hair/)
 - [15 Perfect Hair Tips ...](https://hair.allwomenstalk.com/15-perfect-hair-tips/)

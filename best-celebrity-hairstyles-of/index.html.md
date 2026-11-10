@@ -1,9 +1,9 @@
 ---
 title: "20 Best Celebrity Hairstyles of 2012 ..."
-description: "Blake Lively’s Romantic Braids; Scarlett Johansson’s Milk Maid up do; Cameron Diaz’s Short Waves; Mila Jovovich 1930’s Glam; Michelle Williams’s Adorable Pixie; More ..."
+description: "Blake Lively’s Romantic Braids; Scarlett Johansson’s Milk Maid up do; Cameron Diaz’s Short Waves; Mila Jovovich 1930’s Glam"
 url: "https://hair.allwomenstalk.com/best-celebrity-hairstyles-of/"
 category: "hair"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 20 Best Celebrity Hairstyles of 2012 ...
@@ -136,16 +136,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11151417)
 
 ## Related Posts
 
-- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
-- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
-- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
-- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
-- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
-- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
 - [classic-bun photos](https://hair.allwomenstalk.com/cool-variations-of-a-classic-bun/)
-- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
-- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [cute girl hair styles](https://hair.allwomenstalk.com/cute-hairstyles-for-teenage-girls/)
+- [shoulder length hairstyles up](https://hair.allwomenstalk.com/cute-up-dos-for-shoulder-length-hair/)
 - [how to style curly hair for summer](https://hair.allwomenstalk.com/amazing-summer-hairstyles-for-tightly-curly-hair/)
+- [protective styles for short natural hair](https://hair.allwomenstalk.com/great-protective-styles-for-short-hair/)
+- [head scarves fashion](https://hair.allwomenstalk.com/amazing-head-scarves-to-update-your-style-with/)
+- [beach hairstyles for long hair](https://hair.allwomenstalk.com/beach-ready-hairstyles-to-try-this-summer/)
+- [best hairstyles for round faces](https://hair.allwomenstalk.com/best-hairstyles-for-round-faces-2/)
+- [hairstyles to do with thin hair](https://hair.allwomenstalk.com/awesome-hairstyles-for-fine-thin-hair/)
+- [hair pin straight](https://hair.allwomenstalk.com/cool-hairstyles-for-pin-straight-hair/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [8 Sexiest Badass Celebrity Hair Styles ...](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 
