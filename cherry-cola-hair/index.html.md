@@ -3,7 +3,7 @@ title: "What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained"
 description: "A practical guide to dark cherry brunette hair, salon versus home color, FDA dye safety, and a fade-care routine."
 url: "https://hair.allwomenstalk.com/cherry-cola-hair/"
 category: "hair"
-last_updated: "2026-11-10"
+last_updated: "2026-11-12"
 ---
 
 # What Is Cherry Cola Hair? The Dark Red Brunette Shade, Explained
@@ -29,6 +29,8 @@ A cool, wine-red result that can overlap with cherry cola
 
 Auburn
 A warmer red-brown with more copper
+
+For a warmer brown-red direction, compare our [chestnut red hair guide](https://hair.allwomenstalk.com/chestnut-red-hair/) and bring both references to your colorist.
 
 ## Will it work on dark hair without bleach?
 
